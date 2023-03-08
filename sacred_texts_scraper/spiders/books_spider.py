@@ -19,7 +19,7 @@ class BooksSpider(scrapy.Spider):
             folder_path = f"{base_path}/{endpoint}"
             Path(folder_path[:-1]).mkdir(parents=True, exist_ok=True)
 
-            links = self._next_links(response)
+            links = self._next_links(response, base_path)
 
             yield from response.follow_all(links, callback=self.parse)
 
@@ -34,12 +34,13 @@ class BooksSpider(scrapy.Spider):
             with Path(filepath).open(mode="w") as f:
                 f.write(response.css("BODY").get())
 
-            links = self._next_links(response)
+            links = self._next_links(response, base_path)
 
             yield from response.follow_all(links, callback=self.parse)
 
-    def _next_links(self, response):
+    def _next_links(self, response, base_path) -> list:
         link_extractor = LinkExtractor(
+            allow_domains="sacred-texts.com",
             deny_extensions=[
                 "pdf",
                 "jpg",
@@ -53,11 +54,18 @@ class BooksSpider(scrapy.Spider):
                 "zip",
                 "csv",
                 "#",
-            ]
+            ],
         )
-        links = [
-            link.url
-            for link in link_extractor.extract_links(response)
-            if "#" not in link.url.split(".")[-1]
-        ]
+        links = []
+        for link in link_extractor.extract_links(response):
+            # Filter link list to reduce calls
+            if "#" not in link.url.split(".")[-1]:
+                local_path_no_ext = (
+                    f"{base_path}{link.url.replace('https://www.sacred-texts.com', '')}"
+                )
+                local_link = local_path_no_ext.replace(".htm", ".md")
+
+                if not Path(local_link).exists():
+                    links.append(link.url)
+
         return links
