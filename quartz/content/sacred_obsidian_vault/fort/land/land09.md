@@ -1,0 +1,40 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Fortean</a> 
+ <a href="index.htm">Index</a> 
+ <a href="land08.htm">Previous</a> 
+ <a href="land10.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0027P8882/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>New Lands</i>, by Charles Fort, [1923], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_366"><font size="1" color="green">p. 366</font></a></p>  <h3 align="center">9</h3>  
+ <p><span style="font-variant:small-caps;">According</span> to Prof. Newcomb, for instance, the distance of the sun is about 380 times the distance of the moon—as determined by triangulation. But, upon page 22, <i>Popular Astronomy</i>, Newcomb tells of another demonstration, with strikingly different results—as determined by triangulation.</p>  
+ <p>A split god.</p>  
+ <p>The god Triangulation is not one undivided deity.</p>  
+ <p>The other method with strikingly different results is the method of Aristarchus. It cuts down the distance of the sun, from 380 to 20 times the distance of the moon. When an observer upon this earth sees the moon half-illumined, the angle at the moon, between observer and sun, is a right angle; a third line between observer and sun completes a triangle. According to Aristarchus, the tilt of the third line includes an angle of 86 degrees, making the sun-earth line 20 times longer than the moon-earth line.</p>  
+ <p>"In principle," says Newcomb, "the method is quite correct and very ingenious, but it cannot be applied in practice." He says that Aristarchus measured wrong; that the angle between the moon-earth line and the earth-sun line is almost 90 degrees and not 86 degrees. Then he says that the method cannot be applied because no one can determine this angle that he had said is of almost 90 degrees. He says something that is so incongruous with the inflations of astronomers that they'd sizzle if their hypnotized readers could read and think at the same time. Newcomb says that the method of Aristarchus cannot be applied because no astronomer can determine when the moon is half-illumined.</p>  
+ <p>We have had some experience.</p>  
+ <p>Does anybody who has been through what we've been through suppose that there is a Prof. Keeler in the world who would not declare that trigonometrically and spectroscopically and micro-metrically he had determined the exact moment and exasperating,</p>  
+ <p><a name="page_367"><font size="1" color="green">p. 367</font></a></p>  
+ <p>or delightful, decimal of a moment of semi-illumination of the moon, were it not that, according to at least as good a mathematician as he, determination based upon that demonstration does show that the sun is only 20 times as far away as the moon? But suppose we agree that this simple thing cannot be done.</p>  
+ <p>Then instantly we think of some of the extravagant claims with which astronomers have stuffed supine credulities. Crawling in their unsightly confusion that sickens for simplification, is this offense to harmony:</p>  
+ <p>That astronomers can tell under which Crusade, or its decimalated moment, a shine left a star, but cannot tell when a shine reaches a line on the moon—</p>  
+ <p>Glory and triumph and selectness and inflation—or that we shall have renown as evangelists, spreading the homely and wholesome doctrine of humility. Hollis, in <i>Chats on Astronomy</i>, tells us that the diameter of this earth, at the equator, is 41,851,160 feet. But blessed be the meek, we tell him. In the <i>Observatory</i>, 19-118, is published the determination, by the astronomer Brenner, of the time of rotation of Venus, as to which other astronomers differ by hundreds of days. According to Brenner, the time is 23 hours, 57 minutes, and 7.5459 seconds. I do note that this especial refinement is a little too ethereal for the Editor of the <i>Observatory:</i> he hopes Brenner will pardon him, but is it necessary to carry out the finding to the fourth decimal of a second? However, I do not mean to say that all astronomers are as refined as Brenner, for instance. In the <i>Jour. B. A. A.</i>, I-382, Edwin Holmes, perhaps coarsely, expresses some views. He says that such "exactness" as Capt. Noble's in writing that the diameter of Neptune is 38,133 miles and that of Uranus is 33,836 miles is bringing science into contempt, because very little is known of these planets; that, according to Neison, these diameters are 27,000 miles and 28,500 miles. Macpherson, in <i>A Century's Progress in Science</i>, quotes Prof. Serviss: that the average parallax of a star, which is an ordinary astronomic quantity, is "about equal to the apparent distance between two pins, placed one inch apart, and viewed from a distance of one hundred and eighty miles." Stick ins in a cushion, in New York—go to Saratoga and look at them</p>  
+ <p><a name="page_368"><font size="1" color="green">p. 368</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> —be overwhelmed with the more than human powers of the scientifically anointed—or ask them when shines half the moon.</p>  
+ <p>The moon's surface is irregular. I do not say that anybody with brains enough to know when he has half a shoe polished should know when the sun has half the moon shined. I do say that if this simple thing cannot be known, the crowings of astronomers as to enormously more difficult determinations are mere barnyard disturbances.</p>  
+ <p>Triangulation that, according to his little priests, straddles orbits and on his apex wears a star—that he's a false Colossus; shrinking, at the touch of data, back from the stars, deflating below the sun and moon; stubbing down below the clouds of this earth, so that the different stories that he told to Aristarchus and to Newcomb are the conflicting vainglories of an earth-tied squatter—</p>  
+ <p>The blow that crumples a god:</p>  
+ <p>That, by triangulation, there is not an astronomer in the world who can tell the distance of a thing only five miles away.</p>  
+ <p>Humboldt, <i>Cosmos</i>, 5-138:</p>  
+ <p>Height of Mauna Loa: 18,410 feet, according to Cook; 16,611, according to Marchand; 13,761, according to Wilkes—according to triangulation.</p>  
+ <p>In the <i>Scientific American</i>, 119-31, a mountain climber calls the Editor to account for having written that Mt. Everest is 29,002 feet high. He says that, in his experience, there is always an error of at least ten per cent. in calculating the height of a mountain, so that all that can be said is that Mt. Everest is between 26,100 and 31,900 feet high. In the <i>Scientific American</i>, 102-183, and 319, Miss Annie Peck cites two measurements of a mountain in India: they differ by 4,000 feet.</p>  
+ <p>The most effective way of treating this subject is to find a list of measurements of a mountain's height before the mountain was climbed, and compare with the barometric determination, when the mountain was climbed. For a list of 8 measurements, by triangulation, of the height of Mt. St. Elias, see the <i>Alpine Journal</i>, 22-150: they vary from 12,672 to 19,500 feet. D’Abruzzi climbed Mt. St. Elias, Aug. 1, 1897. See a paper, in the <i>Alpine Journal</i>, 19-125 D’Abruzzi barometric determination-18,092 feet.</p>  
+ <p><a name="page_369"><font size="1" color="green">p. 369</font></a></p>  
+ <p>Suppose that, in measuring, by triangulation, the distance of anything five miles away, the error is, say, ten per cent. But, as to anything ten miles away, there is no knowing what the error would be. By triangulation, the moon has been "found" to be 240,000 miles away. It may be 240 or 240,000,000 miles away.</p>  
+ <p></p><hr>
+ <center>
+ <a href="land10.htm">Next: 10</a></center>
+ </body>

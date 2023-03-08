@@ -1,0 +1,27 @@
+<body>
+ <center>
+ <a href="../../../index.htm">Sacred-Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Cherokee</a> 
+ <a href="index.htm">Index</a> 
+ <a href="motc096.htm">Previous</a> 
+ <a href="motc098.htm">Next</a> 
+ </center>
+ <hr>
+ <center><h1>97. Origin Of The Yontoñwisas Dance</h1></center>
+ <p>Two Seneca women who were sisters, with the baby boy of the older one, were in a sugar grove near their home when a war party of</p>
+ <p><font size="2"><i>p. 366</i></font></p>
+ <p>Cherokee came upon them and carried them off. When the people of the town learned what had happened, they decided not to go after the enemy for fear they would kill the women, so they made no pursuit.</p>
+ <p>The Cherokee carried the women with them until they were within one day of the Cherokee towns. The elder sister learned this and made up her mind to try to escape. She had a knife without a handle hidden under her belt, and that night when all lay down to sleep by the fire she kept awake. When they were sleeping soundly, she looked around. She and her sister were tied together, and on each side of them was a Cherokee with the end of the rope under his body on the ground. Taking out her knife, she cut the rope without waking the men, and then rousing her sister quietly she whispered to her to come. They were going to leave the little boy, but he started to cry, so she said, "Let us die together," and took him up on her back, and the two women hurried away. In a little while they heard an alarm behind them, and knew that their escape was discovered, and then they saw the blazing pine knots waving through the trees where the Cherokee were coming on looking for them. The women knew the Cherokee would hunt for them toward the north, along the trail to the Seneca country, so they made a circuit and went around to the .south until they came in sight of a fire and saw a man sitting by a tree, shaking a rattle and singing in a low voice. They found they had come directly back to the enemy's camp, so the older sister said, "This will never do; we must try again. Let us go straight ahead to that big tree in front, and from that straight on to the next, and the next." In this way they kept on a straight course until morning. When the sun came up, they took another direction toward home, and at night they rested in the woods.</p>
+ <p>They traveled all the next day, and at night rested again. In the night, a voice spoke to the younger woman, "Is that where you are resting?" and she answered, "Yes." The voice said again, "Keep on, and you will come out at the spot where you were captured. No harm will come to you. To-morrow you will find food." She roused her sister and told her what the voice had said.</p>
+ <p>In the morning they went on and at noon found a buck freshly killed. Near by they found a log on fire, so they roasted some of the meat, had a good meal, and carried away afterwards as much of the meat as they could. They kept on, camping every night, and when the meat was nearly gone they saved the rest for the little boy.</p>
+ <p>At last one night the voice spoke again to the younger sister and said, "You are on the right road, and to-morrow you will be on the border of the Seneca country. You will find food. That is all."</p>
+ <p>In the morning she told her older sister. They started on again and walked until about noon, when they came to a patch of wild potatoes. They dug and found plenty, and as they looked around they saw smoke</p>
+ <p><font size="2"><i>p. 367</i></font></p>
+ <p>where there had been a camp fire. They gathered wood, made up the, fire, and roasted the potatoes. Then they ate as many as they wanted and carried the rest with them.</p>
+ <p>They traveled on until the potatoes were almost gone. Then at night the voice came again to the younger woman, saying: "At noon tomorrow you will reach your home, and the first person you will meet will be your uncle. When you get to the town, you must call the people together And tell them all that has happened. You must go to the long house and take off your skirt and carry it on your shoulder. Then you must go inside and go around once, singing, 'We have come home; we are here.' This is the <i>Yontoñwisas</i> song, and it shall be for women only. Know now that we are the <i>Hadionyageonoñ</i>, the Sky People, who have watched over you all this time."</p>
+ <p>When the girl awoke, she told her sister, and they said, "We must do all this," and they began to sing as they went along. About noon they heard the sound of chopping, and when they went to the place they found it was their uncle cutting blocks to make spoons. He did not see them until they spoke, and at first could hardly believe that they were living women, because he knew that they had been taken by the Cherokee. He was very glad to see them, and as they walked on to the town they told him all they had been commanded to do by the Sky People. When they arrived at the town, he called all the people together, and they went to the long house. There the two women sang their song and did everything exactly as they had been told to do, and when it was over they said, "This is all," and sat down. This is the same Yontoñwisas song that is still sung by the women.--Arranged from Curtin, Seneca manuscript.</p>
+ <hr>
+ <center>
+ <a href="motc098.htm">Next: 98. Ga?na?'s Adventures Among The Cherokee</a></center>
+ </body>

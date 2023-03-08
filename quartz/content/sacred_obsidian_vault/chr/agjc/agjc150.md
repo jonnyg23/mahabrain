@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc149.htm">Previous</a> 
+ <a href="agjc151.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 147</h4> <i>
+ </i><p>Jesus speaks to the people in the temple regarding the messiahship. Rebukes the Jews for treachery. The Jews attempt to stone him, but are prevented by Joseph. The Christines go to Jericho, and later to Bethabara.<br> <br> <b>1. </b>Now, many Jews from Galilee, Judea and Samaria were in Jerusalem and at the feast.<br> <b>2. </b>The porch of Solomon was filled with scribes and Pharisees and doctors of the law, and Jesus walked with them.<br> <b>3. </b>A scribe approaching Jesus said, Rabboni, why do you keep the people waiting in suspense? If you are the Messiah that the prophets said would come, will you not tell us now?<br> <b>4. </b>And Jesus said, Lo, I have told you many times, but you believed me not.<br> <b>5. </b>No man can do the work that I have done and bring to men the truth as I have brought the truth who did not come from God.<br> <b>6. </b>What I have done and said are witnesses for me.<br> <b>7. </b>God calls, and they whose ears have attuned to hear the heavenly voice have heard the call and have believed in me; because God testifies for me.<br> <b>8. </b>You cannot hear the voice of God, because your ears are closed. You cannot comprehend the works of God, because your hearts are full of self.<br> <b>9. </b>And you are busybodies, mischief-makers, hypocrites. You take these men whom God has given me into your haunts and try to poison them with sophistries and lies, and think that you will snatch them from the fold of God.<br> <b>10. </b>I tell you, men, these men are tried and you can snatch not one of them away.<br> <b>11. </b>My Father who has given them to me is greater than you all, and he and I are one.<br> <b>12. </b>And then the Jews took stones to throw at him and cried, Now we have heard enough; away with him; let him be stoned.<br> <b>13. </b>But Joseph, member of the great Sanhedrim of the Jews, was in the porch and he came forth and said,<br> <b>14. </b>You men of Israel, do nothing rash; throw down those stones; your reason is a better guide than passion in such times as these.<br> <b>15. </b>You do not know your accusations to be true, and if this man should prove himself to be the Christ, and you should take his life, the wrath of God would rest upon you evermore.<br> <b>16. </b>And Jesus said to them, Lo, I have healed your sick, have caused your blind to see, your deaf to hear, your lame to walk, and cast out unclean spirits from your friends;<br> <b>17. </b>For which of these great works would you desire to take my life?<br> <b>18. </b>The Jews replied, We would not stone you for your works of grace, but for your vile, blasphemous words. You are but man and still you say that you are God.<br> <b>19. </b>And Jesus said, A prophet of your own said to the sons of men, Lo, you are gods!<br> <b>20. </b>Now, hark, you men, if he could say that to the men who simply heard the word of God, why should you think that I blaspheme the name of God because I say, I am a son of God?<br> <b>21. </b>If you believe not what I say you must have faith in what I do, and you should see the Father in these works, and know that I dwell in the Father-God, and that the Father dwells in me.<br> <b>22. </b>and then again the Jews took stones and would have stoned him in the temple court; but he withdrew himself from sight and left the porch and court and went his way:<br> <b>23. </b>And with the twelve he went to Jericho, and after certain days they crossed the Jordan and in Bethabara abode for many days.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc151.htm">Next: Chapter 148</a></center>
+ </div>
+ </center></body>

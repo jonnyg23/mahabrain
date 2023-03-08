@@ -1,0 +1,27 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br><a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Sagas and Legends</a> 
+ <a href="../index.htm">Celtic</a> 
+ <a href="index.htm">Index</a> 
+ <a href="wfb28.htm">Previous</a> 
+ <a href="wfb30.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <p align="CENTER">Fairy Ointment</p>
+ <p>THE old couple who lived at the Garth Dorwen went to Carnarvon to hire a servant maid at the Allhallows' Fair. They went to the spot where the young men and women who wanted places were accustomed to station themselves, and saw a lass with golden hair, standing a little apart from all the others. They asked her if she wanted a place: she replied that she did, and she hired herself at once and came to her place at the time fixed. Her name, she said, was Eilian.</p>
+ <p>In those days it was customary to spin after supper during the long winter months. Now Eilian, on nights when the moon was shining, would take her wheel down to the meadow, and the Fair Family used to come to help her. On these occasions an enormous amount of spinning was done, and great was the joy of the old couple at having secured such a maid-servant.</p>
+ <p>But their fortune was too good to last: in the spring when the days grew long Eilian disappeared. Everyone thought that she had gone with the Fair Family, and for once everyone was right. Now this is how it was found out for certain that Eilian was with the fairies. The old woman of Garth Dorwen was by way of being a nurse, and some time after Eilian's disappearance, on a night when the moon was full and there was a little rain falling through a thin mist, a gentleman on horseback came to fetch her. So she rode oft behind the stranger on his horse and came to Rhos y Cowrt. The two dismounted and entered a great cave, and through a door at the far end of it passed into a bed-chamber, where a lady lay in her bed: it was the finest, place the old woman had ever seen in her life.</p>
+ <p>The old woman saw and heard nobody there but the gentleman who had fetched her, the mother and the baby. This was curious, because she found dainty food prepared for the mother, and everything she wanted was procured by some invisible power. The mystery was not solved until one morning the husband gave her a bottle of ointment to anoint the baby's eyes with. "Take care," he said, "that you do not touch your own eyes with it, or evil will befall you." The old woman promised to be careful, but somehow or other, after putting the bottle by, her left eye began to itch, and without thinking what she was doing she rubbed it with the same finger that she had used for the baby's eyes. And now a strange thing happened: with the right eye she saw everything as before, gorgeous and luxurious as the heart could wish, but with the left eye she saw a damp, miserable cave, and lying on some rushes and withered ferns, with big stones all round her, was her former servant girl, Eilian. In the course of the day she saw a great deal more. There were small men and small women going in and out, their movements being as light as the morning breeze. They prepared dainties with the utmost skill and rapidity, and served Eilian with a kindness and affection that was truly remarkable.</p>
+ <p>In the evening the old woman said, "You have had a great many visitors to-day, Eilian."</p>
+ <p>"Yes," was the reply, "but how do you know me?" Then the old woman explained that she had accidentally rubbed her left eye with the baby's ointment.</p>
+ <p>"Take care that my husband does not find out that you recognise me," said Eilian, and she told the old woman her story. She had been helped with her spinning by the fairies on condition that she married one of them. "I never meant to carry out the agreement," she added, "and I used to draw a knife whenever they pestered me too much about it on the meadow. That made them vanish immediately. And for fear they should carry me off when I was asleep, I placed a long stick of mountain ash regularly across my bed, for no fairy dare touch or cross a branch of the rowan tree. That kept me safe so long that I grew careless, and the day we sheared the sheep I was so tired that I forgot to protect my bed. That very night I was whisked off to Fairyland."</p>
+ <p>The old woman was very cautious after Eilian's warning, and gave the fairy husband no inkling that her left eye had any different power of vision from the right. Her time came to an end without mishap, and she was taken home on horseback just as she had come, and she was given a fine sum of money for her services.</p>
+ <p>Some time after the old woman was late in getting to market. When she arrived a friend said to her, "The fairies must be here to-day; the noise is swelling and prices are rising." Sure enough the fairies were there, but they were invisible to all eyes except the old woman's left eye. She saw Eilian's husband stealing something from a stall close by her: she went up to him and, forgetting the warning, said, "Good morning, master, how is Eilian?" "She is quite well," replied the fairy, "but with what eye do you see me?" "With this," said the old woman, pointing to her left. The fairy immediately put out her eye with a bulrush, and her right eye had to do the work of two all the rest of her life.</p>
+ <p></p><hr>
+ <center>
+ <a href="wfb30.htm">Next: Pergrin and the Mermaiden</a></center>
+ </body>

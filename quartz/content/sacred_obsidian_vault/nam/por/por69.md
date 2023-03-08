@@ -1,0 +1,23 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Native American</a> 
+ <a href="index.htm">Index</a> 
+ <a href="por68.htm">Previous</a> 
+ <a href="por70.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002BNKRAM/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Path on the Rainbow</i>, edited by George W. Cronyn, [1918], at sacred-texts.com</font></p><hr>  <h3 align="center">SA-A NARAÏ</h3>  
+ <p></p><div style="margin-left: 32px">So I heard it commanded,<br> On the edge of the mesa,<br> By the sitter on the mesa,<br> In the season of falling leaves:  
+ <p>Count thou, my son, the lights on South Star Trail;<br> <i>      Sa-a Naraï<br> </i>Trust not time nor strength—they are twin liars;<br> <i>      Sa-a Naraï<br> </i>On track of birth-dance the mourners wail—</p></div>  
+ <p><a name="page_194"><font size="1" color="green">p. 194</font></a></p>  
+ <p>      <i>Sa-a Naraï</i><br> The Tribe moves on—count thou the fires.<br> <i>      Sa-a Naraï<br> </i>Beads, a few in falling rain; grains in desert sand;<br> <i>      Sa-a Naraï<br> </i>The door of night swings wide—it will not close.<br> <i>      Sa-a Naraï<br> </i>Still room for beads, dying hills for land;<br> <i>     Sa-a Naraï<br> </i>The door is open—the Soul Trail glows.<br> <i>      Sa-a Naraï<br> </i>I counted my sheep but not the bones;<br> <i>      Sa-a Naraï<br> </i>A woman vows and goes her way;<br> <i>      Sa-a Naraï<br> </i>Dust-wedded wealth—the desert owns—<br> <i>      Sa-a Naraï<br> </i>Tomorrow smiles, while sad is yesterday.<br> <i>      Sa-a Naraï<br> </i>Feast on wit and beauty—pendants of bone—<br> <i>      Sa-a Naraï<br> </i>The eye-strings tie two souls today.<br> <i>      Sa-a Naraï<br> </i>Fill the earthen bowl—fill jar of stone—<br> <i>      Sa-a Naraï<br> </i>Youth blooms fresh—spring has not gone;<br> <i>      Sa-a Naraï<br> </i>Winter gathers, gathers fruit of spring shower;<br> <i>      Sa-a Naraï<br> </i>The frost-chain shakes—a soul moves on.<br> <i>      Sa-a Naraï<br> </i>I saw a cripple, I saw a thief.<br> <i>      Sa-a Naraï<br> </i>Go, hoe your corn with shoulder-blade of deer.<br> <i>      Sa-a Naraï<br> </i>Where blows a wind, there stirs a leaf;</p>  
+ <p><a name="page_195"><font size="1" color="green">p. 195</font></a></p>  
+ <p></p><div style="margin-left: 32px">      <i>Sa-a Naraï</i><br> A bone enghosts a hoe—greed your spear.<br> <i>      Sa-a Naraï<br> </i>If Red Moccasin moans, who knows the way?<br> <i>      Sa-a Naraï<br> </i>I am ashamed before that standing within me—<br> <i>      Sa-a Naraï<br> </i>The spirit upward flies—it will not stay;<br> <i>      Sa-a Naraï<br> </i>Follow soon, thou must, the Voice within thee.<br> <i>      Sa-a Narai<br> </i>Shagwakwa laughs—in black night sings—<br> <i>      Sa-a Naraï<br> </i>Give me my mother's bones—unto me, dreams!<br> <i>      Sa-a Naraï<br> </i>A puff to the gods whither blue smoke wings—<br> <i>      Sa-a Naraï<br> </i>Smoke now with me—soon the yellow line gleams.<br> <i>      Sa-a Naraï<br> </i>Eat thy mother's flesh—she is the corn:<br> <i>      Sa-a Naraï<br> </i>Is there a stranger who is not thy brother?<br> <i>      Sa-a Naraï<br> </i>The One Above sung life—lo, love was born!<br> <i>      Sa-a Naraï<br> </i>Hast shared the gift of thy first mother?<br> <i>      Sa-a Naraï<br> </i>A little puff—a little kernel—<br> <i>      Sa-a Naraï<br> </i>The Tribe moves on—it will not stay.<br> <i>      Sa-a Naraï<br> </i>A little play by the trail eternal—<br> <i>      Sa-a Naraï<br> </i>A little puff—lo, the South Star Way…<br> So I heard it chanted.</div>  
+ <p><a name="page_196"><font size="1" color="green">p. 196</font></a></p>  <h4 align="center">ON THE WAR-PATH</h4>  
+ <p></p><div style="margin-left: 32px">    Hey—ye!<br> Hey!<br> Hey—now go, gather, gather living arrows, gather!<br> Stand ye in the white dawn—<br> Crouch, spring, run!<br> Hey now, plume feather, feather—eagle flying feather—<br> Strike ye in the red dawn!<br> Crouch, spring, run!<br> Hey, now pray power of storm!<br> Hey, now pray lightning's bolt!<br> Hey, now pray power of flint!<br> Hey, now pray weather, weather—war-like stormy weather!<br> Slay ye in the yellow dawn—<br> Crouch, spring, run!<br> Hey, now go, gather, gather, bleeding bonnets gather—huh!</div>  
+ <p></p><hr>
+ <center>
+ <a href="por70.htm">Next: Earth-Mother</a></center>
+ </body>

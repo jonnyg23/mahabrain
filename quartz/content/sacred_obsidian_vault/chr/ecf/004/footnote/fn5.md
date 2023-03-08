@@ -1,0 +1,152 @@
+<body>
+ <p><a name="P500_103916"></a>
+ <sup>115 </sup>Et composito et soluto.</p>
+ 
+ <p><a name="P501_104371"></a>
+ <sup>116 </sup>See Phil. i. 20.</p>
+ 
+ <p><a name="P502_104566"></a>
+ <sup>117 </sup>Comp. <i>de Idol</i>., c. xiv.</p>
+ 
+ <p><a name="P503_105044"></a>
+ <sup>118 </sup>Sordidior.</p>
+ 
+ <p><a name="P504_105142"></a>
+ <sup>119 </sup>Or "pleasure:" placitum.</p>
+ 
+ <p><a name="P508_105877"></a>
+ <sup>120 </sup>Saeculi.</p>
+ 
+ <p><a name="P509_106159"></a>
+ <sup>121 </sup>Debita.</p>
+ 
+ <p><a name="P510_106218"></a>
+ <sup>122 </sup>Or, "city."</p>
+ 
+ <p><a name="P511_106257"></a>
+ <sup>123 </sup>Or, "sits on high above."</p>
+ 
+ <p><a name="P512_106391"></a>
+ <sup>124 </sup>Comp. Rev. xvii.</p>
+ 
+ <p><a name="P513_106798"></a>
+ <sup>125 </sup>Comp. Gen. xxxviii. 12-30. </p>
+ 
+ <p><a name="P514_107161"></a>
+ <sup>126 </sup>Congressus.</p>
+ 
+ <p><a name="P515_107539"></a>
+ <sup>127 </sup>Videri pudicam.</p>
+ 
+ <p><a name="P519_107969"></a>
+ <sup>128 </sup>Comp. John v. 34; 1 Cor. iv. 3.</p>
+ 
+ <p><a name="P520_108044"></a>
+ <sup>129 </sup>Comp. 1 Sam. xvi. 7; Jer. xvii. 10; Luke xvi. 15.</p>
+ 
+ <p><a name="P521_108240"></a>
+ <sup>130 </sup>See Phil. iv. 5, 8; Rom. xii. 17; 2 Cor. viii. 21.</p>
+ 
+ <p><a name="P522_108473"></a>
+ <sup>131 </sup>See Matt. v. 16; and comp. <i>de Idol</i>., c. xv. <i>ad init.</i></p>
+ 
+ <p><a name="P523_108650"></a>
+ <sup>132 </sup>Matt. v. 14.</p>
+ 
+ <p><a name="P524_108804"></a>
+ <sup>133 </sup>Matt. v. 15; Mark iv. 21; Luke viii. 16, xi. 33.</p>
+ 
+ <p><a name="P525_109108"></a>
+ <sup>134 </sup>See John iii. 21.</p>
+ 
+ <p><a name="P526_109486"></a>
+ <sup>135 </sup>Supellectilem.</p>
+ 
+ <p><a name="P527_109671"></a>
+ <sup>136 </sup>Effeminari virtus.</p>
+ 
+ <p><a name="P528_110639"></a>
+ <sup>137 </sup>Comp. Ex. xxxii.</p>
+ 
+ <p><a name="P529_110710"></a>
+ <sup>138 </sup>Ex. xxxii. 20. </p>
+ 
+ <p><a name="P539_113373"></a>
+ <sup>139 </sup>See also Pusey's reply to Dr. Farrar.</p>
+ 
+ <p><a name="P541_113822"></a>
+ <sup>140 </sup><i>Credibility</i>, etc. iv. pp. 460-462. </p>
+ 
+ <p><a name="P546_114029"></a>
+ <sup>1 </sup>[Written, possibly, as early as a.d. 204.]</p>
+ 
+ <p><a name="P551_114823"></a>
+ <sup>2 </sup>John xiv. 6.</p>
+ 
+ <p><a name="P552_116781"></a>
+ <sup>3 </sup>John xvi. 12, 13. See <i>de Monog</i>., c. ii.</p>
+ 
+ <p><a name="P553_116891"></a>
+ <sup>4 </sup>See John xiv. 26.</p>
+ 
+ <p><a name="P554_117117"></a>
+ <sup>5 </sup>Comp. Heb. xi. 40, xii. 24.</p>
+ 
+ <p><a name="P555_117269"></a>
+ <sup>6 </sup>Eccles. iii. 1, briefly. </p>
+ 
+ <p><a name="P556_117841"></a>
+ <sup>7 </sup>Comp. Mark iv. 28.</p>
+ 
+ <p><a name="P557_118287"></a>
+ <sup>8 </sup>Comp. Matt. xxiii. 8.</p>
+ 
+ <p><a name="P558_118377"></a>
+ <sup>9 </sup>John xvi. 13.</p>
+ 
+ <p><a name="P563_119869"></a>
+ <sup>10 </sup>Comp. Eph. iv. 1-6.</p>
+ 
+ <p><a name="P565_120361"></a>
+ <sup>11 </sup>Comp. John v. 44 and xii. 43.</p>
+ 
+ <p><a name="P566_121042"></a>
+ <sup>12 </sup>Sancti.</p>
+ 
+ <p><a name="P567_121075"></a>
+ <sup>13 </sup>Sanctae.</p>
+ 
+ <p><a name="P571_121253"></a>
+ <sup>14 </sup>Sanctissimi.</p>
+ 
+ <p><a name="P572_122255"></a>
+ <sup>15 </sup>The allusion is perhaps to 1 Cor. xiv. 35.</p>
+ 
+ <p><a name="P573_122431"></a>
+ <sup>16 </sup>Comp. 1 Cor. vii. 21, 22. </p>
+ 
+ <p><a name="P577_125145"></a>
+ <sup>17 </sup>1 Cor. vii.</p>
+ 
+ <p><a name="P579_125935"></a>
+ <sup>18 </sup>1 Cor. vii. 34. </p>
+ 
+ <p><a name="P586_130519"></a>
+ <sup>19 </sup>Gen. ii. 19, 20.</p>
+ 
+ <p><a name="P588_131107"></a>
+ <sup>20 </sup>Mulier, throughout. </p>
+ 
+ <p><a name="P591_133705"></a>
+ <sup>21 </sup>Viri: so throughout.</p>
+ 
+ <p><a name="P592_134069"></a>
+ <sup>22 </sup>See Gen. iii. 20.</p>
+ 
+ <p><a name="P598_134932"></a>
+ <sup>23 </sup>Gal. iv. 4.</p>
+ 
+ <p><a name="P599_135014"></a>
+ <sup>24 </sup>[i.e., Ebion, founder of the Ebionites.]</p>
+ 
+ </body>

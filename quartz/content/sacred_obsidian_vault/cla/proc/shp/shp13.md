@@ -1,0 +1,42 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Classics</a> 
+ <a href="../index.htm">Procopius</a> 
+ <a href="index.htm">Index</a> 
+ <a href="shp12.htm">Previous</a> 
+ <a href="shp14.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/076617039X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Secret History of Procopius</i>, tr. by Richard Atwater, [1927], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_109"><font size="1" color="GREEN">p. 109</font></a></p>  <h3 align="center">X. HOW JUSTINIAN CREATED A NEW LAW PERMITTING HIM TO MARRY A COURTESAN ON HER PROMISE TO REPENT HER PAST; AND THE TRUTH ABOUT THE APPARENT QUARRELS OF A HAPPY PAIR</h3>  
+ <p>NOW as long as the former Empress was alive, Justinian was unable to find a way to make Theodora his wedded wife. In this one matter she opposed him as in nothing else: for the lady abhorred vice, being a rustic and of barbarian descent, as I have shown. She was never able to do any real good, because of her continued ignorance of the affairs of state. She dropped her original name, for fear people would think it ridiculous, and adopted the name of Euphemia when she came to the palace. But finally her death removed this obstacle to Justinian's desire.</p>  
+ <p><a name="page_110"><font size="1" color="GREEN">p. 110</font></a></p>  
+ <p>Justin, doting and utterly senile, was now the laughing stock of his subjects; he was disregarded by everyone because of his inability to oversee state affairs; but Justinian they all served with considerable awe. His hand was in everything, and his passion for turmoil created universal consternation.</p>  
+ <p>It was then that he undertook to complete his marriage with Theodora. But as it was impossible for a man of senatorial rank to make a courtesan his wife, this being forbidden by ancient law, he made the Emperor nullify this ordinance by creating a new one, permitting him to wed Theodora, and consequently making it possible for anyone else to marry a courtesan. Immediately after this he seized the power of the Emperor, veiling his usurpation with a transparent pretext: for he was proclaimed colleague of his uncle as Emperor of the Romans by the questionable legality of an election inspired by terror.</p>  
+ <p>So Justinian and Theodora ascended the</p>  
+ <p><a name="page_111"><font size="1" color="GREEN">p. 111</font></a></p>  
+ <p>imperial throne three days before Easter, a time, indeed, when even making visits or greeting one's friends is forbidden. And not many days later Justin died of an illness, after a reign of nine years. Justinian was now sole monarch, together, of course, with Theodora.</p>  
+ <p>Thus it was that Theodora, though born and brought up as I have related, rose to royal dignity over all obstacles. For no thought of shame came to Justinian in marrying her, though he might have taken his pick of the noblest born, most highly educated, most modest, carefully nurtured, virtuous and beautiful virgins of all the ladies in the whole Roman Empire: a maiden, as they say, with upstanding breasts. Instead, he preferred to make his own what had been common to all men, and, careless of all her revealed history, took in wedlock a woman who was not only guilty of every other contamination but boasted of her many abortions.</p>  
+ <p><a name="page_112"><font size="1" color="GREEN">p. 112</font></a></p>  
+ <p>I need hardly mention any other proof of the character of this man: for all the perversity of his soul was completely displayed in this union; which alone was ample interpreter, witness, and historian of his shamelessness. For when a man once disregards the disgrace of his actions and is willing to brave the contempt of society, no path of lawlessness is thereafter taboo to him; but with unflinching countenance he advances, easily and without a scruple, to acts of the deepest infamy.</p>  
+ <p>However, not a single member of even the Senate, seeing this disgrace befalling the State, dared to complain or forbid the event; but all of them bowed down before her as if she were a goddess. Nor was there a priest who showed any resentment, but all hastened to greet her as Highness. And the populace who had seen her before on the stage, directly raised its hands to proclaim itself her slave in fact and in name. Nor did any soldier grumble at being ordered to</p>  
+ <p><a name="page_113"><font size="1" color="GREEN">p. 113</font></a></p>  
+ <p>risk the perils of war for the benefit of Theodora: nor was there any man on earth who ventured to oppose her.</p>  
+ <p>Confronted with this disgrace, they all yielded, I suppose, to necessity; for it was as if Fate were giving proof of its power to control mortal affairs as malignantly as it pleases: showing that its decrees need not always be according to reason or human propriety. Thus does Destiny sometimes raise mortals suddenly to lofty heights in defiance of reason, in challenge to all outcries of injustice; but admits no obstacle, urging on his favorites to the appointed goal without let or hindrance. But as this is the will of God, so let it befall and be written.</p>  
+ <p>Now Theodora was fair of face and of a very graceful, though small, person; her complexion was moderately colorful, if somewhat pale; and her eyes were dazzling and vivacious. All eternity would not be long enough to allow one to tell her</p>  
+ <p><a name="page_114"><font size="1" color="GREEN">p. 114</font></a></p>  
+ <p>escapades while she was on the stage, but the few details I have mentioned above should be sufficient to demonstrate the woman's character to future generations.</p>  
+ <p>What she and her husband did together must now be briefly described: for neither did anything without the consent of the other. For some time it was generally supposed they were totally different in mind and action; but later it was revealed that their apparent disagreement had been arranged so that their subjects might not unanimously revolt against them, but instead be divided in opinion.</p>  
+ <p>Thus they split the Christians into two parties, each pretending to take the part of one side, thus confusing both, as I shall soon show; and then they ruined both political factions. Theodora feigned to support the Blues with all her power, encouraging them to take the offensive against the opposing party and perform the most outrageous deeds of violence; while Justinian,</p>  
+ <p><a name="page_115"><font size="1" color="GREEN">p. 115</font></a></p>  
+ <p>affecting to be vexed and secretly jealous of her, also pretended he could not openly oppose her orders. And thus they gave the impression often that they were acting in opposition. Then he would rule that the Blues must be punished for their crimes, and she would angrily complain that against her will she was defeated by her husband. However, the Blue partisans, as I have said, seemed cautious, for they did not violate their neighbors as much as they might have done.</p>  
+ <p>And in legal disputes each of the two would pretend to favor one of the litigants, and compel the man with the worse case to win: and so they robbed both disputants of most of the property at issue.</p>  
+ <p>In the same way, the Emperor, taking many persons into his intimacy, gave them offices by power of which they could defraud the State to the limits of their ambition. And as soon as they had collected enough plunder, they would fall out</p>  
+ <p><a name="page_116"><font size="1" color="GREEN">p. 116</font></a></p>  
+ <p>of favor with Theodora, and straightway be ruined. At first he would affect great sympathy in their behalf, but soon he would somehow lose his confidence in them, and an air of doubt would darken his zeal in their behalf. Then Theodora would use them shamefully, while he, unconscious as it were of what was being done to them, confiscated their properties and boldly enjoyed their wealth. By such well-planned hypocrisies they confused the public and, pretending to be at variance with each other, were able to establish a firm and mutual tyranny.</p>  
+ <p></p><hr>
+ <center>
+ <a href="shp14.htm">Next: XI. How the Defender of the Faith Ruined His Subjects</a></center>
+ </body>

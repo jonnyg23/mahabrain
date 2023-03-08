@@ -1,0 +1,42 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Native American</a> 
+ <a href="index.htm">Index</a> 
+ <a href="por17.htm">Previous</a> 
+ <a href="por19.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002BNKRAM/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Path on the Rainbow</i>, edited by George W. Cronyn, [1918], at sacred-texts.com</font></p><hr>  <h4 align="center">RITUAL CHANT AT THE PREPARATION OF THE SWEAT LODGE FOR THE SICK</h4>  
+ <p align="center"><b>OMAHA</b></p>  
+ <p><i>The Stone, with the curative powers of its heat, becomes a symbol of permanency and strength.</i></p>  
+ <p>Ho! Aged One, eçka, <a name="fr_2"></a><a href="#fn_2"><font size="1">*</font></a><br> At a time when there were gathered together seven persons,<br> You sat in the seventh place, it is said,<br> And of the Seven you alone possessed knowledge of all things,<br>     Aged One, eçka.<br> When in their longing for protection and guidance,<br> The people sought in their minds for a way,<br> They beheld you sitting with assured permanency and endurance<br> In the center where converged the paths,<br> There, exposed to the violence of the four winds, you sat,<br> Possessed with power to receive supplications,<br>     Aged One, eçka.<br> Where is his mouth, by which there may be utterance of speech?<br> Where is his heart, to which there may come knowledge and understanding?</p>  
+ <p>
+ </p>  
+ <p><a name="page_47"><font size="1" color="green">p. 47</font></a></p>  
+ <p>Where are his feet, whereby he may move from place to place?<br> We question in wonder,<br> Yet verily it is said you alone have power to receive supplications,<br>     Aged One, eçka.<br> I have desired to go yet farther in the path of life with my little ones,<br> Without pain, without sickness,<br> Beyond the second, third, and fourth period of life's pathway,<br>     Aged One, eçka.<br> O hear! This is my prayer,<br> Although uttered in words poorly put together,<br>     Aged One, eçka.</p>  <h4 align="center">RITUAL CHANT FOR THE SICK</h4>  
+ <p align="center"><b>OMAHA</b></p>  
+ <p>He! Aged One, eçka<br> Thou Rock, eçka<br> Aged One, eçka<br> He! I have taught these little ones<br> They obey, eçka<br> Aged One, eçka<br> He!<br> He! Unmoved from time without end, verily<br> Thou sittest, eçka<br> In the midst of the various paths of the coming winds<br> In the midst of the winds thou sittest, eçka<br> Aged One, eçka<br> He! The small grasses grow about thee, eçka<br> Thou sittest as though making of them thy dwelling place, eçka<br> He! Verily thou sittest covered with the droppings of birds, eçka<br> Thy head decked with the downy feathers of the birds, eçka</p>  
+ <p><a name="page_48"><font size="1" color="green">p. 48</font></a></p>  
+ <p>Aged One, eçka<br> Thou who standest next in power, eçka<br> He! thou water, eçka.<br> Water that hast been flowing<br> From time unknown, eçka <br> He! Of you the little ones have taken<br> Though thy mysteries remain unrevealed<br> These little ones crave thy touch, eçka<br> He! Thou that standest as one dwelling place, eçka<br> Even as one dwelling place, eçka<br> Ye great animals, eçka<br> He! Who make for us the covering, eçka<br> These little ones, thou hast said, let their thoughts reverently dwell on me, eçka<br> He! Thou tent frame, eçka<br> Thou standest with bent back o’er us<br> With stooping shoulders, bending over us<br> Verily, thou standest<br> Thus my little ones shall speak of me, thou hast said<br> Brushing back the hair from thy forehead, eçka<br> The hair of thy head<br> The grass that grows about thee<br> Thy hairs are whitened, eçka<br> The hairs that grow upon thy head, eçka<br> O, the paths that the little ones shall take, eçka<br> Whichever way they may flee from danger, eçka<br> They shall escape. Their shoulders shall be bent with age as they walk<br> As they walk on the well-beaten path<br> Shading their brows now and again with their hands<br> As they walk in their old age, eçka<br> That of thy strength they shall partake, eçka<br> Therefore thy little ones desire to walk closely by thy side, eçka<br> Venerable One, eçka.</p>  
+ <p><a name="page_49"><font size="1" color="green">p. 49</font></a></p>  <h4 align="center">RITUAL OF THE COSMIC FORCES</h4>  
+ <p align="center"><b>OMAHA</b></p>  
+ <p>Toward the coming of the sun<br> There the people of every kind gathered,<br> And great animals of every kind.<br> Verily all gathered together, as well as people.<br> Insects also of every description,<br> Verily all gathered there together,<br> By what means or manner we know not.<br> Verily, one alone of all these was the greatest,<br> Inspiring to all minds,<br> The great white rock,<br> Standing and reaching as high as the heavens, enwrapped in mist,<br> Verily as high as the heavens.<br> Thus my little ones shall speak of me,<br> As long as they shall travel in life's path, thus they shall speak of me.<br> Such was the words, it has been said.<br> Then next in rank<br> Thou, male of the crane, stoodst with thy long beak<br> And thy neck, none like to it in length,<br> There with thy beak didst thou strike the earth.</p>  
+ <p>This shall be the legend<br> Of the people of yore, the red people,<br> Thus my little ones shall speak of me.<br> Then next in rank stood the male gray wolf, whose cry,<br> Though uttered without effort, verily made the earth to tremble,<br> Even the stable earth to tremble.<br> Such shall be the legend of the people.<br> Then next in rank stood Hega, the buzzard, with his red neck.<br> Calmly he stood, his great wings spread, letting the heat of the sun straighten his feathers.<br> Slowly he flapped his wings,</p>  
+ <p><a name="page_50"><font size="1" color="green">p. 50</font></a></p>  
+ <p>Then floated away, as though without effort,<br> Thus displaying a power (a gift of Wakonda) often to be spoken of by the old men in their teachings.</p>  <h4 align="center">SONG OF SCORN</h4>  
+ <p align="center"><b>OMAHA</b></p>  
+ <p>Ena! The one I wish to marry has gone to war.<br> Ena! The one I hate has not gone forth but remains here.</p>  
+ <p align="center"><b>THE GHOST-DANCE RELIGION</b></p>  
+ <p>In 1892 the last serious Indian outbreak occurred. This was occasioned by the government's efforts to suppress the practices of a new religion which, during the two years preceding, had spread over a large part of, the west, among the Indian tribes from the Plains to the Coast, and from the Columbia to the Rio Grande. The Prophet of this new cult claimed to be the Messiah, and professed to exercise divine powers. He instituted certain dances, which his followers, in a vain attempt to overthrow the world-order magically, perverted into frenzied rites, wherein entranced, they saw visions and spoke with the dead. The Messiah concept is an ancient one in Indian mythology, antedating all Christian influence, and so desperate had become the straits of the Vanishing Race that these doctrines received wide acceptance. At length the government intervened and brought the strange worship to an end.</p>  
+ <p>Mr. James Mooney investigated this interesting phenomenon and actually discovered the Seer, who proved to be an inoffensive visionary dwelling in a remote valley of the Southwest. This young man's life and theories (a full-blood, apparently untouched by Christian influence), curiously resembled those of Christ, and like the latter, he preached the doctrines of Nonresistance and the Brotherhood of Man. In this case our government played the part of Rome.</p>  
+ <p><a name="page_51"><font size="1" color="green">p. 51</font></a></p>  
+ <p>These songs were sung during the dancing, and express in the image of the Whirlwind, a mystic and exalted contemplation of the approaching Great Change. Unessential repetitions have been omitted for brevity's sake.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_2"></a><a href="por18.htm#fr_2">46:*</a> Eçka—I implore.</p>
+ <p></p><hr>
+ <center>
+ <a href="por19.htm">Next: Songs of the Ghost Dance Religion</a></center>
+ </body>

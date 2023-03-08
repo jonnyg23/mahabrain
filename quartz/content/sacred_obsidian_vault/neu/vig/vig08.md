@@ -1,0 +1,25 @@
+<body>
+ <center>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Legends &amp; Sagas</a> 
+ <a href="index.htm">Index</a> 
+ <a href="vig07.htm">Previous</a> 
+ <a href="vig09.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <b><font size="5"><p align="CENTER"><a name="_Toc29619152">CHAPTER V</a></p>
+ </font></b><p>THERE was a man named Bödvar; he was the son of Vikingakari, and the brother of Sigurd the father of Vigfuss, whose daughter was Astrida, the mother of Erik father of another Astrida, the mother of Olaf, the son of Tryggvi. Vikingakari was the son of Eymund the pirate,  <a name="fr_6"></a><a href="#fn_6"><font size="1">1</font></a> the son of Thorir. Bödvar was the father of Oluf the mother of Gizor the white. When Eyiolf and his wife Astrida got out to Iceland, Ingiald was dead, and Eyiolf succeeded to his property and his office as priest. Ingiald had a daughter named Ulfeida, who was married to Narvi of Hrisey. Four children of Eyiolf and Astrida are mentioned, of whom Thorstein was the eldest, but his share of the inheritance was paid him when he married, and he dwelt on Eyjafirth as long as he lived, and has little to do with our story. The second was Vigfuss, who married Halfrida, the daughter of Thorkel the tall from Myvain. Glum was the youngest of their sons, and the daughter was named Helga. She was wedded to Steingrim of Sigluvik, and their son was Thorvald Tafalld, who comes up afterwards in this story. Vigfuss, however, died very soon after his marriage, leaving one child, who survived him a short time only, and thus it came to pass that all his property vested half in Halfrida and half in Glum and Astrida, for Eyiolf was dead before this happened. Then Thorkel the tall moved his establishment to Thverà, and Sigmund his son with him. The latter was a man of much importance, an looked forward to becoming chief of the district, if he made a good match, and got the support of good kinsmen.<br>
+         Thorir was the name of a man who lived at Espihole, the son of Hamund of the dark-skin, and of Ingunna, the daughter of Helgi the thin. He had married Thordis, the daughter of Kadal, and their children were Thorarin and Thorvald the crooked, who lived at Grund on the Eyjafirth, Thorgrim, who lived at Mödrufell, Ingunna, the wife of Thord the priest of Frey, and Vigdis, who married Sigmund.<br>
+         Now Thorkel and Sigmund took to disturbing the property of Astrida,  <a name="fr_7"></a><a href="#fn_7"><font size="1">2</font></a> and they divided the land in half, but Glum and his mother got that part which had no house on it. So they made their dwelling at Borgarhole, but Glum took very little trouble about household matters, and seemed to be somewhat slow in coming to his full faculties. He was for the most part silent and undemonstrative, tall, of a dark complexion,  <a name="fr_8"></a><a href="#fn_8"><font size="1">3</font></a> with straight white hair; a powerful man, who seemed rather awkward and shy, and never went to the places where men met together.<br>
+         The temple of Frey was on the south of the river at Hripkelstad. Thorarin, of Espihole, was a prudent and popular man, but his brother Thorvald the crooked was a bully and hard to deal with. Sigmund thought he should be a great man if he could ally himself to the people at Espihole. In the meantime the property of Glum and Astrida was getting less every day, and their condition became uncomfortable, for Sigmund and Thorkel thwarted them, so that in everything they got less than their share. Then Glum says to his mother that he will go abroad, "for I see clearly I shall never get on here, but it may be I shall meet with more luck by means of the reputation of my kindred: I do not like to bear the encroachments of Sigmund, for whom as yet I am no match. However, do not you let go your hold on the land, through your position may be a difficult one." Glum at that time, when he desired to go abroad, was fifteen years of age.</p>
+ <p> </p>
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_6"></a><a href="vig08.htm#fr_6">1</a> The second name of Eymund, which I have translated "Pirate," may mean "the spoiler of ships," or the "spoiler of acres," according s it is written "Askaspillir," or Akraspillir." Myvatn, mentiond shortly afterwards, signifies "midge-water," or "gnat water."</p>
+ <p><a name="fn_7"></a><a href="vig08.htm#fr_7">2</a> Thorkel and his son claimed, of course, as representing the interest of Halfrida, the widow of Vigfuss, Glums brother. The other half of Vigfusss property, after the death of himself and his child, returned to his mother and brother.</p>
+ <p><a name="fn_8"></a><a href="vig08.htm#fr_8">3</a> The Icelandic word is "Skolbrunn," and its meaning is uncertain. If, as has been supposed, it had to do with the brow, it would probably be written "Skolbrynn." The senses given in the text is that suggested by my friend Mr. Vigfusson, the editor of the Eyrbyggia Saga (Leipzig, 1864.)</p>
+ <p></p><hr>
+ <center>
+ <a href="vig09.htm">Next: Chapter VI</a></center>
+ </body>

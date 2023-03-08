@@ -1,0 +1,115 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Hinduism</a> 
+ </center>
+ <hr>
+ <h1 align="CENTER">The Sacred Laws of the Âryas</h1>
+ <h2 align="CENTER">translated by Georg Bühler</h2>
+ <h3 align="CENTER">Part II: Vâsish<i>th</i>a and Baudhâyana</h3>
+ <h4 align="CENTER">(<i>Sacred Books of the East, Volume 14.</i>)</h4>
+ <h4 align="CENTER">[1882]</h4>
+ <hr>
+ <a href="sbe1400.htm">Title Page</a><br>
+ <a href="sbe1401.htm">Contents</a><br>
+ <a href="sbe1402.htm">Introduction to Vâsish<i>th</i>a</a><br>
+ <a href="sbe1403.htm">Introduction to Baudhâyana</a><br>
+ 
+ <a name="section_000"></a>
+ <h3 align="CENTER">Vasishtha</h3>
+ <a href="sbe1404.htm">Chapter I</a><br>
+ <a href="sbe1405.htm">Chapter II</a><br>
+ <a href="sbe1406.htm">Chapter III</a><br>
+ <a href="sbe1407.htm">Chapter IV</a><br>
+ <a href="sbe1408.htm">Chapter V</a><br>
+ <a href="sbe1409.htm">Chapter VI</a><br>
+ <a href="sbe1410.htm">Chapter VII</a><br>
+ <a href="sbe1411.htm">Chapter VIII</a><br>
+ <a href="sbe1412.htm">Chapter IX</a><br>
+ <a href="sbe1413.htm">Chapter X</a><br>
+ <a href="sbe1414.htm">Chapter XI</a><br>
+ <a href="sbe1415.htm">Chapter XII</a><br>
+ <a href="sbe1416.htm">Chapter XIII</a><br>
+ <a href="sbe1417.htm">Chapter XIV</a><br>
+ <a href="sbe1418.htm">Chapter XV</a><br>
+ <a href="sbe1419.htm">Chapter XVI</a><br>
+ <a href="sbe1420.htm">Chapter XVII</a><br>
+ <a href="sbe1421.htm">Chapter XVIII</a><br>
+ <a href="sbe1422.htm">Chapter XIX</a><br>
+ <a href="sbe1423.htm">Chapter XX</a><br>
+ <a href="sbe1424.htm">Chapter XXI</a><br>
+ <a href="sbe1425.htm">Chapter XXII</a><br>
+ <a href="sbe1426.htm">Chapter XXIII</a><br>
+ <a href="sbe1427.htm">Chapter XXIV</a><br>
+ <a href="sbe1428.htm">Chapter XXV</a><br>
+ <a href="sbe1429.htm">Chapter XXVI</a><br>
+ <a href="sbe1430.htm">Chapter XXVII</a><br>
+ <a href="sbe1431.htm">Chapter XXVIII</a><br>
+ <a href="sbe1432.htm">Chapter XXIX</a><br>
+ <a href="sbe1433.htm">Chapter XXX</a><br>
+ 
+ <a name="section_001"></a>
+ <h3 align="CENTER">Baudhâyana</h3>
+ <a href="sbe1434.htm">Pra<i>s</i>na I, Adhyâya 1, Ka<i>n</i><i>d</i>ikâ 1</a><br>
+ <a href="sbe1435.htm">Pra<i>s</i>na I, Adhyâya 1, Ka<i>n</i><i>d</i>ikâ 2</a><br>
+ <a href="sbe1436.htm">Pra<i>s</i>na I, Adhyâya 2, Ka<i>n</i><i>d</i>ikâ 3</a><br>
+ <a href="sbe1437.htm">Pra<i>s</i>na I, Adhyâya 2, Ka<i>n</i><i>d</i>ikâ 4</a><br>
+ <a href="sbe1438.htm">Pra<i>s</i>na I, Adhyâya 3, Ka<i>n</i><i>d</i>ikâ 5</a><br>
+ <a href="sbe1439.htm">Pra<i>s</i>na I, Adhyâya 4, Ka<i>n</i><i>d</i>ikâ 6</a><br>
+ <a href="sbe1440.htm">Pra<i>s</i>na I, Adhyâya 4, Ka<i>n</i><i>d</i>ikâ 7</a><br>
+ <a href="sbe1441.htm">Pra<i>s</i>na I, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 8</a><br>
+ <a href="sbe1442.htm">Pra<i>s</i>na I, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 9</a><br>
+ <a href="sbe1443.htm">Pra<i>s</i>na I, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 10</a><br>
+ <a href="sbe1444.htm">Pra<i>s</i>na I, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 11</a><br>
+ <a href="sbe1445.htm">Pra<i>s</i>na I, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 12</a><br>
+ <a href="sbe1446.htm">Pra<i>s</i>na I, Adhyâya 6, Ka<i>n</i><i>d</i>ikâ 13</a><br>
+ <a href="sbe1447.htm">Pra<i>s</i>na I, Adhyâya 6, Ka<i>n</i><i>d</i>ikâ 14</a><br>
+ <a href="sbe1448.htm">Pra<i>s</i>na I, Adhyâya 7, Ka<i>n</i><i>d</i>ikâ 15</a><br>
+ <a href="sbe1449.htm">Pra<i>s</i>na I, Adhyâya 8, Ka<i>n</i><i>d</i>ikâ 16</a><br>
+ <a href="sbe1450.htm">Pra<i>s</i>na I, Adhyâya 9, Ka<i>n</i><i>d</i>ikâ 17</a><br>
+ <a href="sbe1451.htm">Pra<i>s</i>na I, Adhyâya 10, Ka<i>n</i><i>d</i>ikâ 18</a><br>
+ <a href="sbe1452.htm">Pra<i>s</i>na I, Adhyâya 10, Ka<i>n</i><i>d</i>ikâ 19</a><br>
+ <a href="sbe1453.htm">Pra<i>s</i>na I, Adhyâya 11, Ka<i>n</i><i>d</i>ikâ 20</a><br>
+ <a href="sbe1454.htm">Pra<i>s</i>na I, Adhyâya 11, Ka<i>n</i><i>d</i>ikâ 21</a><br>
+ <a href="sbe1455.htm">Pra<i>s</i>na II, Adhyâya 1, Ka<i>n</i><i>d</i>ikâ 1</a><br>
+ <a href="sbe1456.htm">Pra<i>s</i>na II, Adhyâya 1, Ka<i>n</i><i>d</i>ikâ 2</a><br>
+ <a href="sbe1457.htm">Pra<i>s</i>na II, Adhyâya 2, Ka<i>n</i><i>d</i>ikâ 3</a><br>
+ <a href="sbe1458.htm">Pra<i>s</i>na II, Adhyâya 2, Ka<i>n</i><i>d</i>ikâ 4</a><br>
+ <a href="sbe1459.htm">Pra<i>s</i>na II, Adhyâya 3, Ka<i>n</i><i>d</i>ikâ 5</a><br>
+ <a href="sbe1460.htm">Pra<i>s</i>na II, Adhyâya 3, Ka<i>n</i><i>d</i>ikâ 6</a><br>
+ <a href="sbe1461.htm">Pra<i>s</i>na II, Adhyâya 4, Ka<i>n</i><i>d</i>ikâ 7</a><br>
+ <a href="sbe1462.htm">Pra<i>s</i>na II, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 8</a><br>
+ <a href="sbe1463.htm">Pra<i>s</i>na II, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 9</a><br>
+ <a href="sbe1464.htm">Pra<i>s</i>na II, Adhyâya 5, Ka<i>n</i><i>d</i>ikâ 10</a><br>
+ <a href="sbe1465.htm">Pra<i>s</i>na II, Adhyâya 6, Ka<i>n</i><i>d</i>ikâ 11</a><br>
+ <a href="sbe1466.htm">Pra<i>s</i>na II, Adhyâya 7, Ka<i>n</i><i>d</i>ikâ 12</a><br>
+ <a href="sbe1467.htm">Pra<i>s</i>na II, Adhyâya 7, Ka<i>n</i><i>d</i>ikâ 13</a><br>
+ <a href="sbe1468.htm">Pra<i>s</i>na II, Adhyâya 8, Ka<i>n</i><i>d</i>ikâ 14</a><br>
+ <a href="sbe1469.htm">Pra<i>s</i>na II, Adhyâya 8, Ka<i>n</i><i>d</i>ikâ 15</a><br>
+ <a href="sbe1470.htm">Pra<i>s</i>na II, Adhyâya 9, Ka<i>n</i><i>d</i>ikâ 16</a><br>
+ <a href="sbe1471.htm">Pra<i>s</i>na II, Adhyâya 10, Ka<i>n</i><i>d</i>ikâ 17</a><br>
+ <a href="sbe1472.htm">Pra<i>s</i>na II, Adhyâya 10, Ka<i>n</i><i>d</i>ikâ 18</a><br>
+ <a href="sbe1473.htm">Pra<i>s</i>na III, Adhyâya 1</a><br>
+ <a href="sbe1474.htm">Pra<i>s</i>na III, Adhyâya 2</a><br>
+ <a href="sbe1475.htm">Pra<i>s</i>na III, Adhyâya 3</a><br>
+ <a href="sbe1476.htm">Pra<i>s</i>na III, Adhyâya 4</a><br>
+ <a href="sbe1477.htm">Pra<i>s</i>na III, Adhyâya 5</a><br>
+ <a href="sbe1478.htm">Pra<i>s</i>na III, Adhyâya 6</a><br>
+ <a href="sbe1479.htm">Pra<i>s</i>na III, Adhyâya 7</a><br>
+ <a href="sbe1480.htm">Pra<i>s</i>na III, Adhyâya 8</a><br>
+ <a href="sbe1481.htm">Pra<i>s</i>na III, Adhyâya 9</a><br>
+ <a href="sbe1482.htm">Pra<i>s</i>na III, Adhyâya 10</a><br>
+ <a href="sbe1483.htm">Pra<i>s</i>na IV, Adhyâya 1</a><br>
+ <a href="sbe1484.htm">Pra<i>s</i>na IV, Adhyâya 2</a><br>
+ <a href="sbe1485.htm">Pra<i>s</i>na IV, Adhyâya 3</a><br>
+ <a href="sbe1486.htm">Pra<i>s</i>na IV, Adhyâya 4</a><br>
+ <a href="sbe1487.htm">Pra<i>s</i>na IV, Adhyâya 5</a><br>
+ <a href="sbe1488.htm">Pra<i>s</i>na IV, Adhyâya 6</a><br>
+ <a href="sbe1489.htm">Pra<i>s</i>na IV, Adhyâya 7</a><br>
+ <a href="sbe1490.htm">Pra<i>s</i>na IV, Adhyâya 8</a><br>
+ 
+ <a name="section_002"></a>
+ <h3 align="CENTER">Parisishta</h3>
+ <a href="sbe1491.htm">Pra<i>s</i>na VII, Adhyâya 5</a><br>
+ </body>

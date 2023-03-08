@@ -1,0 +1,25 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Sagas &amp; Legends</a> 
+ <a href="../index.htm">England</a> 
+ <a href="index.htm">Index</a> 
+ <a href="osc14.htm">Previous</a> 
+ <a href="osc16.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h3 align="CENTER">(12) KNUTSFORD: THE MAY QUEEN AND THE MORRIS DANCES.</h3>
+ <p>Knutsford enjoys the distinction of celebrating the custom of crowning the May Queen with an enthusiasm, an efficiency, and a pictorial splendour which is more impressive than anything else in the same sphere. Early in the morning the streets are "sanded" with brown and white sand in preparation for the procession. All the old characters are present, and many new ones are imported from time to time, whilst children in scores eagerly participate. The procession starts from the Town Hall, and is nearly a mile long; at the end is the uncrowned Queen. She is chosen by ballot by the ladies and gentlemen who are responsible for getting up the demonstration, and the crown becomes her own property. Circuiting the town, the procession goes to the Heath, where the actual crowning takes place, followed by games, morris dances, and the usual festivities, all of which are performed before the throne--quite an imposing structure in itself.</p>
+ <p>It is hardly necessary to trace the origin of May festivals in Europe, for all nations have observed them as a mark of joy at the return of the earth to life again. But to show how quickly some of the features of a celebration can drop out of sight, I need only reproduce the following from The Morning Post, May 2nd, 1791. The paragraph says that "yesterday, being the 1st of May, according to annual and superstitious custom, a number of persons went into the fields and bathed their faces with the dew on the grass, under the idea that it would render them beautiful. I remember, too, that in walking that same morning between Hounslow and Brentford, I was met by two distinct parties of girls, with garlands of flowers, who begged money of me, saying, 'Pray, sir, remember the Garland.'" The distinctive feature in the festivities at Knutsford, after the coronation, is the Morris dance; and as this is becoming more popular elsewhere, not so much in the festival as in the social sense, it may be wise to say a word or two on the origin of so interesting a custom. Authorities trace the dance to the Moors--the word Morisco being Spanish for a Moor.</p>
+ <p>The Moorish or Morisco dance was, however, very different from the English form. Douce, in his Illustrations of Shakespeare and of Ancient Manners, cites a passage from a play called Variety (1649), in which the Spanish Morisco is mentioned, adding that this not only shows the legitimacy of the term Morris, but that the real and uncorrupted Moorish dance was to be found in Spain under the name of Fandango. The Spanish Morrice was also danced at puppet shows by a person habited like a Moor, with castagnets; and Junius has informed us that the Morris dancers usually blackened their faces with soot, that they might the better pass for Moors. Douce goes on to say that "it has been supposed that the Morris Dance was first brought into England in the time of Edward the Third, when John of Gaunt returned from Spain (see Peck's Memoirs of Milton P. 135), but it is much more probable that we had it from our Gallic neighbours, or even from the Flemings. Few, if any, vestiges of it can be traced beyond the time of Henry the Seventh, about which time, and particularly in that of Henry the Eighth, the Churchwardens' accounts in several parishes afford materials that throw much light on the subject, and show that the Morris Dance made a very considerable figure in the parochial festivals."</p>
+ <p>"We find also that other festivals and ceremonies had their Morris, as: Holy Thursday; the Whitsun Ales; the Bride Ales or Weddings; and a sort of Play, or Pageant, called the Lord of Misrule. Sheriffs, too, had their Morris Dance."</p>
+ <p>"The May Games of Robin Hood," it is observed, "appear to have been principally instituted for the encouragement of archery, and were generally accompanied by Morris dancers, who, nevertheless, formed but a subordinate part of the ceremony. It is by no means clear that, at any time, Robin Hood and his companions were constituent characters in the Morris. In Lancham's Letter from Kenilworth, or Killingworth Castle, a Bride Ale is described, in which mention is made of 'a lively Moris dauns, according to lite auncient manner: six dauncerz, Mawd Marion, and the fool.'"</p>
+ <p>Modern Morris dances are sometimes criticised as to an alleged defect in the number of constituent characters, but it is clear no specific number is necessary, although Maid Marian and the fool are probably as important as any.</p>
+ <p></p><hr>
+ <center>
+ <a href="osc16.htm">Next: (13) Furry Dance--Helston</a></center>
+ </body>

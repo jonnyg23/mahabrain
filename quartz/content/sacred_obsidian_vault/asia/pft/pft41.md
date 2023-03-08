@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Asia</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pft40.htm">Previous</a> 
+ <a href="pft42.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/1426464215/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Philippine Folklore Stories</i>, by Mabel Cook Cole, [1916], at sacred-texts.com</font></p><hr>  <h3 align="center">THE STORY OF THE CREATION  <a name="fr_127"></a><a href="pft68.htm#fn_127"><font size="1">128</font></a></h3>  
+ <p align="center"><i>Bilaan</i> (<i>Mindanao</i>)</p>  
+ <p>In the very beginning there lived a being so large that he can not be compared with any known thing. His name was Melu,  <a name="fr_128"></a><a href="pft68.htm#fn_128"><font size="1">129</font></a> and when he sat on the clouds, which were his home, he occupied all the space above. His teeth were pure gold, and because he was very cleanly and continually rubbed himself with his hands, his skin became pure white. The dead skin which he rubbed off his body  <a name="fr_129"></a><a href="pft68.htm#fn_129"><font size="1">130</font></a> was placed on one side in a pile, and by and by this pile became so large that he was annoyed and set himself to consider what he could do with it.</p>  
+ <p>Finally Melu decided to make the earth; so he worked very hard in putting the dead skin into shape, and when it was finished he was so pleased with it that he determined to make two beings like himself, though smaller, to live on it.</p>  
+ <p>Taking the remnants of the material left after making the earth he fashioned two men but just as they were all finished except their noses, Tau Tana from below the earth appeared and wanted to help him.</p>  
+ <p>Melu did not wish any assistance, and a great argument ensued. Tau Tana finally won his point and made the noses which he placed on the people upside down. When all was finished, Melu and Tau Tana whipped the forms until they moved. Then Melu went to his home above the clouds, and Tau Tana returned to his place below the earth.</p>  
+ <p>All went well until one day a great rain came, and the people on the earth nearly drowned from the water which ran off their heads into their noses. Melu, from his place on the clouds, saw their danger, and he came quickly to earth and saved their lives by turning their noses the other side up.</p>  
+ <p>The people were very grateful to him, and promised to do anything he should ask of them. Before he left for the sky, they told him that they were very unhappy living on the great earth all alone, so he told them to save all the hair from their heads and the dry skin from their bodies and the next time he came he would make them some companions. And in this way there came to be a great many people on the earth.</p>  
+ <p></p><hr>
+ <center>
+ <a href="pft42.htm">Next: In the Beginning</a></center>
+ </body>

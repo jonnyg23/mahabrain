@@ -1,0 +1,189 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Mormonism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hou13.htm">Previous</a> 
+ <a href="hou15.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002ECE8AA/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg" border="0"></a><br><i>History of Utah, 1540-1886</i>, by Hubert Howe Bancroft, [1889], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_275"><font size="1" color="green">p. 275</font></a></p>  <h3 align="center">CHAPTER XI.<br> IN THE VALLEY OF THE GREAT SALT LAKE.<br> 1848.</h3>  
+ <p><small><span style="font-variant:small-caps;">Food and Raiment—Houses—Home Manufactures—the Fort—Wild Beasts—Cannon From Sutter's Fort—Indian Children for Sale—Measles—Population—Mills and Farming Machinery—the Plague of Crickets—They Are Destroyed By Gulls—Scarcity of Provisions—the Harvest Feast—Immigration—Five Thousand Saints Gathered in the Valley—Fencing and Farming—Distribution of Lots—Organization of County Government—Association for the Extermination of Wild Beasts.</span></small></p>  
+ <p>    <span style="font-variant:small-caps;">At</span> the opening of January 1848, the saints were housed, clad, and fed in moderate comfort, and general content prevailed. <a name="fr_380"></a><a href="#fn_380"><font size="1">1</font></a> The season was exceptionally mild; there were occasional light falls of snow, but not enough to interfere with ploughing and sowing, <a name="fr_381"></a><a href="#fn_381"><font size="1">2</font></a> and a large tract of land was partially enclosed and planted with wheat and vegetables.</p>  
+ <p>    So many people were now in the valley that notwithstanding the abundant crops food at length became scarce. Families weighed out their flour and allowed themselves so much a day. The wheat was ground at a mill on City Creek, but as there was no bolting-cloth, the shorts and bran could not be separated. The beef was very poor, <a name="fr_382"></a><a href="#fn_382"><font size="1">3</font></a> as most of the cattle</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_276"><font size="1" color="green">p. 276</font></a></p>  
+ <p>had been worked hard while driven to the valley and after their arrival, while those turned out to range did not fatten quickly. Butter and tallow were needed. One wild steer, well fattened, was brought in from Goodyear's rancho. A herd of deer crossing from one range of mountains to another was startled by the unexpected obstruction of the fort, and one sprang into the enclosure and was killed. Wild sago and parsnip roots constituted the vegetable food of the settlers. A few deaths occurred from poisonous roots. The bracing air and hard work stimulated appetite as stores decreased. For coffee parched barley and wheat were used, and as their sugar gave out, they substituted some of home manufacture. <a name="fr_383"></a><a href="#fn_383"><font size="1">4</font></a> In the spring thistle tops were eaten, and became an important article of diet. <a name="fr_384"></a><a href="#fn_384"><font size="1">5</font></a></p>  
+ <p>    Anxiety began to be felt about clothing, and the hand-looms were now busily at work, although wool was scarce. <a name="fr_385"></a><a href="#fn_385"><font size="1">6</font></a> As shoes wore out, moccasins were substituted, and goat, deer, and elk skins were manufactured into clothing for men and women, though most unsuitable for use in rain and snow.</p>  
+ <p>    At the time of Parley P. Pratt's arrival, the city of Great Salt Lake consisted of a fort enclosing a block of ten acres, the walls of part of the buildings being of adobes and logs. There were also some tents. <a name="fr_386"></a><a href="#fn_386"><font size="1">7</font></a> As additional companies came in, they extended</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_277"><font size="1" color="green">p. 277</font></a></p>  
+ <p>the south divisions, which were connected with the old fort by gates. Wagon-boxes were also brought into line, and served for habitations until better accommodations were provided. The houses were built of logs, and were placed close together, the roofs slanting inward, and all the doors and windows being on the inside, with a loop-hole to each room on the outside. As everything indicated a dry climate, the roofs were made rather flat, and great inconvenience resulted. In March the rains were very heavy, and umbrellas were used to protect women and children while cooking, and even in bed. The clay found in the bottoms near the fort made excellent plaster, but would not stand exposure to rain, and quickly melted. All breadstuffs were carefully gathered into the centre of the rooms, and protected with buffalo skins obtained from the Indians. The rooms in the outer lines all adjoined, and many of the families had several rooms. On the interior cross-lines rooms were built on both sides, the streets being eight rods wide.</p>  
+ <p align="center"><a name="img_27700"></a>
+ <span align="CENTER">
+ <a href="img/27700.jpg"><img src="tn/27700.jpg" alt="FORT, GREAT SLT LAKE CITY, 1848."><br><font size="-3">Click to enlarge</font></a><br>FORT, GREAT SLT LAKE CITY, 1848.<br></span></p>  
+ <p>    There were serious depredations committed by wolves, foxes, and catamounts, and great annoyance occasioned by the howling of some of these animals. <a name="fr_387"></a><a href="#fn_387"><font size="1">8</font></a> Further discomfort was caused by innumerable swarms of mice. Digging cavities and running about under the earthen floor, they caused the ground to tremble, and when the rain loosened the stones of the roofs,</p>  
+ <p>
+ </p>  
+ <p><a name="page_278"><font size="1" color="green">p. 278</font></a></p>  
+ <p>scampered off in hordes. Frequently fifty or sixty had to be caught and killed before the family could sleep. <a name="fr_388"></a><a href="#fn_388"><font size="1">9</font></a></p>  
+ <p>    The furniture was home-made, and very little of it at that. The table was a chest, and the bedstead was built into the corner of the house, which formed two of its sides, rails or poles forming the opposite sides; pegs were driven into the walls and rails, and the bed-cord tightly wound around them. <a name="fr_389"></a><a href="#fn_389"><font size="1">10</font></a> The chimneys were of adobe, and sometimes there was a fireplace in the corner with a clay hearth.</p>  
+ <p>    In the early part of the year two brass cannon were purchased at Sutter's Fort for the church, by the battalion brethren. <a name="fr_390"></a><a href="#fn_390"><font size="1">11</font></a></p>  
+ <p>    During the winter of 1847-8, some Indian children were brought to the fort to be sold. At first two were offered, but the settlers peremptorily refused to buy them. The Indian in charge said that the children were captured in war, and would be killed at sunset if the white men did not buy them. Thereupon they purchased one of them, and the one not sold was shot. Later, several Indians came in with two more children, using the same threat; they were bought and brought up at the expense of the settlers. <a name="fr_391"></a><a href="#fn_391"><font size="1">12</font></a></p>  
+ <p>    Measles now appeared for the first time among the natives, who did not know where the disease came from or what to do. They assembled in large numbers at the warm springs, bathed in the waters, and died. <a name="fr_392"></a><a href="#fn_392"><font size="1">13</font></a></p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_279"><font size="1" color="green">p. 279</font></a></p>  
+ <p>    Public meetings were generally held near the liberty-pole in the centre of the fort; religious and secular meetings were also held in private houses. In March 1848 the population of the city was reported at 1,671, and the number of houses 423. <a name="fr_393"></a><a href="#fn_393"><font size="1">14</font></a> Bridges were built over Mill Creek and Jordan River. Daniel Spencer was appointed road-master, and authorized to call on men to assist in making roads. In order that the burden might fall equally on all, a poll and property tax were instituted.</p>  
+ <p>    There were several mills soon in working order. A small grist-mill on City Creek was built by Charles Crismon near the pioneer garden; then there were Chase's saw-mill and Archibald and Robert Gardiner's on Mill Creek, and Nebeker, Riter, and Wallace's in a cañon ten miles north of the city. A carding machine was erected near Gardiner's saw-mill by Amasa Russell, and a flouring mill during the summer by John Neff. Leffingwell constructed a threshing machine and fanning mill on City Creek, with a capacity of two hundred bushels per day. Mill-stones cut out of the basalt in the valley were of very good quality. Millions, mill-stones, printing-presses, type, paper, and the carding machine were brought by the first bands of emigrants in 1848. <a name="fr_394"></a><a href="#fn_394"><font size="1">15</font></a></p>  
+ <p> </p>  
+ <p>    The spring saw everybody busy, and soon there were many flourishing gardens, containing a good variety of vegetables. In the early part of March ploughing commenced. The spring was mild and rain plentiful, and all expected an abundant harvest. But in the latter part of May, when the fields had put on their brightest green, there appeared a visitation in the form of vast swarms of crickets, black and baleful as the locust of the Dead Sea. <a name="fr_395"></a><a href="#fn_395"><font size="1">16</font></a> In their track</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_280"><font size="1" color="green">p. 280</font></a></p>  
+ <p>they left behind them not a blade or leaf, the appearance of the country which they traversed in countless and desolating myriads being that of a land scorched by fire. <a name="fr_396"></a><a href="#fn_396"><font size="1">17</font></a> They came in a solid phalanx, from the direction of Arsenal Hill, darkening the earth in their passage. Men, women, and children turned out en masse to combat this pest, driving them into ditches or on to piles of reeds, which they would set on fire, striving in every way, until strength was exhausted, to beat back the devouring host. But in vain they toiled, in vain they prayed; the work of destruction ceased not, and the havoc threatened to be as complete as was that which overtook the land of Egypt in the last days of Israel's bondage. "Think of their condition," says Mr Cannon—"the food they brought with them almost exhausted, their grain and other seeds all planted, they themselves 1,200 miles from a settlement or place where they could get food on the east, and 800 miles from California, and the crickets eating up every green thing, and every day destroying their sole means of subsistence for the months and winter ahead." <a name="fr_397"></a><a href="#fn_397"><font size="1">18</font></a></p>  
+ <p>    I said in vain they prayed. Not so. For when everything was most disheartening and all effort spent, behold, from over the lake appeared myriads of snow-white gulls, their origin and their purpose alike unknown to the new-comers! Was this another scourge God was sending them for their sins? Wait and see. Settling upon all the fields and every part of them, they pounced upon the crickets, seizing and swallowing them. They gorged themselves. Even after their stomachs were filled they still devoured them. On Sunday the people, full of thankfulness, left the fields to the birds, and on the morrow found on the edges of the ditches great piles of dead crickets that had been swallowed and thrown up by the</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_281"><font size="1" color="green">p. 281</font></a></p>  
+ <p>greedy gulls. Verily, the Lord had not forgotten to be gracious!</p>  
+ <p>    To escape the birds, the crickets would rush into the lake or river, and thus millions were destroyed. Toward evening the gulls took flight and disappeared beyond the lake, but each day returned at sunrise, until the scourge was past. <a name="fr_398"></a><a href="#fn_398"><font size="1">19</font></a> Later grasshoppers seem to have taken the place of crickets. They were of a kind popularly called iron-clad, and did much mischief. <a name="fr_399"></a><a href="#fn_399"><font size="1">20</font></a></p>  
+ <p>    Though the crops of this year of 1848 were thus saved from total destruction, fears were entertained that there would not be food enough for those already in the valley, and the expected arrival of large additional numbers was looked upon as a calamity. <a name="fr_400"></a><a href="#fn_400"><font size="1">21</font></a> The stock of provisions was therefore husbanded with care, many living principally on roots and</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_282"><font size="1" color="green">p. 282</font></a></p>  
+ <p>thistles, to which fare was sometimes added a little flour or milk. The wheat crop, however, turned out better than was expected, and pumpkins, melons, and corn yielded good returns. <a name="fr_401"></a><a href="#fn_401"><font size="1">22</font></a></p>  
+ <p>    On the 10th of August, however, the harvest being then gathered, a feast was held in the bowery, at which the tables were loaded with a variety of viands, vegetables, beef, and bread, butter and cheese, with cakes and pastry. Sheaves of wheat and other grain were hoisted on harvest poles; "and," says Parley, "there was prayer and thanksgiving, congratulations, songs, speeches, music, dancing, smiling faces, and merry hearts."</p>  
+ <p> </p>  
+ <p>    The rendezvous for westward-bound brethren in the spring of 1848 was the Elkhorn River, and thither at the end of May came the president, who organized the people and gave them instructions to be observed on the way. Good order was to be preserved in camp; there must be no shouting; prayers were to be attended to, and lights put out at 9 o'clock. Drivers of teams must walk beside their oxen, and not leave them without permission. Brigham was general superintendent of the emigrating companies, with Daniel H. Wells as aide-de-camp, H. S. Eldredge marshal, and Hosea Stout captain of the night-guard. Moving west early in June, on the 14th the emigrants were fired on by Indians, two being wounded. At this time also there was sickness in the camp. To secure grass and water, the emigration was separated into divisions, of which there were two principal</p>  
+ <p>
+ </p>  
+ <p><a name="page_283"><font size="1" color="green">p. 283</font></a></p>  
+ <p>ones, under Brigham Young and H. C. Kimball, with several subdivisions. <a name="fr_402"></a><a href="#fn_402"><font size="1">23</font></a></p>  
+ <p>    The first letters received at Great Salt Lake City from Brigham came twelve months after his departure from the valley, and were sent on in advance from the encampments. The excitement was great as Taylor and Green rode into the city and distributed the letters, without envelopes, tied round and round with buckskin thongs, and bearing the cheering news that a large body of brethren was on the way, and bringing plenty of food. <a name="fr_403"></a><a href="#fn_403"><font size="1">24</font></a></p>  
+ <p>    In June and July two small parties left the city to meet the immigration, and another in August. In September Brigham and the first companies arrived; and under the organization of the president and his two counsellors, Willard Richards and Heber C. Kimball, during the autumn months most of the brethren from Winter Quarters and other camps reached the valley. <a name="fr_404"></a><a href="#fn_404"><font size="1">25</font></a></p>  
+ <p>    Before the expiration of the year, there were nearly</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_284"><font size="1" color="green">p. 284</font></a></p>  
+ <p>three thousand, <a name="fr_405"></a><a href="#fn_405"><font size="1">26</font></a> and including the pioneers, the battalion men, and the companies that arrived under Parley, at least five thousand of the saints assembled in the valley.</p>  
+ <p>    Thus about one fourth of the exiles from Nauvoo were for the present beyond reach of molestation. That five thousand persons, including a very large proportion of women and children, almost without money, almost without provisions, excepting the milk of their kine and the grain which they had raised near their own camps, should, almost without the loss of a life, have accomplished this journey of more than twelve hundred miles, crossing range after range of mountains, bridging rivers, and traversing deserts, while liable at any moment to be attacked by roaming bands of savages, is one of the marvels that this century has witnessed. To those who met them on the route, the strict order of their march, their coolness and rapidity in closing ranks to repel assault, their method in posting sentries around camp and corral, suggested rather the movements of a well-organized army than the migration of a people; and in truth, few armies have been better organized or more ably led than was this army of the Lord. <a name="fr_406"></a><a href="#fn_406"><font size="1">27</font></a> To the skill of their leaders, and their own concert of purpose and action, was due their preservation. And now, at length, they had made good their escape from the land of their bondage to the promised land of their freedom, in which, though a wilderness, they rejoiced to dwell.</p>  
+ <p>    In a private letter written in September 1848, Parley writes' "How quiet, how still, how free from excitement we live! The legislation of our high council, the decision of some judge or court of</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_285"><font size="1" color="green">p. 285</font></a></p>  
+ <p>the church, a meeting, a dance, a visit, an exploring tour, the arrival of a party of trappers and traders, a Mexican caravan, a party arrived from the Pacific, <a name="fr_407"></a><a href="#fn_407"><font size="1">28</font></a> from the States, from Fort Bridger, a visit of Indians, or perhaps a mail from the distant world once or twice a year, is all that breaks the monotony of our busy and peaceful life…Here, too, we all are rich—there is no real poverty; all men have access to the soil, the pasture, the timber, the water power, and all the elements of wealth, without money or price." <a name="fr_408"></a><a href="#fn_408"><font size="1">29</font></a></p>  
+ <p>    On his arrival in the autumn, Brigham stirred up the people to the greatest activity. Fencing material being scarce, and the city lands all appropriated, it was proposed that a large field for farming purposes adjoining the city should be selected and fenced in common. By October there were 863 applications for lots, amounting to 11,005 acres.</p>  
+ <p>    A united effort was made to fence the city, which was done by enclosing each ward in one field, and requiring the owner of every lot to build his proportion of the fence. <a name="fr_409"></a><a href="#fn_409"><font size="1">30</font></a> No lots were allowed to be held for speculation, the intention, originally, being to assign them only to those who would occupy and improve them. The farming land nearest the city was surveyed in five-acre lots to accommodate the mechanics and artisans; next beyond were ten-acre lots, followed by forty and eighty acres, where farmers could build and reside. All these farms were enclosed in one Common fence, constituting what was called the 'big field,' before mentioned. <a name="fr_410"></a><a href="#fn_410"><font size="1">31</font></a></p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_286"><font size="1" color="green">p. 286</font></a></p>  
+ <p>    The streets were kept open, but were barely wide enough for travel, as the owners cultivated the space in front of their houses. At a meeting on the 24th of September, permission was granted to build on the lots immediately, all buildings to be at least twenty feet from the sidewalk; and a few days later it was voted "that a land record should be kept, and that $1.50 be paid for each lot; one dollar to the surveyor and fifty cents to the clerk for recording." A council-house was ordered to be built by tithing labor; and it was suggested that water from the Big Cottonwood be brought into the city; the toll for grinding grain was to be increased, <a name="fr_411"></a><a href="#fn_411"><font size="1">32</font></a> and a resolution was passed against the sale or use of ardent spirits. That all might be satisfied, the lots were to be distributed "by ballot, or casting lots, as Israel did in days of old." <a name="fr_412"></a><a href="#fn_412"><font size="1">33</font></a></p>  
+ <p> </p>  
+ <p>    On the 1st of October Brigham called the battalion brethren together, blessed them, and thanked them for the service they had rendered. "The plan of raising a battalion to march to California," he said, "by a call from the war department, was devised with a view to the total overthrow of this kingdom, and the destruction of every man, woman, and child." <a name="fr_413"></a><a href="#fn_413"><font size="1">34</font></a></p>  
+ <p>    Winter was now at hand, and there was sore need that the saints should bestir themselves. The president</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_287"><font size="1" color="green">p. 287</font></a></p>  
+ <p>and others of the church dignitaries worked indefatigably with their people, carrying mortar and making adobes, hauling timber and sawing it. There were but 450 log cabins within the stockade, and one thousand more well-filled wagons had arrived this season.</p>  
+ <p>    A county government was organized, and John D. Barker elected sheriff, Isaac Clark judge of probate, and Evan M. Green recorder and treasurer. <a name="fr_414"></a><a href="#fn_414"><font size="1">35</font></a> Two hunting companies in December were formed, under the leadership of John D. Lee and John Pack, for the extermination of wild beasts. There were eighty-four men in all, and their efforts were successful. <a name="fr_415"></a><a href="#fn_415"><font size="1">36</font></a> From the 1st of December until the end of February there were heavy snow-storms. On the coldest day the mercury fell below zero, <a name="fr_416"></a><a href="#fn_416"><font size="1">37</font></a> and on the warmest marked 21° of Fahrenheit. On account of the snow in the cañons it was difficult to bring in the necessary fuel. As the previous winter had been warm, the settlers were unprepared for such cold weather, and there was much suffering. <a name="fr_417"></a><a href="#fn_417"><font size="1">38</font></a></p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_380"></a><a href="hou14.htm#fr_380">275:1</a> Parley P. Pratt says: 'Here life was as sweet as the holidays, as merry as in the Christian palaces and mansions of those who had driven us to the mountains.'</p>
+ <p><a name="fn_381"></a><a href="hou14.htm#fr_381">275:2</a> 'It was a strange sight to see sometimes furrows on one side and snow on the other. In Feb. men worked out of doors in their shirt sleeves.' <i>Horne's Migrations</i>, MS., 24.</p>
+ <p><a name="fn_382"></a><a href="hou14.htm#fr_382">275:3</a> 'It was so tough that Brother Taylor suggested we must grease the saw to make it work.' <i>Horne's Migrations</i>, MS., 26.</p>
+ <p><a name="fn_383"></a><a href="hou14.htm#fr_383">276:4</a> 'We manufactured our own sugar and molasses from beets, corn-stalks, and watermelons, and made preserves for winter, which were excellent, by boiling the rinds of the melons in this molasses.' <i>Horne's Migrations</i>, MS., 30. 'I attempted to make sugar out of corn. A rude apparatus was made to squeeze the corn stalks, but the manufacture was not altogether a success. After this, beet molasses followed. The boiler I used this time I made out of some stove piping and lumber. Brother Cannon and I assisted to saw our lumber.' <i>Taylor's Reminiscences</i>, MS., 16.</p>
+ <p><a name="fn_384"></a><a href="hou14.htm#fr_384">276:5</a> Geo. Q. Cannon, in <i>Juv. Inst</i>., xix. no. 5, 68.</p>
+ <p><a name="fn_385"></a><a href="hou14.htm#fr_385">276:6</a> 'They collected the hair of the buffalo from the sage brush as they travelled, and used also the hair of cows.' <i>Horne's Migrations</i>, MS., 35. From this blankets were woven and used in exchange with the Indians. Mrs Horne remarks that 'in Nauvoo there was a man dressed throughout in a suit made from the curly hair of his dog, which was sheared annually.'</p>
+ <p><a name="fn_386"></a><a href="hou14.htm#fr_386">276:7</a> It stood on what was later known as the 6th Ward Square.</p>
+ <p><a name="fn_387"></a><a href="hou14.htm#fr_387">277:8</a> 'One night soon after our arrival I spread some strychnine about, and in the morning found fourteen white wolves dead.' <i>Lorenzo Young's Ex</i>., MS., 8.</p>
+ <p><a name="fn_388"></a><a href="hou14.htm#fr_388">278:9</a> 'One contrivance for catching them was a bucketful of water with a board sloping at each end, greased and balanced on the edge. The first eat and her progeny were invaluable. The green timber from the mountains was full of bed-bugs, another serious trouble.' <i>Horne's Migrations</i>, MS., 31.</p>
+ <p><a name="fn_389"></a><a href="hou14.htm#fr_389">278:10</a> This describes the furniture of the first house occupied in the fort by Brigham Young's family. <i>Mrs Clara Young's Pioneer Ex</i>., MS., 8.</p>
+ <p><a name="fn_390"></a><a href="hou14.htm#fr_390">278:11</a> Forty-five of the battalion brethren contributing $512 for the purpose. <i>Hist. B. Young</i>, MS., 1848, 35.</p>
+ <p><a name="fn_391"></a><a href="hou14.htm#fr_391">278:12</a> 'Charles Decker bought one of the prisoners, a girl, who was afterward brought up in President Young's family. She married an Indian chief named Kanosh.' <i>Wells’ Narr.</i>, MS., 48.</p>
+ <p><a name="fn_392"></a><a href="hou14.htm#fr_392">278:13</a> 'Some they buried, but not all. We buried thirty-six in one grave. They killed their dogs when their masters died.' <i>Nebeker's Early Justice</i>, MS., 2.</p>
+ <p><a name="fn_393"></a><a href="hou14.htm#fr_393">279:14</a> <i>Juv. Inst</i>., ix. no. 1, 9.</p>
+ <p><a name="fn_394"></a><a href="hou14.htm#fr_394">279:15</a> <i>Hist. B. Young</i>, MS.; <i>Horne's Migrations</i>, MS.; Geo. Q. Cannon, in <i>Juv. Inst</i>.; <i>Taylor's Reminiscences</i>, MS.; <i>Woodruff's Journal</i>, MS.; <i>Young's Ex</i>., MS.; <i>Wells’ Narr.</i>, MS.; <i>Richards’ Narr</i>., MS.; <i>Nebeker's Early Justice</i>, MS.; <i>Jenning's Material Progress</i>, MS., passim.</p>
+ <p><a name="fn_395"></a><a href="hou14.htm#fr_395">279:16</a> <i>Utah Early Records</i>, MS., 29-30.</p>
+ <p><a name="fn_396"></a><a href="hou14.htm#fr_396">280:17</a> <i>Autobiog. P. P. Pratt</i>, 405; <i>Smith's Rise, Progress, and Travels</i>, 17.</p>
+ <p><a name="fn_397"></a><a href="hou14.htm#fr_397">280:18</a> <i>Juv. Inst</i>., ix. no. 2, 22.</p>
+ <p><a name="fn_398"></a><a href="hou14.htm#fr_398">281:19</a> Kane says that the gulls soon grew to be as tame as poultry, and that the children called them their pigeons. They had clear, dark eyes, small feet, and large wings that arched in flight. <i>The Mormons</i>, 67. 'No one is allowed to kill a gull in Utah, and they are consequently very tame.' <i>Jenning's Material Progress</i>, MS., 7. 'I am sure that the wheat was in head, and that it averaged two or three crickets on every head, bending them down. One couldn't step without crushing under foot as many as the foot could cover.' <i>Mrs Clara Young's Experiences of a Pioneer</i>, MS., 9. 'Channels were dug and filled with water to prevent their travel, but they would throw themselves across; it was impossible to fight them back.' <i>Nebeker's Early Justice</i>, MS., 2. 'In the spring, when thousands of young trees had been started and were several inches in height, came the crickets. The wheat, too, was well in head.' <i>Horne's Migrations</i>, MS., p. 28.</p>
+ <p><a name="fn_399"></a><a href="hou14.htm#fr_399">281:20</a> Says Mr Jennings: 'They would devastate hundreds of acres, and as they would rise and fly high in the air, the air would be darkened with them. They seemed to be massed together, and to take but one direction, flying eight or ten miles perhaps, then settling upon another field…The only exterminator seems to be the sea-gulls. They gorge themselves on this rich diet; they suddenly appear in the wake of the grasshoppers, and will swallow them, throw them up, and swallow them again…Sometimes the grasshoppers come like a cloud, and apparently alighting not knowing where; on one occasion a quarter of their number perhaps dropped rate the lake, and were blown on shore by the wind, in rows of sometimes two feet deep for a distance of two miles.' <i>Material Progress</i>, MS., 6-7.</p>
+ <p><a name="fn_400"></a><a href="hou14.htm#fr_400">281:21</a> 'Word was sent back that probably no crops could be raised that year, and advising that no further emigrations should come in that season.' <i>Mrs Clara Young's Experiences of a Pioneer</i> MS., 9. John Young wished to send an express to his brother, the president, advising him not to bring any more people to the valley, as there was danger of starvation. <i>Utah Early Records</i>, MS., 30-2. Parley P. Pratt writes; 'I had a good harvest of wheat and rye without irrigation, but those who irrigated had double the quantity. Wheat harvest commenced early in July…Oats do extremely well, yielding sixty bushels for one.' <i>Hist. B. Young</i>, MS., 1848, 54.</p>
+ <p><a name="fn_401"></a><a href="hou14.htm#fr_401">282:22</a> 'Wheat harvest good. Corn crop good. The worms ate some in the ear. Price of wheat, $2 a bushel. Population, 1,800; main fence, 12 miles long. Had a surplus of bread-stuff this year.' <i>Hist. B. Young</i>, MS., Aug. 1, 1848, 52. Parley states that he and his family, in common with many others, suffered much for want of food. He had ploughed and planted, in grain and vegetables, nearly 40 acres, nearly every women and child in his family toiling in the field so far as their age and strength would permit. <i>Autobiog</i>., 405. 'One family had nothing but milk to live upon;…they would let a portion thicken, and then mix it with new milk and eat it for bread. They lived upon it for six weeks, and thrived.' Eliza Snow, in <i>Utah Notes</i>, MS., 6.</p>
+ <p><a name="fn_402"></a><a href="hou14.htm#fr_402">283:23</a> The first division consisted of 1,229 persons, with 397 wagons, 74 horses, 91 mules, 1,275 oxen, 699 cows, 184 loose cattle, 411 sheep, 141 pigs, 605 chickens, 37 eats, 82 dogs, 3 goats, 10 geese, 2 hives of bees, 8 doves, and 1 crow; the second of 662 persons, with 226 wagons, 57 horses, 25 mules, 737 oxen, 284 cows, 150 loose cattle, 243 sheep, 96 pigs, 299 chickens, 17 eats, 52 dogs, 3 hives of bees, 3 doves, 5 ducks, and 1 squirrel.</p>
+ <p><a name="fn_403"></a><a href="hou14.htm#fr_403">283:24</a> As recorded in Mrs Clara Decker Young's very valuable manuscript. She shows now the first letter received, still tied with buckskin thongs.</p>
+ <p><a name="fn_404"></a><a href="hou14.htm#fr_404">283:25</a> The first companies under Brigham arrived on Sept. 20th; Kimball's party reached the valley a few days later. At the beginning of August Lorenzo Snow, A. O. Smoot, and others, with 47 wagons and 124 yoke of oxen, were sent from Salt Lake City to assist the emigrants. On the 28th of the same month a party well supplied with wagons and cattle was sent back to Winter Quarters from the camp of the president, then on the Sweet-water. <i>Utah Early Records</i>, MS., 33. The companies under Richards reached their destination toward the end of October. <i>Richards’ Narr</i>., MS., 38. In relating the incidents of his journey, Richards states that his was the last party to leave Winter Quarters during that summer. His men were ill supplied with provisions; feed was scarce, and many of the cattle died from drinking alkali water, so that he was compelled to yoke to the wagons even his yearlings and his milch-cows. Many families, including the children, were compelled to walk the entire distance; yet not a single death occurred. <i>Id</i>., 34-5. 'The companies behind were kept well informed of the progress of those in advance…Sometimes a copy of the camp journal was written and placed in a notch in a tree,…sometimes in a post stuck in the ground; but whenever a large buffalo skull or other suitable bone was found,…some particulars were written on them.' Cannon, in <i>Juv. Inst</i>., xix. no. 3, 36.</p>
+ <p><a name="fn_405"></a><a href="hou14.htm#fr_405">284:26</a> White persons 2,393, and 24 negroes, with 792 wagons, 2,527 oxen, about 1,700 cows, 181 horses, 1,023 sheep, and other live-stock. <i>Utah Early Records</i>, MS., 41.</p>
+ <p><a name="fn_406"></a><a href="hou14.htm#fr_406">284:27</a> 'So well recognized were the results of this organization, that bands of hostile Indians have passed by comparatively small parties of Mormons to attack much larger but less compact bodies of other emigrants.' <i>Kane's The Mormons</i>, 34.</p>
+ <p><a name="fn_407"></a><a href="hou14.htm#fr_407">285:28</a> 'In July 1848, William and Nathan Hawks, Sanford Jacobs, and Richard Slater came from California with copies of Brannan's <i>Star</i> of April 1st, and tidings that the brethren at San Francisco were doing well, and that those who had settled on the San Joaquin River had vacated in favor of the mosquitoes.' <i>Hist. B. Young</i>, MS., 1848, 46.</p>
+ <p><a name="fn_408"></a><a href="hou14.htm#fr_408">285:29</a> The letter was afterward published in part in Snow's <i>Voice of Joseph</i>, 16, and portions copied into <i>Utah Early Pioneers</i>, MS., 34-5.</p>
+ <p><a name="fn_409"></a><a href="hou14.htm#fr_409">285:30</a> 'Every man is to help build a pole, ditch, or a stone fence…in proportion to the land he draws, also a canal on each side for the purpose of irrigation.' <i>Hist. B. Young</i>, MS., 1849, 55.</p>
+ <p><a name="fn_410"></a><a href="hou14.htm#fr_410">285:31</a> 'The fence will be 17 miles and 53 rods long, and 8 ft high.' <i>Hist. B. Young</i>, MS., 1848, 68-9; <i>Juv. Inst</i>., ix. no. 3, 34. It had been decided by the high council in Jan. that fencing be commenced, and that the farm lands be <a name="page_286"><font size="1" color="green">p. 286</font></a> located as near together as possible, and immediately south of the city. The line of the fence began at a steep point in the bluffs just south of the warm springs, thence straight to the north-west corner of the fort, then from the south-east corner of the fort, east of south, to some distance south of Mill Creek, thence east to the bluffs again, its entire length, including two sides of the fort, being 3,638 rods. <i>Utah Early Records</i>, MS., 20-1. The entire tract was 5,153 acres, of which 872 acres were sown with winter-wheat, the remainder being intended for spring and summer crops.</p>
+ <p><a name="fn_411"></a><a href="hou14.htm#fr_411">286:32</a> 'Chas Crismon petitions that it be increased from 1-16 to 1-10; granted.' <i>Hist. B. Young</i>, MS., 1848, 64.</p>
+ <p><a name="fn_412"></a><a href="hou14.htm#fr_412">286:33</a> 'The city plat is already allotted, and many families are at present without lots; therefore we have deemed it expedient to run off an addition to the city, commencing at the eastern line of the city and running east as far as the nature of the land will allow for building purposes. Not only is this addition necessary, but we are going to lay off a site for a city about ten miles north, and another site about ten miles to the south of our city.' <i>Hist. B. Young</i>, MS., 1848, 69.</p>
+ <p><a name="fn_413"></a><a href="hou14.htm#fr_413">286:34</a> <i>Hist. B. Young</i>, MS., 1848, 65. This was not the case. See <i>Hist. Cal</i>., vol. v. chap. xviii., this series.</p>
+ <p><a name="fn_414"></a><a href="hou14.htm#fr_414">287:35</a> 'George Coulson, Andrew H. Perkins, and David D. Yearsley, county commissioners; James Sloan, district clerk; Jacob G. Bigler, William Snow, Levi Bracken, and Jonathan C. Wright, magistrates.' <i>Hist. B. Young</i>, MS., 77.</p>
+ <p><a name="fn_415"></a><a href="hou14.htm#fr_415">287:36</a> 'The two hunting companies organized last Dec. report that they have killed 2 bears, 2 wolverenes, 2 wild-cats, 783 wolves, 409 foxes, 31 minks, 9 eagles, 530 magpies, hawks, and owls, and 1,026 ravens.' <i>Hist. B. Young</i>, MS., March 1849.</p>
+ <p><a name="fn_416"></a><a href="hou14.htm#fr_416">287:37</a> 'To 33° below freezing-point on Feb. 5th.' General Epistle of the Twelve, in <i>Frontier Guardian</i>, May 30, 1849.</p>
+ <p><a name="fn_417"></a><a href="hou14.htm#fr_417">287:38</a> 'At Fort Bridger the winter had been unusually severe, mad the traders, it was reported, had suffered almost starvation.' It was resolved that no corn should be made into whiskey, and that if any man was preparing to distil corn into whiskey or alcohol, the corn should be taken and given to the poor. <i>Hist. B. Young</i>, MS., 1849, 4.</p>
+ <p></p><hr>
+ <center>
+ <a href="hou15.htm">Next: Chapter XII. In The Valley of The Great Salt Lake. 1849.</a></center>
+ </body>

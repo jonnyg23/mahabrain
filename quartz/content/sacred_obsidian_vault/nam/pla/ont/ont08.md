@@ -1,0 +1,216 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Plains</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ont07.htm">Previous</a> 
+ <a href="ont09.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002E9HLW0/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Old North Trail</i>, by Walter McClintock, [1910], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_76"><font size="1" color="green">p. 76</font></a></p>  <h3 align="center">CHAPTER V</h3>  <h4 align="center">MAD WOLF GIVES THE BEAVER MEDICINE CEREMONIAL</h4>  
+ <p><small>Mad Wolf's summer camp on the plains.—Preparations for the ceremonial.—Maka's joke.—Mad Wolf begins the ceremonial with seven chants—The buffalo song.—Distribution of the rattles to the priests.—Mad Wolf bids me join in the ceremonial.—Prayers made by visiting Indians.—Animal songs.—Mad Wolf dances with the Sacred Pipe.—Pipe Dancing songs.—The Root Digger is brought forth.—Opening the sacred Beaver Bundle.—Dance of four women representing beavers.—Two weasel skins are taken from the Bundle.—The Head Chief gives me the Indian name <a href="errata.htm#0">A-pe-ech-eken</a> (White Weasel Moccasin).—A medicine man decorates me with the sacred paint.—Mad Wolf continues the ceremonial.—I take part in the buffalo dance.—Ceremonial closes with a feast.</small></p>  
+ <p>SIKSIKAKOAN and I returned from the mountains in good time to keep my appointment with Mad Wolf. Early in the morning of the first day of the full moon, when the leaves were falling, I rode across the plains in search of his summer camp on the South Fork of Cutbank River. When I reached a high ridge overlooking the river valley, I looked down upon a serene and beautiful landscape. In a meadow near the river was a cluster of white lodges. To the west of the encampment, like a massive wall, extending into the distant north and disappearing in the far south, was the main range of the Rocky Mountains. Over the highest summits floated light, fleecy clouds, the beautiful snow-capped peaks of Rising Wolf and Going-to-the Sun standing sharp and clear against the deep blue sky.</p>  
+ <p><a name="page_77"><font size="1" color="green">p. 77</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Far away over the plains in the east and enveloped in a bluish haze, were the Kato-yi-six (Sweet Pine Hills), <a name="fr_16"></a><a href="#fn_12"><font size="1">1</font></a> resembling distant islands in the ocean. The smoke of many fires was rising from the lodges, bearing the sweet odour of burning cottonwood. Grazing horses dotted the green hillsides, and I met Indian boys riding bare-back and racing their ponies. Groups of Indians in brightly coloured clothing were variously occupied among the irregular rows of tipis. When I rode nearer I recognised the large painted-tipi of Chief Mad Wolf in the centre of the camp.</p>  
+ <p>Clustered around Mad Wolf's were the lodges of O-mis-tai-po-kah, the head chief, Isso-ko-yi-kinni, White Grass, Ear Rings, Medicine Wolf, Bear Child, Drags-his-robe, Double Runner and Elk Chief. The sound of my approach brought forth Mad Wolf's daughter Strikes-on-both-sides. She looked very picturesque in a buckskin dress heavily beaded and a robe of soft-tanned fawn skin with beaded stripes. She wore small white shells in her ears and necklaces of elk teeth and deer bones. Her leggings and moccasins were beautifully decorated with coloured porcupine quills. She called to those within, that A-poi-a-kinni (Light Hair) had come back and laughingly said to me, "I see that you are still smiling." She took my hand and led me inside the lodge. At the back sat Mad Wolf. To his left were the priests-O-mis-tai-po-kah, the head chief, White Grass, a judge and medicine man, Isso-ko-yi-kinni, Stock-stchi, Medicine Wolf, Elk Chief, Bear Child, Ear Rings, and. Double Runner. To the right were Gives-to-the-Sun, wife of Mad Wolf, and Natokema, wife of O-mis-tai-po-kah, and other women.</p>  
+ <p>Turning to the head chief, Mad Wolf said: "Because</p>  
+ <p>
+ </p>  
+ <p><a name="page_78"><font size="1" color="green">p. 78</font></a></p>  
+ <p>you are my friend, I request that you select a suitable name for my white son." O-mis-tai-po-kah bowed his head in silence.</p>  
+ <p>Maka, near whom I sat, was an Indian of unusual appearance. He was thick-set and short in stature, with an enormous head, his heavy growth of hair resembling the mane of a lion. He was, however, full of drollery and good nature. There was something upon his mind, for frequently he looked at me, with eyes dancing with merriment, and he occasionally shook with laughter. He kept his joke to himself with difficulty, for several times he was on the point of telling, but changed his mind, when he looked at stern Mad Wolf. Finally he said to me in a. low voice, "I have a name which I will give you later." But this little episode did not escape Mad Wolf's keen ears and he turned upon him quickly, with such a piercing and reproving glance, that nothing further was heard of Maka's joke.</p>  <h4 align="center">CEREMONIAL OF THE BEAVER MEDICINE.</h4>  
+ <p>Bear Child arose and with a forked stick, covered with sacred paint, selected a live coal from the fire and placed it in front of Mad Wolf. He took dried sweet grass from a small buckskin bag and, holding it aloft to command attention, and as a signal that he was ready to begin the ceremonial, placed it upon the hot coal. When the rising smoke filled the lodge with a pleasing fragrance, Mad Wolf began with seven songs, which were chanted in unison, each song being repeated four times. The first was to Napi (Sun Power, not referring to Old Man).</p>  
+ <p>Mad Wolf led the chants with strong voice, swaying</p>  
+ <p><a name="page_79"><font size="1" color="green">p. 79</font></a></p>  
+ <p>his body to and fro and marking time with raised finger, explaining to me that the Beaver Chief made this sign when giving instruction to Akaiyan, the founder of the Beaver Medicine.</p>  
+ <p></p><div style="margin-left: 32px"><small>1. "Behold Napi comes into the lodge.<br>     He is a strong Medicine Man.<br>     He came in.<br>     I see him."</small></div>  
+ <p align="center"><a name="img_07900"></a>
+ <span align="CENTER">
+ <a href="img/07900.jpg"><img src="tn/07900.jpg" alt="MARKING TIME WITH FOREFINGER."><br><font size="-3">Click to enlarge</font></a><br>MARKING TIME WITH FOREFINGER.<br></span></p>  
+ <p></p><div style="margin-left: 32px"><small>2. "The Heavens provide us with food.<br>     The Heavens are glad to behold us."  
+ </small><p>3. "The Earth loves us.<br>     The Earth is glad to hear us sing.<br>     The Earth provides us with food."</p></div>  
+ <p>Mad Wolf ended this song with the gesture of sweeping his hands towards the ground.</p>  
+ <p></p><div style="margin-left: 32px"><small>4. Song to the "Prongs." (The prongs are sacred sticks painted red. They are forked, and are</small></div>  
+ <p><a name="page_80"><font size="1" color="green">p. 80</font></a></p>  
+ <p></p><div style="margin-left: 32px"><small>used to take hot coals from the fire in the burning of incense.)</small></div>  
+ <p>Mad Wolf, O-mis-tai-po-kah and their wives, as the principals in the ceremonial, knelt beside the Bundle, and chanted in unison, while laying their hands upon the "prongs" held in the sweet smoke. Each in turn held a prong against his shoulder, in imitation of beavers carrying sticks, while at work building their</p>  
+ <p align="center"><a name="img_08000"></a>
+ <span align="CENTER">
+ <a href="img/08000.jpg"><img src="tn/08000.jpg" alt="HOLDING THE “PRONGS” IN SWEET SMOKE."><br><font size="-3">Click to enlarge</font></a><br>HOLDING THE “PRONGS” IN SWEET SMOKE.<br></span></p>  
+ <p>lodge, and then, extending their arms together, with hands raised and parallel (the sign of the beaver lodge), they prayed together to the spirit of the beaver,</p>  
+ <p><small>"Pity us! Grant us your wisdom and cunning that we may escape all dangers. May our medicine provide us with food. May all of us be blessed."</small></p>  
+ <p>5. Two Beaver Songs.</p>  
+ <p></p><div style="margin-left: 32px"><small>"The Old Man, (Beaver Chief), is coming in.<br>  The Old Man has come in. <a name="page_81"><font size="1" color="green">p. 81</font></a><br>  He sits down beside his medicine.<br>  It is a very strong medicine."  
+ </small><p>"The Old Woman (Female Beaver) is coming in.<br>  The Old Woman has come in.<br>  She sits down and takes the medicine.<br>  It is a very strong medicine."</p></div>  
+ <p>6. Buffalo Song.</p>  
+ <p>During this chant Mad Wolf and O-mis-tai-po-kah with their wives knelt by the side of the sacred</p>  
+ <p align="center"><a name="img_08100"></a>
+ <span align="CENTER">
+ <a href="img/08100.jpg"><img src="tn/08100.jpg" alt="MAKING THE SIGN OF THE BEAVER LODGE."><br><font size="-3">Click to enlarge</font></a><br>MAKING THE SIGN OF THE BEAVER LODGE.<br></span></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Bundle and with deep reverence slowly lifted it, singing the following in unison:</p>  
+ <p></p><div style="margin-left: 32px"><small>"I take hold of the sacred Buffalo.<br>  While I am walking, I walk slowly.<br>  I stop with my medicine.<br>  The ground where my medicine rests is sacred."</small></div>  
+ <p>7. The seventh and last chant was a Buffalo song.</p>  
+ <p></p><div style="margin-left: 32px"><small>"When summer comes, He will come down from the Mountains."</small></div>  
+ <p>Mad Wolf directed his wife to bring forth the Koto-ki-a-nukko (buffalo raw hides), </p>  
+ <p><a name="page_82"><font size="1" color="green">p. 82</font></a></p>  
+ <p>and turning to me explained that, during the ceremony which would follow, the priests would beat time on these hides with the rattles, in imitation of the way the beavers drummed by striking the water with their tails. Mad Wolf first chanted and then prayed over the buffalo</p>  
+ <p align="center"><a name="img_08200"></a>
+ <span align="CENTER">
+ <a href="img/08200.jpg"><img src="tn/08200.jpg" alt="BRINGING OUT BUFFALO RAW HIDE."><br><font size="-3">Click to enlarge</font></a><br>BRINGING OUT BUFFALO RAW HIDE.<br></span></p>  
+ <p>hides with closed eyes, holding his right hand raised impressively with fingers closed and thumb pointing upwards, a sign used by the Beaver Chief. After the hides had been unrolled all chanted in unison,</p>  
+ <p></p><div style="margin-left: 32px"><small>"The Buffalo likes to live in the mountains during the autumn.<br>  He comes down from the mountains to the plains.<br>  The mountains are his medicine."</small></div>  
+ <p>During this chant, Mad Wolf, O-mis-tai-po-kah and</p>  
+ <p><a name="page_83"><font size="1" color="green">p. 83</font></a></p>  
+ <p>their wives held up their hands with the two index fingers curved towards each other (the others closed) in imitation of buffalo horns, the sign of the buffalo. The hides were spread on the ground in front of the priests during the chant:</p>  
+ <p></p><div style="margin-left: 32px"><small>"The Buffalo came down from the mountains.<br>  He lies down upon the ground."</small></div>  
+ <p>Gives-to-the-Sun handed Mad Wolf an old medicine</p>  
+ <p align="center"><a name="img_08300"></a>
+ <span align="CENTER">
+ <a href="img/08300.jpg"><img src="tn/08300.jpg" alt="MAKING BUFFALO SIGN.&lt;br&gt; (Index fingers curved in imitation of buffalo horns.)"><br><font size="-3">Click to enlarge</font></a><br>MAKING BUFFALO SIGN.<br> (Index fingers curved in imitation of buffalo horns.)<br></span></p>  
+ <p>sack containing rattles. They were made by stretching raw hide over wicker frames, in shape like gourds, enclosing pebbles and having short handles. While the two women, Gives-to-the-Sun and Natokema, knelt beside the sacred Bundle and raised it reverently, Mad Wolf took the rattles from the medicine sack. He distributed them among the Awa-wa-nukki (singers or priests) and, handing two to me, said: "You are now</p>  
+ <p><a name="page_84"><font size="1" color="green">p. 84</font></a></p>  
+ <p>my son and it is proper for you to join with us in this ceremonial." He then chanted the two Crow songs:</p>  
+ <p></p><div style="margin-left: 32px"><small>1. "I fly high in the air.<br>     My medicine (power) is very strong.<br>     The wind is my medicine."  
+ </small><p>2. "The Buffalo is my medicine.<br>     He is a very strong medicine.<br>          The trees are my medicine.<br>     When I am among them I walk around my own medicine."</p></div>  
+ <p align="center"><a name="img_08400"></a>
+ <span align="CENTER">
+ <a href="img/08400.jpg"><img src="tn/08400.jpg" alt="TAKING RATTLES FROM MEDICINE SACK."><br><font size="-3">Click to enlarge</font></a><br>TAKING RATTLES FROM MEDICINE SACK.<br></span></p>  
+ <p>The Rattle songs came next, all uniting in the song, "The rattles I hold are good." This was repeated four times. The priests then grasped the rattles and beat rhythmically upon the buffalo raw hide, singing in unison "I now take the rattles." I watched every movement Mad Wolf made and when he grasped the rattles and began beating, I did likewise and also joined vigorously</p>  
+ <p><a name="page_85"><font size="1" color="green">p. 85</font></a></p>  
+ <p>in the chant. He had been watching my movements for, at the end of the song, he said, "I like the way you swing your rattles, I feel proud of my white son."</p>  
+ <p>At this moment, a visiting chief from the Bloods raised his voice in prayer, saying,</p>  
+ <p><small>"Great Spirit in the Sun! I am praying for my people that they may be able to have food and survive the coming winter. May all</small></p>  
+ <p align="center"><a name="img_08500"></a>
+ <span align="CENTER">
+ <a href="img/08500.jpg"><img src="tn/08500.jpg" alt="MAKING THE ANTELOPE SIGN.&lt;br&gt; (Imitating with their hands the movement of antelope running.)"><br><font size="-3">Click to enlarge</font></a><br>MAKING THE ANTELOPE SIGN.<br> (Imitating with their hands the movement of antelope running.)<br></span></p>  
+ <p><small>of our children grow and have strong bodies. May they live long and be happy."</small></p>  
+ <p>During this prayer, Mad Wolf and the entire assembly reverently bowed their heads, joining in an ejaculatory assent (Amen) when he had finished.</p>  
+ <p>Mad Wolf started the Elk song, while the two women, Gives-to-the-Sun and Natokema. imitated the actions of elk rubbing their horns against trees.</p>  
+ <p>In the Moose song four men came forth imitating, with their heads, the movements of moose rubbing their horns.</p>  
+ <p><a name="page_86"><font size="1" color="green">p. 86</font></a></p>  
+ <p>For the Antelope song Mad Wolf, O-mis-tai-po-kah and their wives chanted while making the antelope sign. Holding their hands closed, one above the other, they changed positions alternately with a quick graceful movement, in imitation of antelope running.</p>  
+ <p>The songs were, at this point, interrupted by the wife of the Blood chief making a long prayer for her own tribe and for the people among whom she was visiting.</p>  
+ <p>Mad Wolf now brought forth the sacred Pipe wrapped in red flannel. Before starting, he explained to me that the ceremonial of the Pipe included two Pipe songs and three Pipe Dancing songs. They chanted the first two, while unrolling the Pipe, one while untying the strings, and one while removing the cover. Mad Wolf, while seated, led the first Pipe song, chanting the words,</p>  
+ <p></p><div style="margin-left: 32px"><small>"Our father, the Sun! It is now time you were rising.<br>  I want to dance with you."</small></div>  
+ <p>Mad Wolf then arose and, drawing his blanket around him, held the Pipe in its red cover, while the entire assembly united in chanting the first Pipe Dancing song. Mad Wolf danced, blowing his medicine whistle and circling the fire in the same direction the sun moves through the heavens. O-mis-tai-po-kah took the Pipe for the second Dancing song, and White Grass, the medicine-man, for the third, turning from right to left as he danced around the fire. While Mad Wolf unrolled the Pipe he gave the cry of the beaver and imitated the actions of a swimming beaver. O-mis-tai-po-kah arose and, blowing his medicine whistle, danced around the fire with a slow, graceful step. Taking the Pipe from Mad Wolf, he held it before him, while the priests sang and heat vigorously with their rattles.</p>  
+ <p><a name="page_87"><font size="1" color="green">p. 87</font></a></p>  
+ <p>O-mis-tai-po-kah then danced, holding the Pipe beneath his blanket and finished by returning it to Mad Wolf, who held it up towards the north, south, east and west. Finally, placing it in the sweet smoke of the incense, he bowed his head and prayed to the Great Spirit in</p>  
+ <p align="center"><a name="img_08700"></a>
+ <span align="CENTER">
+ <a href="img/08700.jpg"><img src="tn/08700.jpg" alt="“HOLDING THE PIPE IN THE SWEET SMOKE,&lt;br&gt; MAD WOLF BOWED HIS HEAD AND PRAYED&lt;br&gt; TO THE SUN.”"><br><font size="-3">Click to enlarge</font></a><br>“HOLDING THE PIPE IN THE SWEET SMOKE,<br> MAD WOLF BOWED HIS HEAD AND PRAYED<br> TO THE SUN.”<br></span></p>  
+ <p>the Sun for the recovery of the sick. The Root Digger was then taken from the Bundle with the chant,</p>  
+ <p></p><div style="margin-left: 32px"><small>"I am digging the sacred Turnip."</small></div>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> The two women Gives-to-the-Sun and Natokema placed their hands upon it and prayed, holding it in position for digging.</p>  
+ <p>The ordinary root-digger is a wooden stick, about two feet long, with a sharpened point, in common use by Indian women for digging roots. The sacred Root Digger is similar, but is painted with red paint and figures prominently in the sacred Bundles of the Sun-dance</p>  
+ <p><a name="page_88"><font size="1" color="green">p. 88</font></a></p>  
+ <p>and Beaver Medicine. The Blackfeet believe that, according to their tradition, it was originally brought to them by the Indian maiden, who was loved by Morning Star, and was taken by him to live in the home of the Sun. She was compelled by the Sun God to return to earth and her tribe, because of her disobedience to his commands, in digging up the sacred Turnip, and in gazing down at her people on the earth through the hole she had made in the sky.</p>  
+ <p>The sacred women, Gives-to-the-Sun and Natokema, seated beside the Beaver Bundle, were distinguished from the other women by the colour of their blankets, which were decorated with red paint. They had both made the vow for the Sun-dance, and were held in high honour by the Indians. To be eligible as sacred women they were required to have led perfectly pure lives before the entire tribe, and they must also be known for their kindness of heart towards everyone.</p>  
+ <p>The time had now come for the opening of the Beaver Bundle. The priests sang a lively chant called the "Song of the Buffalo Bull":</p>  
+ <p></p><div style="margin-left: 32px"><small>"The head chief is looking for something to hook that may help him."</small></div>  
+ <p>The two sacred women knelt beside the Bundle, imitating the actions of the buffalo and representing the buffalo bull, or chief, slowly approaching the Beaver Bundle. He stopped three times before reaching it. At the fourth time, the women imitated the Buffalo Chief, hooking at the Bundle with his horns. Mad Wolf chanted the Hurrying song and then the String song, as the women untied the strings and removed the outside cover, revealing a beautiful beaver skin called in their ceremonial "His Robe." The song was changed to a solemn chant led by Mad Wolf, while</p>  
+ <p><a name="page_89"><font size="1" color="green">p. 89</font></a></p>  
+ <p>the sacred women slowly unrolled the beaver skin, uncovering the many skins of the birds and animals from the plains and mountains.</p>  
+ <p>It is difficult for one of the white race to realise the deep solemnity with which the Indians opened the sacred Bundle. To them it was a moment of deepest reverence and religious feeling.</p>  
+ <p align="center"><a name="img_08900"></a>
+ <span align="CENTER">
+ <a href="img/08900.jpg"><img src="tn/08900.jpg" alt="OPENING THE BEAVER BUNDLE."><br><font size="-3">Click to enlarge</font></a><br>OPENING THE BEAVER BUNDLE.<br></span></p>  
+ <p>Mad Wolf, taking the beaver skin reverently held it up while chanting:</p>  
+ <p><small>"My medicine (Beaver) says, 'when I go out from the lodge and see an enemy, I dive down into the water where no one can harm me. '"</small></p>  
+ <p>He then moved the beaver skin in imitation of the animal's movements while swimming, and suddenly blew shrilly upon the medicine whistle, to represent the Beaver's alarm when seeing an enemy and diving out of sight. Mad Wolf and the priests joined in a Beaver song accompanied by the beating of rattles. The sacred</p>  
+ <p><a name="page_90"><font size="1" color="green">p. 90</font></a></p>  
+ <p>women knelt by the side of the Bundle, making mysterious motions with their hands, in imitation of the Beaver swimming and working and building his lodge, gracefully swaying their bodies in time with the rhythmical beating. Each in turn took the Beaver</p>  
+ <p align="center"><a name="img_09000"></a>
+ <span align="CENTER">
+ <a href="img/09000.jpg"><img src="tn/09000.jpg" alt="WOMEN PRAYING WHILE HOLDING ROOT DIGGER."><br><font size="-3">Click to enlarge</font></a><br>WOMEN PRAYING WHILE HOLDING ROOT DIGGER.<br></span></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Skin and with bowed head reverently held it to her breast, praying to the spirit of the Beaver:</p>  
+ <p><small>"I take you, my child, in order that my children and relatives may be free from sickness."</small></p>  
+ <p>Two women arose and knelt with Gives-to-the-Sun and Natokema in front of the Medicine Bundle. The four women together imitated a beaver's movements. They covered their heads with blankets to represent the beaver hidden in his lodge, all the time moving their bodies in time with the chanting of the</p>  
+ <p><a name="page_91"><font size="1" color="green">p. 91</font></a></p>  
+ <p>priests and the rhythmical beating. Then they came forth to work on their beaver-dams, the women representing beavers rising to the surface by uncovering their heads, and holding sticks in their mouths like beavers carrying branches, imitating also the swimming motions with their hands. Suddenly the beavers dived under the water, and at this point Mad Wolf slowly lifted the sacred Beaver Skin, while the four dancers</p>  
+ <p align="center"><a name="img_09100"></a>
+ <span align="CENTER">
+ <a href="img/09100.jpg"><img src="tn/09100.jpg" alt="WOMEN PRAYING WHILE HOLDING BEAVER SKIN."><br><font size="-3">Click to enlarge</font></a><br>WOMEN PRAYING WHILE HOLDING BEAVER SKIN.<br></span></p>  
+ <p>continued their mysterious and symbolic movements. Then the dancers imitated the beavers coming to the surface and swimming across the river. They went out for a dance upon the shore, sitting upright, wiping their faces with their hands, and looking carefully in all directions after the manner of beavers guarding against danger. The four women arose and stood in single file, with Gives-to-the-Sun at the head of the line as the wife of the Beaver Chief. They danced around the fire with their hands crossed upon their breasts, turning to</p>  
+ <p><a name="page_92"><font size="1" color="green">p. 92</font></a></p>  
+ <p>and fro and swaying their bodies in time with the chanting of the priests. Mad Wolf handed the Beaver Skin to Gives-to-the-Sun. The singing and drumming became louder as the women circled the fire, imitating the call of the beaver. Gives-to-the-Sun held the Beaver Skin beneath her robe making it appear to swim around her waist and then around her neck. After dancing once around the fire, she handed the Beaver Skin to the woman next in line, saying:</p>  
+ <p></p><div style="margin-left: 32px"><small>"I do not give you away, my child (the beaver), because I am tired of you, but because the son of this woman is sick and she prays that he might be restored to health."</small></div>  
+ <p>The woman, receiving the sacred skin, was careful not to let it fall, lest it bring misfortune, and prayed,</p>  
+ <p></p><div style="margin-left: 32px"><small>"I take you, my child (the beaver) that my husband and children might be free from sickness and that they may live to be old."</small></div>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> She danced once around the fire with the skin across her shoulders. This part was continued, until each one of the four women had taken the Beaver Skin in turn.</p>  
+ <p>Gives-to-the-Sun and Natokema held up two snow-white winter skins of the weasel. They prayed to the spirit of this animal for its skill in hunting, and providing food. The priests chanted the Weasel song, while Mad Wolf, taking one of the skins, held it to his breast, praying for a blessing and then, rising, danced around the fire, blowing at intervals upon his medicine whistle to represent the weasel's cry and imitating its movements when hunting for food. O-mis-tai-po-kah, the head chief, with a gesture of authority, held the snow white skin aloft, so that all within the lodge could see. There was a deep silence as he looked fixedly at me, saying impressively,</p>  
+ <p><a name="page_93"><font size="1" color="green">p. 93</font></a></p>  
+ <p><small>"This is the skin of the A-pe-ech-eken (White Weasel Moccasin), one of the animals belonging to the Beaver Bundle. After this sacred animal we now name you. We think you resemble this animal because your hair is light and your eyes are blue. We pray that this name may bring to you long life and good fortune."</small></p>  
+ <p>Mad Wolf, having expressed his approval of the name, moved to the left, White Grass, the medicine man, taking the leader's seat. The face of White Grass was painted a dark red. Upon the centre of his forehead</p>  
+ <p align="center"><a name="img_09300"></a>
+ <span align="CENTER">
+ <a href="img/09300.jpg"><img src="tn/09300.jpg" alt="WOMEN PRAYING WHILE HOLDING TWO WHITE-WEASEL SKINS."><br><font size="-3">Click to enlarge</font></a><br>WOMEN PRAYING WHILE HOLDING TWO WHITE-WEASEL SKINS.<br></span></p>  
+ <p>a black spot represented a thunderbolt, from which extended on both sides yellow zig-zags of lightning. He prayed:</p>  
+ <p></p><div style="margin-left: 32px"><small>"Great Spirit, bless us all, men, women, and children.<br>  Sacred Medicine Bundle, help us to live a straight life.<br>  Sacred Medicine Pipe, bless us, also the rivers, mountains, prairies, animals, and birds.<br>  Mother Earth, provide for us until we die."</small></div>  
+ <p>After the prayer, White Grass brought forth the sacred red paint, which he kneaded with his hands, his</p>  
+ <p><a name="page_94"><font size="1" color="green">p. 94</font></a></p>  
+ <p>body meanwhile swaying to and fro. First he painted Mad Wolf and then O-mis-tai-po-kah; in like manner the priests, Isso-ko-yi-kinni, Stock-stchi, Bear Child and Ear Rings. I was seated next to Ear Rings and when my turn came, Mad Wolf said, "Here comes my white son." White Grass then signed to me to approach. Going before him, I knelt while he placed the sacred</p>  
+ <p align="center"><a name="img_09400"></a>
+ <span align="CENTER">
+ <a href="img/09400.jpg"><img src="tn/09400.jpg" alt="PREPARING THE SACRED RED PAINT."><br><font size="-3">Click to enlarge</font></a><br>PREPARING THE SACRED RED PAINT.<br></span></p>  
+ <p>paint upon my forehead, chin and hands, the places where the beaver rubs himself with his paws. A beaver song was started by Mad Wolf and O-mis-tai-po-kah, in which all joined, accompanied by the beating of rattles.</p>  
+ <p>After the song, White Grass, addressing me, said impressively,</p>  
+ <p><small>"This lodge is a sacred place, and the ceremonial, in which we</small></p>  
+ <p><a name="page_95"><font size="1" color="green">p. 95</font></a></p>  
+ <p><small>have painted you, is also sacred. We pray that you may never be sick."</small></p>  
+ <p>White Grass then pointed along the ground towards my seat, a sign that he had finished. Bear Child arose and taking the prongs, picked out a live coal from the embers and laid it in front of O-mis-tai-po-kah, the head chief. Placing dried sweet grass upon the coal and holding both hands in the rising smoke, he prayed:—</p>  
+ <p><small>"My father, Great Sun Chief, who gives us light, look down in favour upon this young man whom we have taken into our tribe. Grant that his relatives and all his friends may have a good life. Protect him day and night from all harm, that he may live long, and return many summers to visit his Indian brothers."</small></p>  
+ <p>The formal act of naming his white son and making him a member of the tribe having been completed, Mad Wolf returned to his seat beside the sacred Bundle to continue the ceremonial.</p>  
+ <p>It required a wonderful feat of memory to conduct accurately the Beaver ceremonial, with its great number of songs, prayers, and dances, continuing from early morning until after sunset. Every song, prayer and dance must be performed correctly. If any mistakes are made, it is believed that misfortune will surely follow. One instance of the care taken to perform accurately every detail of the ceremonial occurred in the "Dance of the Lynx." Mad Wolf brought from the Bundle the decorated tail of a lynx. It was handed to O-mis-tai-po-kah, who held it aloft while all sang, accompanied by the beating of rattles. Gives-to-the Sun stood a stick, painted red, upon the ground to represent a tree. Natokema took the tail and imitated the movements of a lynx hunting squirrels. First, it walked around and then sat down, looking up at the tree. Several times it ran towards the tree, as if in</p>  
+ <p><a name="page_96"><font size="1" color="green">p. 96</font></a></p>  
+ <p>pursuit of a squirrel, but each time it returned and sat down. Finally, it made a quick dash for the tree, when Natokema carried the tail rapidly up one side and down the other. At this point, O-mis-tai-po-kah raised his hand and stopped the service. The medicine women were astonished. Everyone in the lodge was silent. The chief announced that the ceremonial had not been conducted correctly. The rhythmic drumming and singing began again, as the old chief took the tail. He represented the lynx as making several feints, and then ran suddenly to the tree, just as the women had done. But O-mis-tai-po-kah made it climb more slowly and held it for some time on top, where it had a dance, keeping time with the singing. He then brought it slowly down the other side, clambering little by little as a lynx would do, pausing frequently to look around and listen, making sure that all was well. It finally reached the ground, and, scampering away, was returned to the medicine bundle.</p>  
+ <p>Mad Wolf brought forth two badger skins, taking them out backwards like badgers emerging from their holes. He then imitated the timid actions of the badger, which is naturally a great coward. He moved the skins this way and that, like a badger trying to get away. Suddenly he turned the skins around as if the badger was about to attack but instead it became frightened and ran back into its hole.</p>  
+ <p>During the song of the Wild Goose, Mad Wolf stopped for an instant and, bowing his head, closed his eyes. The entire assembly waited "in complete silence. Suddenly Mad Wolf looked directly at me, saying, "There is my son, A-pe-ech-eken. I must ask him to continue the ceremony in my place." This was intended as a humorous diversion. The Indians enjoyed the unusual</p>  
+ <p><a name="page_97"><font size="1" color="green">p. 97</font></a></p>  
+ <p>occurrence. The silence was thus relieved, and Mad Wolf soon continued the service.</p>  
+ <p>The head of a mallard duck was next taken out. Mad Wolf started a chant, in which both men and women joined, accompanied by the rattles. Elk Chief arose and drawing his blanket around him, circled around the lodge, imitating the movements of a duck. From across the lodge Soft Woman arose. Both danced towards each other until they met and together circled the fire, their movements representing the swimming and flying of a duck. Soft Woman held up her right hand, swaying her body from one side to the other, while Elk Chief spread out both his arms with hands extended in imitation of a duck flying. This dance was very interesting because of the graceful movements and steps of the two performers.</p>  
+ <p>A woman entered the lodge. Her dishevelled hair hid her face and her blanket was closely drawn around her. She looked pale and emaciated, from fasting and her arms were bleeding, having been slashed with a knife. One of her children had died and she was in mourning. She was indeed a sad and forlorn-looking creature. She remained standing before the assembled company until Mad Wolf took a handful of sage and purified her, praying, that she might begin a new and happier life. She then withdrew as silently as she had come.</p>  
+ <p>Four Otter songs were sung and then the Mink song. After these were the following Women songs, Prairie Dog, Lizard, Sitting and Tobacco. It was now time to fill the sacred Pipe. Mad Wolf held the pipe bowl close to the tobacco. He slowly picked up the stone used as a stopper and placed it in the bowl, leading a chant in which all joined:</p>  
+ <p></p><div style="margin-left: 32px"><small>"The Sun beholds the smoke grow larger and larger."</small></div>  
+ <p><a name="page_98"><font size="1" color="green">p. 98</font></a></p>  
+ <p>Picking up the pipe and tobacco he said,</p>  
+ <p></p><div style="margin-left: 32px"><small>"The heavens provide us with seeds of the tobacco."</small></div>  
+ <p>Holding the tobacco up, he chanted,</p>  
+ <p></p><div style="margin-left: 32px"><small>"I drop the seeds as I go along."</small></div>  
+ <p>He filled the pipe and prayed,</p>  
+ <p></p><div style="margin-left: 32px"><small>"The place where I sit is sacred."</small></div>  
+ <p>Then, holding up the pipe with the bowl pointed towards himself, he chanted:</p>  
+ <p></p><div style="margin-left: 32px"><small>"Sacred Person! behold I am still alive.<br>  I ask the spirit of the wild geese to smoke with me,<br>  The first that came into this country."  
+ </small><p>"I know of no medicine so strong as my smoke."</p></div>  
+ <p>While going through this ceremonial with the pipe, the bowl became loose and fearing that it might fall, which would be an ill omen, Mad Wolf removed it. He held up the stem and placing his right hand upon his breast gazed intently at the sun and chanted:</p>  
+ <p><small>"Sacred Spirit in the Sun, it has been a long time since you have smoked with me."</small></p>  
+ <p>He arose and danced, holding up the sacred Pipe and blowing upon his medicine whistle. Stock-stchi followed and the women also joined, all dancing in single file around the fire, following the direction of the sun's course through the heavens. After the dance was finished Mad Wolf remarked that his Pipe was very old, having been handed down through many generations.</p>  
+ <p>When he came to the skin of the red headed woodpecker, Mad Wolf said it had three songs. In the beginning, when the birds gave their songs to the Beaver Medicine, the woodpecker offered three. Mad Wolf chanted the songs, holding the skin of the woodpecker in his right hand and beating time with the</p>  
+ <p><a name="page_99"><font size="1" color="green">p. 99</font></a></p>  
+ <p>rattles with his left. In closing, he held both the skin and rattles over his head and gave the call of the woodpecker.</p>  
+ <p>For the Buffalo dance, Gives-to-the-Sun and Natokema arose, wearing head dresses having horns, in imitation of buffalo cows. Mad Wolf handed to Gives-to-the-Sun a string of buffalo horns which had been added to the Beaver Bundle as the symbol of the buffalo by the chief, who secured the Buffalo Tipi from the Sacred Buffalo Bull. The Indians found both interest and amusement in this dance, because it represented the mating of buffalo by women choosing their men. Gives-to-the-Sun and Natokema knelt before the Beaver Bundle with heads lowered, making motions of hooking the ground in imitation of buffalo cows digging wallows in the autumn. They pawed the ground and bellowed, simulating buffalo throwing dirt and catching it upon their backs, then shaking themselves and making the dust rise into the air.</p>  
+ <p>Gives-to-the-Sun and Natokema then danced, imitating the capers of mating buffaloes. They stood before their mates pawing the ground and hooking at them with their horns. Mad Wolf and O-mis-tai-po-kah then joined in the dance. The men followed the women around the fire like buffalo bulls following cows. They danced in pairs until Gives-to-the-Sun threw the hoofs to Snake Woman. All then sat down and, amid laughter, Snake Woman danced in front of Medicine Wolf, her relative. When Medicine Wolf arose and joined her, she threw the hoofs to Strikes-on-both-sides, who came gracefully across the lodge and danced before me. While my Indian sister stood there, dancing with quick, short steps and swaying her body in time with the singing and the beating of rattles, I</p>  
+ <p><a name="page_100"><font size="1" color="green">p. 100</font></a></p>  
+ <p>heard them calling, "Get up! A-pe-ech-eken you are a chief now and should enter the dance." Grasping the string of buffalo hoofs lying before me I danced, following Strikes-on-both-sides around the fire, swaying my body, turning, holding my feet together and bending at the knees. I heard many shrill war cries from both men and women and exclamations of "Good boy, A-pe-ech-eken!" I stopped at intervals to mimic the call of the buffalo and to imitate its movements, digging wallows, kicking, hooking, pawing the ground and throwing dust. When Strikes-on-both-sides brought our dance to a close I completed the circle and throwing the hoofs to Bear Child's wife, sat down.</p>  
+ <p>Last of all came the Dog dance. Its lively air and fast time made it the most popular of the Beaver Medicine dances. It is a woman's dance, in which all the women within the lodge are expected to join, the men urging them on, singing their loudest and beating time with the rattles. The women entered into the Dog dance with spirit and dash, laughing merrily and joking with each other.</p>  
+ <p>The wife of Stock-stchi, who was not dancing, sat with her little daughter of about twelve years, both intently watching. The dance was just at its height and the little girl's eyes were sparkling with excitement, when her mother, snatching off her own blanket, threw it over the shoulders of the little girl and pushed her into the circle. She looked very pretty with her shining black hair falling over her shoulders, in striking contrast with the brilliant scarlet of her squaw dress, which was beautifully fringed and decorated with beads. Her leggings were also beaded, and around her waist was a miniature squaw belt, closely studded with shining brass-headed tacks. At first she was abashed and</p>  
+ <p><a name="page_101"><font size="1" color="green">p. 101</font></a></p>  
+ <p>cast her eyes demurely downward, but soon forgot herself and entered into the dance with animation, her lithe body swaying to and fro, and her small moccasined feet keeping perfect time to the beating of the rattles. As the singers gradually quickened the time, the steps of the dancers grew faster and faster, until they were tired out and ceased, saying they could</p>  
+ <p align="center"><a name="img_10100"></a>
+ <span align="CENTER">
+ <a href="img/10100.jpg"><img src="tn/10100.jpg" alt="“AFTER THE CEREMONIAL ALL PARTOOK OF A FEAST.”"><br><font size="-3">Click to enlarge</font></a><br>“AFTER THE CEREMONIAL ALL PARTOOK OF A FEAST.”<br></span></p>  
+ <p>dance no longer. When the dance was at its height, I noticed two old white-haired women having a dance of their own outside the lodge. They were in mourning and so could not enter the main dance, but they could not resist the call of the lively Dog dance. They were surrounded by a circle of young people, who were urging them on and seemed more interested in their performance than in the main dance.</p>  
+ <p>The sun had already set and the Indians began</p>  
+ <p><a name="page_102"><font size="1" color="green">p. 102</font></a></p>  
+ <p>preparations for returning to their lodges, bringing in the horses, changing their beautifully decorated clothes and beaded dance moccasins for those of everyday use. But, before they separated, all partook of a feast of sarvis berry stew. It had a delicate, sweet flavour and was a very popular dish. The men were always served first. I noticed, however, that but few of them ate their share. Many children were brought to the ceremonials and the food generally ran short. There was a custom that any man, feeling generously inclined, would call out the name of a woman. His plate with the remaining food was passed to her. If she had children she always shared it with them. Amid a general calling of names by the men and changing of plates, I requested that mine be passed to Morning Plume's wife, who had many mouths to feed. It was eagerly seized, divided into several portions and rapidly disappeared.</p>  
+ <p>While the rest were feasting, I saw Awunna, a kindhearted old priest and doctor, gathering together a supply of food. Before tasting anything himself, he carried it to his wife, E-kit-o-waki, one of the old women who had been dancing outside the lodge. They were an interesting couple. He always seemed thoughtful of others and in a good humour, while E-kit-o-waki, his wife, was still full of fun and life. Before the ceremonial began I saw Awunna draw her to one side and gently placing his hands upon her, uttered a prayer giving her his blessing. This was because she was about to enter Bear Child's lodge to doctor a sick child.</p>  
+ <p>With the end of the service and the closing day, the Indians separated and the entire camp subsided into quietness, broken occasionally by a crying child in one of the lodges, or the dismal howling of distant prairie wolves and the answering yelps of the Indian dogs.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_12"></a><a href="ont08.htm#fr_16">77:1</a> Called Sweet Grass Hills by the Whites.</p>
+ <p></p><hr>
+ <center>
+ <a href="ont09.htm">Next: Chapter VI. Legend of the Beaver Medicine</a></center>
+ </body>

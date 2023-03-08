@@ -1,0 +1,23 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Hinduism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="psa68.htm">Previous</a> 
+ <a href="psa70.htm">Next</a> 
+ </center>
+ <hr>
+   
+ <p><a name="page_341"><font size="1" color="GREEN">p. 341</font></a></p>  <h3 align="center">CHAPTER LXVIII.</h3>  
+ <p>SHREE SHOOKDEO JEE said,--O great king! I will now relate how Bulram, the abode of happiness, the receptacle of beauty, killed the monkey, Doobid, listen with attention. One day Doobid, who was the minister of Soogreet, and brother of the monkey Mindree, and the friend of Bhomasoor began to say, "There is a thorn in my mind, which always pains me." On hearing this, some one enquired, "What is it?" He replied, "I will kill him, who has destroyed my friend Bhomasoor, in order that the grief of my mind may depart."</p>  
+ <p>O great king! having thus spoken, he went, on one occasion, in great wrath, to the city of Dwarka, laying waste the country of Shree Krishnù. Chund, and harassing the people. He set some afloat by pouring down rain, he sent down flames and burnt others, some he knocked down with a hill, he dashed hills upon others, some he drowned in the sea, he bound others, and hid them in caves, he ripped open the bellies of some, some he killed with uprooted trees. He thus constantly vexed the people; and wherever he found sages, holy men and gods sitting, he poured down upon them dung, urine and blood, thus afflicting and oppressing the people, he went at length to the city of Dwarka; and assuming a very small form, sat on the palace of Shree Krishnù. Chund. On seeing</p>  
+ <p><a name="page_342"><font size="1" color="GREEN">p. 342</font></a></p>  
+ <p>him, Krishnù's wives, shutting all the inner doors, ran off and hid themselves; he, then having obtained intelligence of Bulram, ascended the hill Kewut, thinking to himself, "I will first kill Bulram, and afterwards destroy Krishnù's life." At the place, where Buldeo Jee was diverting himself with his wives, Doobid, O great king! who was concealed, saw that Bulram had been drinking, and that he had taken all his wives with him into the middle of a tank, and was engaged in various sports with them, and singing and bathing. On witnessing this scene Doobid climbed up a tree and chattering, and uttering angry cries, began to leap and jump about the branches, and play all kinds of tricks; and defile a water-pot, filled with spirituous liquor, and the clothes of all of them which were lying about. On seeing the monkey the women were frightened, and exclaimed, "O great king! whence has this monkey come, who has frightened us, and defiled all our dresses?" When Buldeo heard this speech, he came out of the tank, and laughingly threw a clod of earth at the monkey, who supposing him to be intoxicated, came down from the tree, chattering and enraged; he first upset the contents of the large earthen vessel, filled with spirituous liquor, which was placed on the bank of the tank, and tore all the clothes into strips. Bulram Jee was then angry, and poised in his hand his plough and pestle, and the monkey becoming as large as a hill, came in front of Bulram, prepared to fight. Buldeo brought into play his plough and pestle, and the monkey hurled trees and hills. They both closed and had a fierce encounter, and neither moved back at all from his position.</p>  
+ <p>O great king! these two mighty beings were contending resolutely with each other, and practising all kinds of feints and stratagems; but the spectators were ready to die of fright; at length Bulram perceiving that they were all distressed, threw down and killed Doobid. Gods, men and sages were all rejoiced at his death, and their griefs were dispelled; the delighted gods rained flowers and raised shouts of victory for Bulram.</p>  
+ <p><a name="page_343"><font size="1" color="GREEN">p. 343</font></a></p>  
+ <p>Having recited thus much of the history, Shree Shookdeo Jee said,--O great king! that monkey had existed since the Treta age, which Buldeo Jee killed and released from existence. Bulram, the abode of happiness, having gratified them all, brought them with him thence to the city of Dwarka, and related all the circumstances of the destruction of Doobid to the descendants of Judoo.</p>  
+ <p></p><hr>
+ <center>
+ <a href="psa70.htm">Next: Chapter LXIX</a></center>
+ </body>

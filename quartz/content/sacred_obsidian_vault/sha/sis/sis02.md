@@ -1,0 +1,43 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Shamanism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sis01.htm">Previous</a> 
+ <a href="sis03.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002FL4VJ8/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Shamanism in Siberia</i>, by M.A. Czaplicka, [1914], at sacred-texts.com</font></p><hr> <h1 align="CENTER">CHAPTER VIII</h1> <h3 align="CENTER">THE SHAMAN</h3> 
+ <p>As among all primitive religions, the róle of the priest, as the repository of religious beliefs and traditions, is of the greatest importance; therefore we shall first proceed to the study of the shaman himself.</p> 
+ <p>The organization of the shamanhood varies slightly in different tribes. In some cases this office is hereditary, but everywhere the supernatural gift is a necessary qualification for becoming a shaman. As we should expect from the generally higher culture of the Neo-Siberians, their shamanhood is more highly organized than that of the Palaeo-Siberians. The family shamans predominate among the Palaeo-Siberians, and the professional shamans among the Neo-Siberians, though Bogoras says: 'In modern times the importance of family shamanism is losing ground among all the tribes named, with the exception of the Chukchee, and there is a tendency to its being replaced on all occasions by individual shamanism.' These individual or professional shamans are called among the Chukchee 'those with spirit' (<i>enenilit</i>), from <i>enen</i>, 'shamanistic spirit'.[1]</p> 
+ <p>Although hysteria (called by some writers 'Arctic hysteria') lies at the bottom of the shaman's vocation, yet at the same time the shaman differs from an ordinary patient suffering from this illness in possessing an extremely great power of mastering himself in the periods between the actual fits, which occur during the ceremonies. 'A good shaman ought to possess many unusual qualities,[2] but the chief is the power, acquired by tact and knowledge,</p> 
+ <p>[1. Bogoras, op. cit., p. 414.</p> 
+ <p>2. In the district of Kolyma, Sieroszewski used to meet a young but very skilful shaman, who could do most of the difficult shamanist tricks: he swallowed a stick, ate red-hot coals and pieces of glass, spat coins out of his mouth, was able to be in different places at the same time-and in spite of all this he was not considered a first-class shaman; whereas an inspired old woman-shaman, who could not perform all these tricks, was held in great esteem and fame. (Op. cit., p. 631.)]</p> 
+ <p>to influence the people round him.'[1] His reserved attitude has undoubtedly a great influence on the people among whom he lives. He must know how and when to have his fit of inspiration, which sometimes rises to frenzy, and also how to preserve his high 'tabooed' attitude in his daily life.'</p> 
+ <p>In speaking of the shaman's vocation, we do not include the family shaman of the Koryak, Asiatic Eskimo, Chukchee, and Yukaghir, whose position and capacity are rather vague, as we see from the following description of his duties: 'Each family has one or more drums of its own, on which its members are bound to perform at specific periods: that is, to accompany the beating of the drum with the singing of various melodies. Almost always on these occasions one member at least of the family tries to communicate with "spirits" after the manner of shamans.'[3] Sometimes he even tries to foretell the future, but he receives no attention from his audience. This is done in the outer room and in daylight, whereas the 'shaman's', or professional shaman's, actions are performed in the inner room and at night.</p> 
+ <p>'Besides this, every adult Chukchee will occasionally take his drum, especially in the winter, and beat it for awhile in the warm shelter of the sleeping-room, with the light or without it, singing his melodies to the rhythm of the beats.'[4]</p> 
+ <p>We see from the above that one member of the family has the duty of beating the drum during certain ceremonials, and amuses himself sometimes by shamanizing just as he amuses himself by beating the drum at any time, apart from ceremonials. Of course, we cannot call this member of the family a shaman, but a master of the ceremonies, &amp;c., who imitates the shaman; we can call shamans only those individuals having special skill and vocation, whether or not they are shamans by heredity.</p> 
+ <p>However, the same Koryak, Asiatic Eskimo, Chukchee, Yukaghir, &amp;c.-practically all the Palaeo-Siberians-possess the professional shaman, sometimes in decadence,[5] but still there is no</p> 
+ <p>[1. Sieroszewski, 12 <i>Lat w Kruju Yakutów</i>, 1902, p. 630.</p> 
+ <p>2. He must also have good manners, as we see from the following:</p> 
+ <p>'The shaman Yetilin had an incessant nervous twitching in his face, [and] the Chukchee said laughingly, that he was probably "with an owl <i>kele</i>" (spirit), comparing his affliction to the jerking motion of the owl's head when it devours its prey.' (Bogoras, <i>The Chukchee</i>, p. 428.)</p> 
+ <p>3. Bogoras, op. cit.,p. 413.</p> 
+ <p>4 Ibid.</p> 
+ <p>5. During the stay of Jochelson among the Koryak (1900-1) he had the opportunity of seeing only two shamans. Both were young men, and neither enjoyed special respect on the part of his relations. (Joebelson, <i>The Koryak</i>, p. 49.)]</p> 
+ <p>doubt of his existence. Krasheninnikoff[1] who travelled through the land of the Kamchadal in the middle of the eighteenth century, says that 'among the Kamchadal there is only one great annual ceremony, in November, and the chief róles at this ceremony belonged to old men'.</p> 
+ <p>The same author says: 'Among the Kamchadal there are no special shamans, as among other nations, but every old woman and<i> koekchuch </i>(probably women in men's clothes) is a witch, and explains dreams.' [2]</p> 
+ <p>From this meagre information we can scarcely decide whether among the Kamchadal of the time of Krasheninnikoff there was or not a family shaman, because as the old men played the róle not at ceremonials in separate families, but at communal ceremonies, we must rather call them communal shamans. But there was some form of professional shamanism, though not specialized, since every old woman could shamanize. On the other hand, the following quotation shows that there were certain qualifications necessary for the shaman:</p> 
+ <p>'The female sex is nicer [3] and probably cleverer, therefore there are more women and <i>koekchuch</i> among the shamans than there are men.'[4]</p> 
+ <p>Thus Krasheninnikoff. Jochelson says: 'Both Steller and Krasheninnikoff assert that the Kamchadal had no professional shamans, but that every one could exercise that art, especially women and Koekehuch; that there was no special shaman garb; that they used no drum, but simply pronounced incantations and practised divination (Krasheninnikoff, iii. p. 114; Steller, p. 277), which description appears more like the family shamanism of the present day. It is impossible that the Kamchadal should form an exception among the rest of the Asiatic and American tribes in having had no professional shamans.'</p> 
+ <p>In support of Jochelson's opinion just quoted, it may be said that, in spite of Krasheninnikoff's statement to the contrary, professional shamanism does seem to have existed, at least in germ, among the Kamchadal, alongside of the communal shamanism</p> 
+ <p>[1. Krasheninnikoff, <i>Description of the Country of Kamchatka</i>, ed. 1775, p.85.</p> 
+ <p>2. Op. cit., p. 81.</p> 
+ <p>3. This epithet is somewhat vague, but for this I am not responsible, as original has a similar vague expression.</p> 
+ <p>4. Krasheninnikoff, p. 15, quot. Troshchanski.</p> 
+ <p>5. Jochelson, The Koryak, p. 48.]</p> 
+ <p>which was in the hands of the old men. This appears clear from Krasheninnikoff's own words quoted above. That those who could shamanize most effectually were women, 'nice and clever', points to the fact that some sort of standard was already set up for those who aspired to be special practitioners of this extra-communal shamanism, and that women most nearly approached this ideal.</p> 
+ <p></p><hr>
+ <center>
+ <a href="sis03.htm">Next: A. The Shaman's Vocation</a></center>
+ </body>

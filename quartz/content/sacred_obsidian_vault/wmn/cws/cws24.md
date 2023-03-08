@@ -1,0 +1,35 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Women</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cws23.htm">Previous</a> 
+ <a href="cws25.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h3 align="CENTER">No. XX</h3>
+ <h4 align="CENTER">CONCERNING THE GREAT PYRAMID, AND THE INITIATIONS THEREIN <a name="fr_95"></a><a href="#fn_95"><font size="1">1</font></a></h4>
+ <p>SEE the Great Pyramid, and can tell you all about it. My genius informs me that the number of the pyramids in Egypt corresponds to the number of the mysteries of the Gods. No one has yet rightly found out the purpose of the great one. It was built simply in order to serve in initiations. I see a candidate and seven or eight hierophants going in procession with torches through the passages. Each passage represents a mystery, the chief one leading to the "king's chamber." This represents the greater mysteries. The "queen's chamber" represents the lesser mysteries. The coffer in the king's chamber is a measure representing the standard of the perfect Humanity. And in this the candidate was laid on his final initiation.</p>
+ <p>It appears to me that I was once there myself. My sensations about it are like a memory. It was not built to be a prophecy, but it may serve as a prophecy. In it is symbolised all the Wanderings in the Desert,--the history, that is, of the soul in the wilderness of the body. In representing the soul of the individual, it represents the soul also of the race, and thus is really a prophecy.</p>
+ <p>The new birth takes place in the king's chamber. It is the last stage. A person may be initiated several times in various incarnations; but he is regenerated once for all. The "baptism" took place in the queen's chamber. It belonged to the lesser mysteries. It is neither initiation nor regeneration, but purification. There are four stages to be passed before final initiation. They correspond to the four elements, earth, fire, water, and air; and they relate respectively to the four corresponding divisions of man's nature,--the body, the phantom or perisoul, the soul, and the spirit, which are the four rivers of Eden. And the candidate has to be tested and proved in each of them by the tempter."</p>
+ <p>The initiate was accompanied by his sponsor or "mother," a priestess or Sibyl. The central secret of the Mysteries was</p>
+ <p>
+ </p>
+ <p><a name="page_56"><font size="1" color="GREEN">p. 56</font></a></p>
+ <p>the tree of life in the midst of the garden; Immortality, the secret of Transmutation, or of changing "water" (substance) into "wine" (spirit). This, "Issa"--the son of Isis--or Jesus, is alone able to do. O incomprehensible secret, who shall understand thee! A soul, as has already been said, may be initiated more than once, in several lives, but only once regenerated. For she-the soul-can only once be born of the spirit, or "wisdom." To be regenerate is to be born into spiritual life, and to have united the individual will with the Divine Will.</p>
+ <p>This union of the two wills constitutes the spiritual marriage, the accomplishment of which is in the Gospels represented under the parable of the marriage at Cana of Galilee. This divine marriage, or union of the human and Divine Wills, is indissoluble; whence the idea of the indissolubility of human marriage. And inasmuch as it is a marriage of the spirit of man to that of God, and of the Spirit of God to that of man, it is a double marriage.</p>
+ <p>I see the ceremony actually taking place. The hierophant represents the Divine Spirit; and he and the candidate face each other, and crossing their arms grasp each with each hand a hand of the other. A soul may be partially and transiently illuminated by the Spirit; the Spirit may even descend upon an individual and make him a prophet, and pass away leaving him unregenerate, and out of the kingdom of God,--as occurred to John the Baptist. But it is the divine marriage only which constitutes regeneration, the sacrament of eternal marriage. Of this intimate union the soul itself is reborn, and its inmost recesses divinely illuminated. Of such marriage as this the Patriarchs were ignorant. Their connection with the Spirit was fitful and transient, and they were therefore represented as living in concubinage.</p>
+ <p>We have herein the reason why the Cup is denied to the laity. "Of every tree," it is said to the uninitiate Adam, "thou mayest freely communicate. But of the tree of knowledge thou mayest not communicate." The wine is the spirit of interior truth, the understanding of which gives eternal life; and to this the people cannot yet attain. They may receive only the bread, which represents only the element of substance. This, however, contains also the spirit, although unmanifested and unrecognised.</p>
+ <p>I now see the pyramid distinctly. It was built entirely for initiations, so far as its builders were concerned. In these ceremonials the Reed played an important part, and in sacred mythos generally. Thus, Moses was placed in a basket of reeds.</p>
+ <p><a name="page_57"><font size="1" color="GREEN">p. 57</font></a> The Hindû divinity Kartikya was sheltered in infancy by reeds. The mysteries of Ceres, or Demeter, were carried in baskets of reeds, called <i>canephoræ</i>; and the final stage in the initiation of Jesus is placed at <i>Cana</i>. A reed also was placed in his hand at his condemnation. And the virgin in the sacred marriage initiation also bore a reed with a cup on it. This is because, growing in and out of the water, which denotes the soul, and being a straight rod, the reed denotes the spirit. In India the Lotus has the same significance. I perceive that Jesus had been initiated in the mysteries of India and Egypt long before he was incarnated as Jesus, and he appears to me as having been a Brahmin.</p>
+ <p>The Egyptians and Hindûs appear to be of the same race, having their mysteries in common. For I am shown one of each people riding together on an elephant. Both countries were colonised at the same time from Thibet, and from thence all the mysteries proceeded. <a name="fr_96"></a><a href="cws25.htm#fn_96"><font size="1">1</font></a> In Egypt the initiations were generally in pyramids and temples. In India and Palestine they were underground, in caves. In Cana of Galilee there is a large cave, which was used for the purpose, with a "banqueting" room.</p>
+ <p>I am counting the pyramids. I see thirty-six, but I think there are more. <a name="fr_97"></a><a href="cws25.htm#fn_97"><font size="1">2</font></a></p>
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_95"></a><a href="cws24.htm#fr_95">55:1</a> London, March 22, 1881. Spoken in trance. Referred to in <i>Life of Anna Kingsford</i>, vol. ii, p. 3.</p>
+ <p></p><hr>
+ <center>
+ <a href="cws25.htm">Next: No. XXI: Concerning The ''Man Of Power''</a></center>
+ </body>

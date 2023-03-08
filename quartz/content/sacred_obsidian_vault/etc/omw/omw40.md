@@ -1,0 +1,25 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Misc</a> 
+ <a href="index.htm">Index</a> 
+ <a href="omw39.htm">Previous</a> 
+ <a href="omw41.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="center">The Children of Mars</h3>  <h3 align="center">II</h3>  
+ <p>In this war the Sabine people did not have greed for their motive; they warred in what they thought was a just cause and they were able to inflict defeat upon the Romans. They captured the citadel, and in the fight they made they drove the Romans through the ancient gate of the Palatine Hill. Romulus was caught in the rout of his army; he was being dragged out of the city he had built when, lifting up his sword and shield to Heaven, he cried, "O Iuppiter, it was thine omen that directed me when I laid here on the Palatine Hill the first foundations of this, my city. The citadel is already in possession of the invaders; they come from it, sword in hand, to seek us here. But do thou, Father of Gods and men, keep them back from this spot; deliver the Romans from their terror; stay their shameful flight! I here vow to thee, Iuppiter the Stayer, a temple, to be a memorial to our descendants how the city was saved by thy present help." Having uttered this prayer Romulus spoke to the fleeing men as though he knew that the prayer was answered. "Here, Romans, Iuppiter commands us to stand and renew the fight." The Romans stood their ground as though directed by a voice from Heaven. Romulus rushed into the battle again. He met the Sabines as they were driving on, their leader shouting, "We have beaten our faithless hosts, our cowardly enemies! Now they know the difference between carrying off maidens and fighting with men." Even as the Sabine leader spoke, a band of young</p>  
+ <p><a name="page_113"><font size="1" color="GREEN">p. 113</font></a></p>  
+ <p><font size="-2" color="GREEN">[paragraph continues]</font> Romans assailed his band, and he was forced back into the valley that lay between the two hills.</p>  
+ <p>There the Romans and the Sabines faced each other, ready to renew the battle. And there the Sabine women, their hair loosened, their garments torn as a sign of mourning, came between them, daring the missiles that were flying from both sides. They came between the armies, begging their fathers and brothers not to fight against their husbands. "It will be better for us to perish here," they cried, "than to live lacking either of you. If the fight goes on we shall live either as widows, or as orphans, or as women lacking brothers." All were touched by the plea of the women; the leaders on both sides came forward and made a truce.</p>  
+ <p>And so the war waged because of the carrying off of the Sabine maidens came to an end. The Romans and the Sabines were made into a single people, and a new name was given to those who lived in or near the city: no longer were there Romans and Sabines; both together were given the name Quirites. And a king of the Sabines ruled jointly with Romulus for a while.</p>  
+ <p>So the city drew into itself a new population. Other states and cities, fearful of Rome's growing power, made war upon Romulus. The Etruscans came into Roman territory; Romulus marched against them and defeated them. Afterwards he sat on his chair to review his army in the Campus Martius. Before him, with shouts of salutation, his army came. But even as they did there were loud peals of thunder. A cloud hid Romulus from the sight of his people. When the cloud lifted Romulus was there no longer; he was not in his chair; he was no more upon the earth. The soldiers and the people stood around with bowed heads, awed by the mystery of their loss.</p>  
+ <p>Then one who had been near Romulus said, "Quirites, the father of this city, Romulus, said to me: 'Declare to the people the will of Heaven. My Rome shall be the chief city of the world; let the people cherish the art of war; let them teach their children that no human strength can break the Roman army nor resist the Roman arms. And as for me, my father, Mars, has caused Heaven to take me and give me a place amongst the immortal Gods."</p>  
+ <p>Then the soldiers and people became contented, knowing that their king and the father of the Roman city was now made an Immortal.</p>  
+ <p><a name="page_114"><font size="1" color="GREEN">p. 114</font></a></p>  
+ <p><font size="-2" color="GREEN">[paragraph continues]</font> With prayers they besought his favour. From him they asked protection for their children. And Romulus who was their king upon earth was named Quirinus when they worshipped him--Quirinus which was a name that belonged to the God Mars.</p>  
+ <p></p><hr>
+ <center>
+ <a href="omw41.htm">Next: Numa the Law-Giver</a></center>
+ </body>

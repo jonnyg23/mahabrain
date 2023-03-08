@@ -1,0 +1,125 @@
+<body>
+ <p><a name="P802_200475"></a>
+ <sup>124 </sup>There is a hiatus here.</p>
+ 
+ <p><a name="P809_201079"></a>
+ <sup>125 </sup>The Abbe Cruice suggests <font face="SPIonic">epipleon bwlou</font>, which he thinks corresponds with the material of which the pyramid mentioned in a previous chapter was composed. He, however, makes no attempt at translating <font face="SPIonic">epipleon</font>, Does he mean that the skull was filled with clay? His emendation is forced.</p>
+ 
+ <p><a name="P810_201460"></a>
+ <sup>126 </sup>Or, "rubbings of" (Cruice).</p>
+ 
+ <p><a name="P811_201596"></a>
+ <sup>127 </sup>Or, "they say."</p>
+ 
+ <p><a name="P812_201785"></a>
+ <sup>128 </sup>Some similar juggleries are mentioned by Lucian in his <i>Alexander</i>, or <i>Psendomantis</i>, xxxii. 26,-a work of a kindred nature to Celsus' <i>Treatise on Magic</i> (the latter alluded to by Origen, <i>Contr. Cels</i>., lib. i p. 53 ed. Spenc.), and dedicated by Lucian to Celsius. </p>
+ 
+ <p><a name="P816_202539"></a>
+ <sup>129 </sup>The word magic, or magician, at its origin, had no sinister meaning, as being the science professed by the Magi, who were an exclusive religious sect of great antiquity in Persia, universally venerated for their mathematical skill and erudition generally. It was persons who practised wicked arts, and assumed the name of Magi, that brought the term into disrepute. The origin of magic has been ascribed fo Zoroaster, and once devised, it made rapid progress; because, as Pliny reminds us, it includes three systems of the greatest influence among men-(1) the art of medicine, (2) religion, divination. This corresponds with Agrippa's division of magic into (1) natural, (2) celestial, (3) ceremonial, or superstitious. This last has been also called "goetic " (full of imposture), and relates to the invocatioms of devils. This originated probably in Egypt, and quickly spread all over the world.</p>
+ 
+ <p><a name="P817_203922"></a>
+ <sup>130 </sup>Or, "topic discussed; " or, "not leave any place (subterfuge) for these," etc.</p>
+ 
+ <p><a name="P818_204732"></a>
+ <sup>131 </sup>0r "you will suppose."</p>
+ 
+ <p><a name="P822_205337"></a>
+ <sup>132 </sup>See Aristotle's <i>Metaphiysics</i>, book i.; Cicero, <i>De Natura Deorum</i>, book i. (both translated in Bohn's (classical Library); and Plutarch, <i>De Placitis Philosophorum</i>. lib. i.</p>
+ 
+ <p><a name="P824_206625"></a>
+ <sup>133 </sup>The mention of the Persians, Babylonians, and Egyptians shows the subject-matter of the lost books to have been concerning the speculative systems of these nations.</p>
+ 
+ <p><a name="P825_207124"></a>
+ <sup>134 </sup>This rendering follows Miller's text. Schneidewin thinks there is a hiatus, which the Abbe Cruice fills up, the latter translating the passage without an interrogation: "The Egyptians, who think themselves more ancient than all, have formed their ideas of the power of the Deity by calculations and computing," etc.</p>
+ 
+ <p><a name="P826_207655"></a>
+ <sup>135 </sup>Or, "meditation on the divine nature," or "godlike reflection."</p>
+ 
+ <p><a name="P827_207876"></a>
+ <sup>136 </sup>The MS. has "says he." </p>
+ 
+ <p><a name="P828_208730"></a>
+ <sup>137 </sup>The Abbe Cruice suggests the elimination of 9, on account of its being a divisible number.</p>
+ 
+ <p><a name="P830_208977"></a>
+ <sup>138 </sup>Miller considers some reference here to the six days' creation (Hexaemeron), on account at the word <font face="SPIonic">fusikwtera</font>, i.e., more natural. The Abbe Cruice considers that there is an allusion to an astronomic instrument used for exhibiting harmonic combinations; see Ptolem., <i>Harmon</i>, i. 2. Bunsen reads <font face="SPIonic">tou ecakuklou ulikou</font>.</p>
+ 
+ <p><a name="P831_209469"></a>
+ <sup>139 </sup>The text is obviously corrupt. As given by Schneidewin, it might be rendered thus: "These deriving from the monad a numerical symbol,a virtue, have progressed up to the elements." He makes no attempt at a Latin version. The Abbe Cruice would suggest tbe Introduction of the word <font face="SPIonic">prosteqsan</font>, on account of the statement already made, that "the monad, superadded into itself, produces a duad."</p>
+ 
+ <p><a name="P832_210959"></a>
+ <sup>140 </sup>There is a hiatus here. Hippolytus has said nothing concerning enneads.</p>
+ 
+ <p><a name="P836_212239"></a>
+ <sup>141 </sup>Or, "names have been allocated," or "distributed."</p>
+ 
+ <p><a name="P837_212402"></a>
+ <sup>142 </sup>Miller thinks it should be "even number" (<font face="SPIonic"> peritton</font>). The Abbe Cruice would retain "uneven" (<font face="SPIonic"> aperizugon</font>), on the ground that the duad being a <font face="SPIonic">perizuc ariqmoj</font>, the monad will be <font face="SPIonic">aperizugoj</font>.</p>
+ 
+ <p><a name="P838_213145"></a>
+ <sup>143 </sup>Servius on the <i>Eclogues of Virgil</i> (viii, 75) and Pliny (<i> Hist. Nat</i>, xxxviii. 2) make similar statements.</p>
+ 
+ <p><a name="P839_213577"></a>
+ <sup>144 </sup>This is Miller and Schneidewin's emendation for "uneven" in the MS. </p>
+ 
+ <p><a name="P847_217746"></a>
+ <sup>145 </sup>Arat., <i>Phaenom</i>., v. 19 et seq.</p>
+ 
+ <p><a name="P856_218367"></a>
+ <sup>146 </sup><i>Ibid</i>, v. 45, 46.</p>
+ 
+ <p><a name="P857_218662"></a>
+ <sup>147 </sup>This refers to Job i. 7, but is at once recognised as not a correct quotation.</p>
+ 
+ <p><a name="P860_219383"></a>
+ <sup>148 </sup>Arat., <i>Phaenom</i>., v. 61. </p>
+ 
+ <p><a name="P862_219982"></a>
+ <sup>149 </sup>Arat., <i>Phaenom</i>., v. 63 et seq.</p>
+ 
+ <p><a name="P864_220571"></a>
+ <sup>150 </sup>Arat., <i>Phaenom</i>., v, 70.</p>
+ 
+ <p><a name="P869_221330"></a>
+ <sup>151 </sup>"Pierced it through," i.e., bored the holes for the strings, or, in other words, constructed the instrument. The Latin version in Buhle's edition of Aratus is <i>ad cunam (cunabulam) compegit</i>, i.e., he fastened the strings into the shell of the tortoise near his bed. The tortoise is mentioned by Aratus in the first part of the line, which fact removes the obscurity of the passage as quoted by Hippolytus. The general tradition corresponds with this, in representing Mercury on the shores of the Nile forming a lyre out of a dried tortoise. The word translated bed might be also rendered fan, which was used as a cradle, its size and construction being suitable. [See note, p. 46, <i>infra</i>.]</p>
+ 
+ <p><a name="P871_222077"></a>
+ <sup>152 </sup>Arat., <i>Phaenom</i>., v. 268.</p>
+ 
+ <p><a name="P873_223148"></a>
+ <sup>153 </sup>Or, "son of" (see Arat., <i>Phaenom</i>., v. 70).</p>
+ 
+ <p><a name="P875_224231"></a>
+ <sup>154 </sup>The Abbe Cruice considers that these interpretations, as well as what follows, are taken not from a Greek writer, but a Jewish heretic. No Greek, he supposes, would write, as is stated lower down, that the Greeks were a Phoenician colony. The Jewish heresies were impregnated by these silly doctrines about the stars (see Epiphian., <i>Adv. Haeres</i>., lib. i. <i>De Pharisaeis</i>).</p>
+ 
+ <p><a name="P876_225210"></a>
+ <sup>155 </sup>Reference is here made to Matt. vii. 14.</p>
+ 
+ <p><a name="P877_225321"></a>
+ <sup>156 </sup>Arat., <i>Phaenom</i>., v. 44. </p>
+ 
+ <p><a name="P878_225731"></a>
+ <sup>157 </sup>Herod., <i>Hist</i>., i. 1.</p>
+ 
+ <p><a name="P879_226033"></a>
+ <sup>158 </sup>Or, "for creation is the Logos" (see Arat., <i>Phaenom</i>., et seq.).</p>
+ 
+ <p><a name="P881_228188"></a>
+ <sup>159 </sup>Arat., <i>Phaenom</i>., v. 179</p>
+ 
+ <p><a name="P885_228625"></a>
+ <sup>160 </sup>i.e., literally a sea-monster (Cicero's <i>Pistrix</i>); Arat., <i>Phaenom</i>;., v. 353 et seq.</p>
+ 
+ <p><a name="P886_229299"></a>
+ <sup>161 </sup><font face="SPIonic">proj autoij hdh toij termadi genomenon tou biou</font>. Some read <font face="SPIonic">toij spermasi</font>, which yields no intelligible meaning. </p>
+ 
+ <p><a name="P894_232037"></a>
+ <sup>162 </sup>Sextus Empiricus, <i>adv. Geom</i>., 29 et seq. (See book vi. chap. xviii. of <i>The Refutation</i>.)</p>
+ 
+ <p><a name="P896_232965"></a>
+ <sup>163 </sup>The observations following have already been made in book i. of <i>The Refutation</i>.</p>
+ 
+ <p><a name="P897_233376"></a>
+ <sup>164 </sup>Some read <font face="SPIonic">arsij</font>. </p>
+ 
+ </body>

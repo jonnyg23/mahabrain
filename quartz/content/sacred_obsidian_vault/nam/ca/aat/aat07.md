@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">California</a> 
+ <a href="index.htm">Index</a> 
+ <a href="aat06.htm">Previous</a> 
+ <a href="aat08.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h3 align="CENTER">6. THE LOST BROTHER (ACHOMAWI).</h3>
+ <p>Fisher and his brother Weasel were living together. One day Lizard stole Weasel, and carried him off, and Fisher hunted in vain for him. As he went about searching, he kicked up the earth, and so made the mountains. One day some Mice came to Fisher's house as he lay asleep. They came to get some meat from a deer he had killed. They cried and talked at the same time, throwing dust in their eyes for grief. Fisher gave the Mice some meat, and told them how his brother had been stolen by Lizard while gathering wood. The Mice said that they thought he could find his brother again somehow. Then Fisher asked them to help, to go and ask Sun where he was. He promised to give them feathers and beads and paint to give Sun. The Mice agreed to go, and, taking a long cord, tied it to an arrow and shot it up to the sky, where it stuck firmly. Fisher then gave them the gifts he had promised, told them to ask Sun if he had seen where Weasel was, for he could see all over the world. If Sun did not answer at first, they were not to be discouraged, but to go on ahead of him along the road he travelled in the sky, and ask him again.</p>
+ <p>The Mice started, and climbed up to the sky, to the road on which Sun travelled. He came along, carrying his daughter on his back in a basket. The Mice asked him to stop, said that they had come to see him, and had brought presents from Fisher, who wished to know where his brother had been taken to. Sun did not answer, but walked steadily on. So the Mice ran ahead and asked again, and then Sun stopped. He said he could not see Weasel, but that a man lived far away at Baiwa, that he had no children, yet he could see him with a little white boy, which might be Weasel. The Mice said that they were sure it was, and gave the gifts to Sun, after which they came back down the rope to Fisher's house.</p>
+ <p>The Mice told Fisher all that they had done, and said that Sun had said that Lizard had a small boy with him, who might be Weasel. Fisher thanked them, and sent them away. He felt happy, for he knew where his brother was. He built a fire, took out his arrows and dried them, and in the morning started off to where Lizard lived. Lizard went out to catch ducks; and when he left, he told Weasel to stay behind in the house and watch his bow and arrows. As Fisher came near, he caused trees to grow in front of him to conceal his approach. Weasel had gone out to get some wood, and saw his brother. He was glad to</p>
+ <p><a name="page_168"><font size="1" color="GREEN">p. 168</font></a></p>
+ <p>find him; and they talked together, and decided how to escape. Weasel made a great fire in the house, and then took Lizard's bow and arrows and threw them in, then joined Fisher, and the two ran off. Lizard was looking back, and saw the big fire in his house, and came back in a hurry to see what was the trouble. He found his weapons burned, all but a few arrows. These he took, and started after the two brothers. They and Lizard travelled very fast, as they snapped themselves from one mountain-top to another by means of an arrow-flaker. Fisher tried to escape, but Lizard always got in front of him. So at last they fought. Fisher put Weasel in his quiver and fought as hard as he could, but by and by got very tired. Every now and then Weasel would pop his head out and say, "He nearly hit you then! Be careful, brother!" Toward sundown Fisher was very tired, and looked to see where Bluejay was. He was out stalking deer with a deer-head on as disguise, and, seeing deer, he was creeping up on them, and did not see the conflict. The deer were startled by it, however, and ran; and Bluejay, looking up, saw Fisher retreating backwards toward him. Bluejay was an older brother of Fisher's, and came to his aid, and succeeded in hitting Lizard in the belly, when he burst in two and was killed. Then Fisher stood up, and wiped the sweat from him, and went home with Bluejay and Weasel.</p>
+ <p></p><hr>
+ <center>
+ <a href="aat08.htm">Next: 7. Bluejay and Lizard and the Grizzly-Bears (Achomawi)</a></center>
+ </body>

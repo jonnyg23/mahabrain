@@ -1,0 +1,35 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Legends and Sagas</a> 
+ <a href="../index.htm">Lang Fairy Books</a> 
+ <a href="index.htm">Index</a> 
+ <a href="vifb05.htm">Previous</a> 
+ <a href="vifb07.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Violet Fairy Book</i>, by Andrew Lang, [1901], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_f04"></a></p>  
+ <p align="center">SCHIPPEITARO</p>  
+ <p>It was the custom in old times that as soon as a Japanese boy reached manhood he should leave his home and roam through the land in search of adventures. Sometimes he would meet with a young man bent on the same business as himself, and then they would fight in a friendly manner, merely to prove which was the stronger, but on other occasions the enemy would turn out to be a robber, who had become the terror of the neighbourhood, and then the battle was in deadly earnest.</p>  
+ <p>One day a youth started off from his native village, resolved never to come back till he had done some great deed that would make his name famous. But adventures did not seem very plentiful just then, and he wandered about for a long time without meeting either with fierce giants or distressed damsels. At last he saw in the distance a wild mountain, half covered with a dense forest, and thinking that this promised well at once took the road that led to it. The difficulties he met with—huge rocks to be climbed, deep rivers to be crossed, and thorny tracts to be avoided—only served to make his heart beat quicker, for he was really brave all through, and not merely when he could not help himself, like a great many people. But in spite of all his efforts he could not find his way out of the forest, and he began to think he should have to pass the night there. Once more he strained his eyes to see if there was no place in which he could take shelter, and this time he caught sight of a small chapel in a little clearing. He hastened quickly towards it, and curling himself up in a warm corner soon fell asleep.</p>  
+ <p>Not a sound was heard through the whole forest for some hours, but at midnight there suddenly arose such a clamour that the young man, tired as he was, started broad awake in an instant. Peeping cautiously between the wooden pillars of the chapel, he saw a troop of hideous cats, dancing furiously, making the night horrible with their yells. The full moon lighted up the weird scene, and the young warrior gazed with astonishment, taking great care to keep still, lest he should be discovered. After some time he thought that in the midst of all their shrieks he could make out the words, 'Do not tell Schippeitaro! Keep it hidden and secret! Do not tell Schippeitaro!' Then, the midnight hour having passed, they all vanished, and the youth was left alone. Exhausted by all that had been going on round him, he flung himself on the ground and slept till the sun rose.</p>  
+ <p>The moment he woke he felt very hungry, and began to think how he could get something to eat. So he got up and walked on, and before he had gone very far was lucky enough to find a little side-path, where he could trace men's footsteps. He followed the track, and by-and-by came on some scattered huts, beyond which lay a village. Delighted at this discovery, he was about to hasten to the village when he heard a woman's voice weeping and lamenting, and calling on the men to take pity on her and help her. The sound of her distress made him forget he was hungry, and he strode into the hut to find out for himself what was wrong. But the men whom he asked only shook their heads and told him it was not a matter in which he could give any help, for all this sorrow was caused by the Spirit of the Mountain, to whom every year they were bound to furnish a maiden for him to eat.</p>  
+ <p>'To-morrow night,' said they, 'the horrible creature will come for his dinner, and the cries you have heard were uttered by the girl before you, upon whom the lot has fallen.'</p>  
+ <p>And when the young man asked if the girl was carried off straight from her home, they answered no, but that a large cask was set in the forest chapel, and into this she was fastened.</p>  
+ <p>As he listened to this story, the young man was filled with a great longing to rescue the maiden from her dreadful fate. The mention of the chapel set him thinking of the scene of the previous night, and he went over all the details again in his mind. 'Who is Schippeitaro?' he suddenly asked; 'can any of you tell me?'</p>  
+ <p>'Schippeitaro is the great dog that belongs to the overseer of our prince,' said they; 'and he lives not far away.' And they began to laugh at the question, which seemed to them so odd and useless.</p>  
+ <p>The young man did not laugh with them, but instead left the hut and went straight to the owner of the dog, whom he begged to lend him the animal just for one night. Schippeitaro's master was not at all willing to give him in charge to a man of whom he knew nothing, but in the end he consented, and the youth led the dog away, promising faithfully to return him next day to his master. He next hurried to the hut where the maiden lived, and entreated her parents to shut her up safely in a closet, after which he took Schippeitaro to the cask, and fastened him into it. In the evening he knew that the cask would be placed in the chapel, so he hid himself there and waited.</p>  
+ <p>At midnight, when the full moon appeared above the top of the mountain, the cats again filled the chapel and shrieked and yelled and danced as before. But this time they had in their midst a huge black cat who seemed to be their king, and whom the young man guessed to be the Spirit of the Mountain. The monster looked eagerly about him, and his eyes sparkled with joy when he saw the cask. He bounded high into the air with delight and uttered cries of pleasure; then he drew near and undid the bolts.</p>  
+ <p>But instead of fastening his teeth in the neck of a beautiful maiden, Schippeitaro's teeth were fastened in HIM, and the youth ran up and cut off his head with his sword. The other cats were so astonished at the turn things had taken that they forgot to run away, and the young man and Schippeitaro between them killed several more before they thought of escaping.</p>  
+ <p>At sunrise the brave dog was taken back to his master, and from that time the mountain girls were safe, and every year a feast was held in memory of the young warrior and the dog Schippeitaro.</p>  
+ <p>[Japanische Marchen.]</p>  
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="vifb07.htm">Next: The Three Princes and their Beasts</a></center>
+ </div>
+ </center></body>

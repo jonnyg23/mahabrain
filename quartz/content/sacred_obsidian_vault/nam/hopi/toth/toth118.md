@@ -1,0 +1,18 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Hopi</a> 
+ <a href="index.htm">Index</a> 
+ <a href="toth117.htm">Previous</a> 
+ <a href="toth119.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002DUCNKA/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Traditions of the Hopi</i>, by H.R. Voth, [1905], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_277"><font size="1" color="green">p. 277</font></a></p>  <h2 align="center">5.--THE ORIGIN OF SOME ORAÍBI CLANS.</h2>  
+ <p>In under-world people live in same manner as here. Chief of Bear clan angry at wife for often dancing in Butterfly dance. Chief sends Pö'okong and his brother in search of another world. They find opening above, which Pö'okong reaches by means of reed. Chief leaves wife dancing, and accompanied by Pö'okong and his brother, Spider clan chief, and many people, they start and go out. Bear chief closes opening. It is dark, and chief sends eagle to hunt for light. Eagle finds it hot, but he makes it lighter. Buzzard then goes and is burned, but makes it lighter. Bear clan and Spider clan go in different directions. Spider clan travels north following chief. They come to cold country where North Old Man lives. They plant corn, etc. Chief has cult and altar of Blue Flutes. When corn grows he puts up altar, sings and flutes. When ears of corn develop cold destroys crop. This occurs four years in succession, and people start south after Bear people. Chief's wife bathes and collects scales rubbed from skin. Chief wraps them in reed receptacle, sings over them, covers them four times, and they become burros. They repeat performance and Spaniards come out. Chief tells them to put their things on burros and follow Bear clan and kill them. Castilians go south. Spider people go southeast, and stop at ten different places. They finally arrive where sun rises and Americans live. They stay three years and then follow Bear clan westward. At Oraíbi they join Bear clan, whose chief is Machíto, and who have Â'ototo and Áholi Katcinas. Bear clan go south with Â'ototo Katcina and are joined by Young Coin Ear people who have Áholi Katcina. They stop ten times before arriving at Americans where sun rises. Here they stop four years. Land is scarce and they go west. Americans say if anybody bad they will come and cut their heads off. They finally arrive at Shongópavi and settle down. People accuse chief Machíto of greediness, and he leaves them with Â'ototo and Áholi. Hunters find them and want them to go back, but they refuse. Machíto with stone makes land-mark between Oraíbi and Shongópavi. Machíto and two Katcinas go up Oraíbi mesa. Later Spider people arrive, and Machíto asks about their wanderings. He says they may live there, but they are to watch sun for Soyál ceremony and to make his kind of puhtavi. Among Spider clan is Lizard clan, who have Maraú cult, They are permitted to stay, but are to co-operate in Soyál ceremony. Other clans that come are Rattle Snake, Badger, Butterfly, and Divided Spring. Divided Spring and Blue Flutes have corn contest, in which latter win.</p>  
+ <p></p><hr>
+ <center>
+ <a href="toth119.htm">Next: 6.--The Snake Myth.</a></center>
+ </body>

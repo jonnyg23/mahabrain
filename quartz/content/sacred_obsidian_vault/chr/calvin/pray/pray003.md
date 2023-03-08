@@ -1,0 +1,17 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Christianity</a> 
+ <a href="../index.htm">Calvin</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pray002.htm">Previous</a> 
+ <a href="pray004.htm">Next</a> 
+ </center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Of Prayer</i>, by John Calvin, tr. Henry  Beveridge [1845], at sacred-texts.com</font></p><hr> <a name="iii.i"></a> <h1 align="center"><a name="iii.i-p0.1"></a>Of Prayer</h1> <h2 align="center"><a name="iii.i-p0.2"></a>John Calvin</h2>  <h4 align="center"><a name="iii.i-p0.3"></a>1. </h4> 
+ <p><a name="iii.i-p1"></a>FROM the previous part of the work we clearly see how completely  destitute man is of all good, how devoid of every means of procuring his own  salvation. Hence, if he would obtain succour in his necessity, he must go beyond  himself, and procure it in some other quarter. It has farther been shown that  the Lord kindly and spontaneously manifests himself in Christ, in whom he offers  all happiness for our misery, all abundance for our want, opening up the  treasures of heaven to us, so that we may turn with full faith to his beloved  Son, depend upon him with full expectation, rest in him, and cleave to him with  full hope. This, indeed, is that secret and hidden philosophy which cannot be  learned by syllogisms: a philosophy thoroughly understood by those whose eyes  God has so opened as to see light in his light (<a name="iii.i-p1.1"></a><a href="../../../bib/kjv/psa036.htm#009">Psalm 36:9</a><a name="iii.i-p1.1"></a>). But after we have  learned by faith to know that whatever is necessary for us or defective in us is  supplied in God and in our Lord Jesus Christ, in whom it hath pleased the Father  that all fulness should dwell, that we may thence draw as from an inexhaustible  fountain, it remains for us to seek and in prayer implore of him what we have  learned to be in him. To know God as the sovereign disposer of all good,  inviting us to present our requests, and yet not to approach or ask of him, were  so far from availing us, that it were just as if one told of a treasure were to  allow it to remain buried in the ground. Hence the Apostle, to show that a faith  unaccompanied with prayer to God cannot be genuine, states this to be the order:  As faith springs from the Gospel, so by faith our hearts are framed to call upon  the name of God (<a name="iii.i-p1.2"></a><a href="../../../bib/kjv/rom010.htm#014">Romans 10:14</a><a name="iii.i-p1.2"></a>). And this is the very thing which he had expressed  some time before, viz., that the <i>Spirit of adoption</i>, which seals the  testimony of the Gospel on our hearts, gives us courage to make our requests  known unto God, calls forth groanings which cannot be uttered, and enables us to  cry, Abba, Father (<a name="iii.i-p1.3"></a><a href="../../../bib/kjv/rom008.htm#026">Romans 8:26</a><a name="iii.i-p1.3"></a>). This last point, as we have hitherto only touched  upon it slightly in passing, must now be treated more fully.</p>    
+ <p></p><hr>
+ <center>
+ <a href="pray004.htm">Next: 2.</a></center>
+ </body>

@@ -1,0 +1,19 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Islam</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pdh45.htm">Previous</a> 
+ <a href="pdh47.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0486431614/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Poems from the Divan of Hafiz</i>, by Getrude Lowthian Bell, [1897], at sacred-texts.com</font></p><hr>  <h1 align="center"><a>NOTES</a></h1>  <h2 align="center">I</h2>  
+ <p><i>Stanza 1</i>.The first line of this song, the opening poem in the Divan, is borrowed from an Arabic poem by Yezid ibn Moawiyah, the second Khalif of the Ommiad line. This prince was held in abomination by the Persian Shi'ites, both as the head of the Sunnis and because he was the cause of the death of Hussein, the son of Ali, whom the Shi'ites regarded as the rightful successor to the Khalifate. Hafiz was frequently reproached for setting a quotation from the works of the abhorred Yezid at the head of his book, a reproach which he is said to have met with the reply, that it was good policy to steal from the heretics whatsoever they possessed of worth.</p>  
+ <p>"In this country (i.e. North-Eastern China) is found the best musk in the world, and I will tell you how it is produced. There exists in that region a kind of wild animal like a gazelle. It has feet and tail like the gazelle's, a stag's hair of a very coarse kind, but no horns. It has four tusks, two below and two above, about three inches long, and slender in form, one pair growing downwards and the other upwards. It is a very pretty creature. The musk is found in this way: when the creature has been taken, they find at the navel, between the flesh and the skin, something like an imposthume filled with blood, which they cut out and remove, with all the skin attached to it; and the blood inside this imposthume is the musk that produces that powerful perfume. There is an immense number of these beasts in the country we are speaking of. The flesh is very good to eat. Messer Marco brought the dried head and feet of one of these animals to Venice with him."<i>Travels of Marco Polo</i>.</p>  
+ <p>There is a play of meaning upon the musk which is obtained at the cost of the deer's life-blood and the tears of blood which the lover weeps for his mistress.</p>  
+ <p><i>Stanza 2</i>.The title which Hafiz gives to the Tavern-keeper is Pir-i-Maghan-literally, the Old Man of the Magians. The history of this title is an epitome of the history of Persian faiths. It indicated primarily the priest of the first of Persian religions, that of Zoroaster. When the Mahommadans invaded Persia, and the preachers of the Prophet supplanted the priests of Zoroaster, their title fell into disrepute, and was degraded so far that it came to mean only the keeper of a tavern or caravanserai. But in this sense it gradually regained the honourable place from which it had fallen; for the keepers of such places of resort were, for the most part, men well acquainted with the "ways of the road and the hostelry." In their time they may themselves have served travellers upon their journey; they had heard and learnt much from the wayfarers who stopped at their gates, and they were able to guide others upon their journey, sending them forth refreshed and comforted in body. And here the Sufis took up the ancient name and used it to mean that wise old man who supplied weary travellers upon life's road with the spiritual draught of Sufi doctrine which refreshes and comforts the soul.</p>  
+ <p></p><hr>
+ <center>
+ <a href="pdh47.htm">Next: II</a></center>
+ </body>

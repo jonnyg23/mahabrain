@@ -1,0 +1,64 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Buddhism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sahw15.htm">Previous</a> 
+ <a href="sahw17.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/1428600353/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Shinran and His Work</i>, by Arthur Lloyd, [1910], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_109"><font size="1" color="green">p. 109</font></a></p>  <h3 align="center"><span style="font-variant:small-caps;">Chapter XIV.</span></h3>  <h3 align="center"><i>After Justification</i>.</h3>  
+ <p align="center">(§ 71, 72, 73, 74, 75)</p>  
+ <p>We have now reached that portion of the Shinshu Catechism which deals with <i>Zokutaimon</i>, i.e. with the earthly life of the believer after he has received justification by Faith in Amida, has cast all his cares upon Him, and has entered into the Sacred Heart of Buddha. We shall find it necessary to consider many questions relating to Grace and Sanctification, and again we shall be astonished by the similarities between the Shinshu and the Christian systems of Theology.</p>  
+ <p>And first, let me summarize what I have been taught, as a Christian, concerning God's grace. It will enable me to describe more accurately the Shinshu position.</p>  
+ <p>Grace consists in the direct illumination of the mind, and the inspiration of the will, by God. <a name="fr_92"></a><a href="#fn_92"><font size="1">*</font></a> It is necessary for all good actions: it is indispensible to the just man, because, without it, he cannot persevere in the state of grace, or work out his own salvation: it is equally necessary to the man outside the covenant of grace, because, without it, he can not only not turn to the safe refuge of religion, but cannot even do any action that is good. All that is ethically good in human life comes through the grace of God. But the grace of God is over all his works:</p>  
+ <p>
+ </p>  
+ <p><a name="page_110"><font size="1" color="green">p. 110</font></a></p>  
+ <p>there is not one that is excluded from it. It is God's spiritual sunshine that gives light to the just as well as to the unjust. It is not limited to priests and monks, nor to that class of people whom the Japanese call <i>Shūkyōka</i> (religiously minded persons): it illuminates and inspires the statesman in his cabinet, the merchant at his desk, the carpenter in his workshop: it is the inner soul (as it were) of all good actions, secular as well as religious, and there is no man, be he the most despicable of creatures, who does anything in accordance with the promptings of God's grace, that shall fail to receive from the all-just tribunal of Heaven his due meed of praise and encouragement. If I may express myself in Buddhist terminology, the grace of God is the source (the <i>in</i> #) of all good karma. <a name="fr_93"></a><a href="#fn_93"><font size="1">*</font></a></p>  
+ <p>Turning now to the <i>Shinshu Hyakuwa</i>, I find (in § 71) that the earthly life of a believer after receiving the Believing Heart may be compared to a day spent on the road along which one travels to enter into the full happiness of the Fruits of Enlightenment. (<i>Shinjin wo etaru ue no jinsei-seikwatsu wa, Bukkwa no kōfuku ni iru dōchū no hi-okuri de arimasu</i>).</p>  
+ <p>The travellers along this road dwell continually in the Glory of Mida's Light ("One the Light of</p>  
+ <p>
+ </p>  
+ <p><a name="page_111"><font size="1" color="green">p. 111</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> God's own Presence, O’er His ransomed People shed"); and they are continually under the protection of all "gods, Buddhas, and Bodhisattvas," the beings who hold in the Buddhist mind a place analogous to that occupied in the Christian system by ministering angels forth sent to minister to the heirs of salvation. The consequence of the clear light in which they dwell is that they are able to estimate rightly the importance of human virtue, that they set their minds to becoming active promoters of the peaceful welfare of society, rightly deeming that social duties are so important and weighty in their nature that the believer cannot afford to neglect them. This state of mind is that which is known in the Shinshu theology as <i>Zokutaimon</i>—the frame of mind which enables a man to discharge his duty towards his neighbour.</p>  
+ <p>In the succeeding paragraph (§ 72) we are brought to the question of works done before justification. The <i>Zokutaimon</i>, we are asked, is it something that is obligatory upon a man <i>before</i> he receives the justifying faith in Amida, or is it merely something to be done after justification?</p>  
+ <p>The author begins with a somewhat suggestive expression. <i>Shin wo ete hajimete Shinshu no</i> <span style="font-variant:small-caps;">utsuwa</span> <i>to naru no desu</i>. " It is not until a man has received faith that he becomes a <span style="font-variant:small-caps;">vessel</span>, of the Shinshu." There is a sort of Pauline echo about the phrase which is not without significance. <a name="fr_94"></a><a href="#fn_94"><font size="1">*</font></a> Before</p>  
+ <p>
+ </p>  
+ <p><a name="page_112"><font size="1" color="green">p. 112</font></a></p>  
+ <p>the acceptance of faith a man cannot be said to be <i>Shinshugyōja</i>, a practising believer of the Shinshu Faith. <a name="fr_95"></a><a href="#fn_95"><font size="1">*</font></a> The <i>Zokutaimon</i> of the Shinshu Faith is therefore, properly speaking, an obligation which does not come into full force until a man has definitely accepted the Faith in Amida as laid down in the <i>Shintaimon</i> portion of the Shinshu creed.</p>  
+ <p>Still, we are told, there are men who are within (<i>kamei</i> # <i>suru</i>) the fold (<i>hani</i> #) of the Shinshu, who have not yet made a personal acceptance of the faith upon which the Shinshu system is based, just as there are amongst ourselves persons who by Infant Baptism have entered into the congregation of Christ's Church without any very definite heart-acceptance of their Christian privilege. For such persons, because they belong to the Shinshu, it is more than expedient that they should understand and practise the religious obligations of life. It is a most important religious principle that, so long as men have to be in the world, they should do their duties as citizens of the world, and these duties ought not to be shirked as indifferent, even though a man have not yet received the grace of a Saving Faith. (<i>Koto ni seken futsu no seikwatsu ni majiwarite tsutawaru shūfū</i> # <i>de aru kara, nao nao mishin no aida wa dō de mo yoi to iu wake de wa arimasenu</i>.)</p>  
+ <p>The next paragraph (§ 73) treats of the authorities that may be quoted for this view of the <i>Zokutaimon</i>. It need not delay us here, it is fully treated of</p>  
+ <p>
+ </p>  
+ <p><a name="page_113"><font size="1" color="green">p. 113</font></a></p>  
+ <p>in <i>Shinshu Seikun</i>, and seems to have only an academic interest.</p>  
+ <p>In § 78, the question is asked, if we may look upon the duties of the <i>Zokutaimon</i> as being natural obligations, or merely as voluntary duties, binding upon such men only as have made some sort of profession of religion. And to this the answer is, that whilst certain of the duties in this section are indeed nothing but natural duties, incumbent on all men as members of human society, there are certain others which concern believers only. These may be summed up in the one word <i>hō-on</i>, #, a phrase to be more fully discussed in our next chapter. <a name="fr_96"></a><a href="#fn_96"><font size="1">*</font></a></p>  
+ <p>This section of the Catechism, (for Mr. Nishimoto now goes off into a consideration of the <i>hō on</i>,) closes with a warning against spiritual pride. (§ 75).</p>  
+ <p>It is customary, in some sects of Buddhism, to give to men who have a peculiar reputation for sanctity, certain distinguishing titles such as "living Buddha," &amp;c, &amp;c. Mr. Nishimoto has already in § 70 given us some of these distinguishing names and titles of honour. Here he gives us two more, <i>Shōjōjū</i>, and <i>Zennin</i>, <a name="fr_97"></a><a href="#fn_97"><font size="1">†</font></a> "righteous man," and again</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_114"><font size="1" color="green">p. 114</font></a></p>  
+ <p>reiterates the warning against presumption or pride.</p>  
+ <p>We must not expect, we are told, that the acceptance of Faith will work any outward change in us, either in our body, or in our life. Still there will be a change. When we have made the surrender of Faith, a living Fire has been kindled in our hearts, and the flames of Faith within will show themselves in the smoke of Conduct without (<i>shin-kwa uchi ni areba, gyō-en hoka ni arawaru</i>). We live in Amida's light as in an Ocean, and Amida's light dwells in us, and the consequence of this interpenetration, an idea not unknown to the Christian, is that, whether we try to be such or not, we are lights shining in the world (<i>shizen to tokkō no kagayaki ga gozaimasu</i>. cf. Phil ii. 15). As men, living among men, we have a variety of duties to perform, and are brought into multitudinous relationships with our fellow creatures, which we cannot shirk or escape from. But these responsibilities are not peculiar to ourselves. We share them with all our fellow-men, and this thought should keep us humble.</p>  
+ <p>At the same time, it should be added, for our encouragement, when we look at the inner man of him that has accepted the principle of Faith, we find there a happiness and a peace, such as one who has not yet believed cannot possibly understand. That internal happiness and peace will necessarily show itself in the quiet, peaceful strength that will characterize our daily lives. <a name="fr_98"></a><a href="#fn_98"><font size="1">*</font></a></p>  
+ <p>
+ </p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_92"></a><a href="sahw16.htm#fr_92">109:*</a> Gratia actualis consistit in immediatā mentis illustratione atque inspiratione voluntatis immediatā. Hurter, Theologiae Dogmaticae Compendium vol. iii p. 11.</p>
+ <p><a name="fn_93"></a><a href="sahw16.htm#fr_93">110:*</a> There are some good actions which are not done in obedience to the dictates of God's grace. Some are done from pride, others from a <a href="errata.htm#12">hypocritical</a> desire to stand well in the sight of men. Such actions are only apparently good, and of these we can say that they have in them the "nature of sin." But I am not talking of these. I am thinking of the honestly good actions of men who have not yet attained to "justification" by faith in the One Saviour.</p>
+ <p><a name="fn_94"></a><a href="sahw16.htm#fr_94">111:*</a> The Japanese word <i>utsuwa</i> is the equivalent of the Greek word σκευος and is used in the Japanese versions of Rom ix. 22, both in the Protestant version and in that used in the Greek Church. I have not yet seen the new translation (now in print) of the Roman Catholics.</p>
+ <p><a name="fn_95"></a><a href="sahw16.htm#fr_95">112:*</a> One frequently hears among Roman Catholics phrases like, 'il est catholique mais il ne pratique pas': i.e. he is not a <i>gyōja</i>.</p>
+ <p><a name="fn_96"></a><a href="sahw16.htm#fr_96">113:*</a> I may, however, briefly state here that the obvious Greek translation for <i>hō on</i> is Eucharistia, and that the attitude of the Shinshu mind after having made the act of Faith, may be most fitly described in the words of St Paul, Eph. v. 20.</p>
+ <p><a name="fn_97"></a><a href="sahw16.htm#fr_97">113:†</a> But see the quotation from Nanjo given in the note at the end of Chapt. vii. One of these titles, <i>Daitoku</i> (#) "great virtue," though not mentioned by Mr. Nishimoto, is historically interesting. One of the Tang Emperors, Taitsung, in 972, appointed ten Daitoku to superintend all the clergy of all sorts in his capital. Some of the Daitoku were undoubtedly Buddhists, but the title is also given to Olopen, the leader of the Nestorians, on the memorial erected a year or two later.</p>
+ <p><a name="fn_98"></a><a href="sahw16.htm#fr_98">114:*</a> In the light of the historical discussion to be found in the Appendix, it is possible that <i>Shintaimon</i> and <i>Zokutaimon</i> may represent the distinction made between the "Perfect" and the "Hearers" in Manichaeism.</p>
+ <p></p><hr>
+ <center>
+ <a href="sahw17.htm">Next: Chapter XV. Hō-on.</a></center>
+ </body>

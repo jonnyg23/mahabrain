@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Legends and Sagas</a> 
+ <a href="index.htm">Index</a> 
+ <a href="kvrune50.htm">Previous</a> 
+ <a href="kvgloss.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B001W0Z82C/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Kalevala</i>, by John Martin Crawford, [1888], at sacred-texts.com</font></p><hr> <h1 align="CENTER">EPILOGUE.</h1> 
+ <p>Now I end my measured singing,<br> Bid my weary tongue keep silence,<br> Leave my songs to other singers.<br> Horses have their times of resting<br> After many hours of labor;<br> Even sickles will grow weary<br> When they have been long at reaping;<br> Waters seek a quiet haven<br> After running long in rivers;<br> Fire subsides and sinks in slumber<br> At the dawning of the morning<br> Therefore I should end my singing,<br> As my song is growing weary,<br> For the pleasure of the evening,<br> For the joy of morn arising.</p> 
+ <p>Often I have heard it chanted,<br> Often heard the words repeated:<br> "Worthy cataracts and rivers<br> Never empty all their waters."<br> Thus the wise and worthy singer<br> Sings not all his garnered wisdom;<br> Better leave unsung some sayings<br> Than to sing them out of season.</p> 
+ <p>Thus beginning, and thus ending,<br> Do I roll up all my legends,<br> Roll them in a ball for safety,<br> In my memory arrange them,<br> In their narrow place of resting,<br> Lest the songs escape unheeded,<br> While the lock is still unopened,<br> While the teeth remain unparted,<br> And the weary tongue is silent.<br> Why should I sing other legends,<br> Chant them in the glen and forest,<br> Sing them on the hill and heather?<br> Cold and still my golden mother<br> Lies beneath the meadow, sleeping,<br> Hears my ancient songs no longer,<br> Cannot listen to my singing;<br> Only will the forest listen,<br> Sacred birches, sighing pine-trees,<br> Junipers endowed with kindness,<br> Alder-trees that love to bear me,<br> With the aspens and the willows.</p> 
+ <p>When my loving mother left me,<br> Young was I, and low of stature;<br> Like the cuckoo of the forest,<br> Like the thrush upon the heather,<br> Like the lark I learned to twitter,<br> Learned to sing my simple measures,<br> Guided by a second mother,<br> Stern and cold, without affection;<br> Drove me helpless from my chamber<br> To the wind-side of her dwelling,<br> To the north-side of her cottage,<br> Where the chilling winds in mercy<br> Carried off the unprotected.<br> As a lark I learned to wander,<br> Wander as a lonely song-bird,<br> Through the forests and the fenlands<br> Quietly o'er hill and heather;<br> Walked in pain about the marshes,<br> Learned the songs of winds and waters,<br> Learned the music of the ocean,<br> And the echoes of the woodlands.</p> 
+ <p>Many men that live to murmur,<br> Many women live to censure,<br> Many speak with evil motives;<br> Many they with wretched voices<br> Curse me for my wretched singing,<br> Blame my tongue for speaking wisdom,<br> Call my ancient songs unworthy,<br> Blame the songs and curse the singer.<br> Be not thus, my worthy people,<br> Blame me not for singing badly,<br> Unpretending as a minstrel.<br> I have never had the teaching,<br> Never lived with ancient heroes,<br> Never learned the tongues of strangers,<br> Never claimed to know much wisdom.<br> Others have had language-masters,<br> Nature was my only teacher,<br> Woods and waters my instructors.<br> Homeless, friendless, lone, and needy,<br> Save in childhood with my mother,<br> When beneath her painted rafters,<br> Where she twirled the flying spindle,<br> By the work-bench of my brother,<br> By the window of my sister,<br> In. the cabin of my father,<br> In my early days of childhood.</p> 
+ <p>Be this as it may, my people,<br> This may point the way to others,<br> To the singers better gifted,<br> For the good of future ages,<br> For the coming generations,<br> For the rising folk of Suomi.</p> 
+ <p align="CENTER">THE END.</p> 
+ <p></p><hr>
+ <center>
+ <a href="kvgloss.htm">Next: Glossary</a></center>
+ </body>

@@ -1,0 +1,24 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Gnosticism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="fff19.htm">Previous</a> 
+ <a href="fff21.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002CVUVRM/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Fragments of a Faith Forgotten</i>, by G.R.S. Mead, [1900], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_162"><font size="1" color="green">p. 162</font></a></p>  <h3 align="center">DOSITHEUS.</h3>  
+ <p><span class="margnote"><font size="-1" color="GREEN">A Follower of John the Baptist.</font></span>The legendary background of the Pseudo-Clementine polemic informs us that the precursor of "Simon Magus" was a certain Dositheus. He is mentioned in the lists of the earliest hæresiologists, in a Samaritan Chronicle, and in the Chronicle of Aboulfatah (fourteenth century); the notices, however, are all legendary, and nothing of a really reliable character can be asserted of the man. That however he was not an unimportant personage is evidenced by the persistence of the sect of the Dositheans to the sixth century; Aboulfatah says even to the fourteenth. Both Dositheus and "Simon Magus" were, according to tradition, followers of John the Baptist; they were, however, said to be inimical to Jesus. Dositheus is said to have claimed to be the promised prophet, "like unto Moses," and "Simon" to have made a still higher claim. In fact, like so many others in those days, both were claimants to the Messiaship. The Dositheans followed a mode of life closely resembling that of the Essenes; they had also their own secret volumes, and apparently a not inconsiderable literature.</p>  
+ <p>Dositheus (Dousis, Dusis, or Dosthai) was apparently an Arab, and in Arabia, we have every reason to believe, there were many mystic communities allied to those of the Essenes and Therapeuts. One of the Gospels used by Justin, under the general title "Memoirs of the Apostles," states that the "wise</p>  
+ <p><a name="page_163"><font size="1" color="green">p. 163</font></a></p>  
+ <p>men" came from Arabia. One legend even claims Dositheus as the founder of the sect of the Sadducees! Later tradition assigned to him a group of thirty disciples, or to be more precise twenty-nine and a-half (the number of days in a month), one of them being a woman. That is to say, the system of Dositheus turned on a lunar basis, just as subsequent systems ascribed to Jesus turned on a solar basis, the twelve disciples typifying the solar months or zodiacal signs, or rather certain facts of the wisdom-tradition which underlie that symbolism. Dositheus is said to have claimed to be a manifestation of the "Standing One" or unchanging principle, the name also ascribed to the supreme principle of the "Simonians." The one female disciple was Helena (the name of the moon or month, Selene, in Greek), who appears also in the legend of Simon.</p>  
+ <p>On the dim screen of Dosithean tradition we can thus see shadows passing of the sources of a <span class="margnote"><font size="-1" color="GREEN">The Pre-Christian Gnosis.</font></span> pre-Christian Gnosis--Arab, Phœnician, Syrian, Babylonian shadows. More interesting still, we can thus, perhaps, point to a source to which may be traced, along another line of descent, the subsequent thirty æons of the Valentinian plērōma or ideal world, with the divided thirtieth, Sophia (within and without, above and below), the lower aspect of which constituted the World-soul or the primordial substance of a world-system.</p>  
+ <p>It is also to be observed that Aboulfatah places Dositheus 100 years <small>B.C.</small> Of course only very qualified credence can be given to this late chronicler, but still it is possible that he may have drawn from sources</p>  
+ <p><a name="page_164"><font size="1" color="green">p. 164</font></a></p>  
+ <p>no longer accessible to us. The statement is interesting as showing that the chronicler recognized the fact of a pre-Christian Gnosis; though how he reconciles this John the Baptist date with the orthodox chronology is a puzzle. Can he have been influenced by the Talmudic tradition of the date of Jesus, which places him a century prior to our era? Together with Dositheus and "Simon," Hegesippus (according to Eusebius) also mentions Cleobius, Gorthæus, and Masbotheus as prominent leaders of primitive Christian schools.</p>  
+ <p></p><hr>
+ <center>
+ <a href="fff21.htm">Next: ''Simon Magus.''</a></center>
+ </body>

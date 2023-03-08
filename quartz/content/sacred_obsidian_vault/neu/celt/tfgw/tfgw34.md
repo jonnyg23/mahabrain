@@ -1,0 +1,48 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br><a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Sagas and Legends</a> 
+ <a href="../index.htm">Celtic</a> 
+ <a href="index.htm">Index</a> 
+ <a href="tfgw33.htm">Previous</a> 
+ </center>
+ <hr>
+ 
+ <p align="CENTER">Murderous Ghosts</p>
+ <blockquote> </blockquote>
+ <blockquote>THE following things happened about sixty years ago. In those times people used to go nine and ten miles to mass, especially of a Christmas Day. Four men in the parish of Drummond went to Cahirdonnefl to mass on Christmas and didn't start for home till after nightfall. The four were a young master with his servant-boy, and two married men, small farmers. When they came to a certain side path the young master with his servant-boy turned in there to go home, and the two others followed the main road. The men on the road were not far away when they heard a wild screech in the field.</blockquote>
+ <blockquote>"What can that be?" asked one. "Something must be happening; the night is dark."</blockquote>
+ <blockquote>They heard a second screech, but went on without stopping.</blockquote>
+ <blockquote>Next morning a messenger came to inquire where did they leave the young master and the servant-boy, and the men said, 'We left them when they turned from the main road to go home through the field."</blockquote>
+ <blockquote>"They didn't come," said the messenger, "and I'm in dread they are killed."</blockquote>
+ <blockquote>All the neighbours went to search for the two, and found the young man dead, a long distance out from the path, and he black and blue, as people are always when killed by ghosts or fairies. They couldn't find the servant-boy high or low.</blockquote>
+ <blockquote>The father of the young man sat up waiting all the night before for his son. About midnight he heard a terrible wind blowing around the house outside. He rose, bolted the door, and sat down by the fire again. A few minutes later there was a great struggle in front of the house and a noise as of some one making a kick at the door to open it. This was the servant-boy, who came to the house before the ghost and tried to break in. When he couldn't move the door he ran to the hag-gait, where there were two stacks of hay. He sprang to one of the stacks to climb up and defend himself from the top of the stack. The ghost pulled him down, but he brought his two fists full of dry hay with him. The ghost drove him out of the hag-gait and hunted him through seven fields to a river. Next day he was found on the bank dead, and he all black and blue. His suspenders broke, and he would never have been killed but that they broke: the cross on his back made by the suspenders would have saved him. His two fists were still grasping the hay.</blockquote>
+ <blockquote>About ten years later this very same ghost, a woman, attacked a man who was out late and was coming home with a hatchet on his shoulder and a saw in his hand. The man used the saw well, striking her with it, and she couldn't get at him through the steel. She knocked three or four falls out of him, but he rose each time; she struck one of his eyes and he lost the use of it. At last, after a great struggle, he came to a place where a stream of water was running across the road, and she couldn't follow him through that, for no ghost can follow a person through water. When he reached the other side he stood and looked at her. "You have yourself saved; you are a strong man: the best that came before me since I killed such and such a man ten years ago," said she, mentioning the servant-boy and the master, "but if I haven't the better of you yet, you have a keepsake from me that will stay with you."</blockquote>
+ <blockquote>The man went home, took to the bed, and didn't live six months. He was pining away every day till he died.</blockquote>
+ <blockquote>Some time later a man was drowned in Waterville, and he was one of the two farmers who came on Christmas night from mass at Cahirdonnell with the master and servant-boy that were killed. Three months after this man's death his wife went with her brother matchmaking in the town. The brother settled a match between herself and a man living in Drummond parish, which is over the mountains from Cahirciveen. She got marriage quittance from the priest in Cahirciveen, paid ten shillings for it, and put it in her pocket.</blockquote>
+ <blockquote>That evening she and the brother started to go to the house of a friend who lived next door to the man she was going to marry, for it's there the wedding was to be. She kept the marriage quittance in her pocket. When they were about half-way it commenced to snow, and when they were half a mile from the house she began to fall every minute.</blockquote>
+ <blockquote>"Yerra, what is the matter?" asked the brother.</blockquote>
+ <blockquote>"My first husband is killing me!" said she.</blockquote>
+ <blockquote>The brother tried his best to save her, but no use; he got blows enough himself and saw nobody. At last he took off his coat. He had a stick in his hand; he stuck the stick down in the ground and hung the coat on it to mark the place, for the land all around was white from snow. He left his sister there and ran to the friend's house (the house was no more than a quarter of a mile away) to bring help and save the sister. When the two came with a few neighbours the woman was dead, and the place for ten perches around was torn up as with a horse and plough.</blockquote>
+ <blockquote>All the people said, and the priest himself agreed with them, that it was against the rules for the woman to carry the marriage quittance, and if the brother had carried it the ghost would have spared them both.</blockquote>
+ <blockquote> </blockquote>
+ <blockquote> </blockquote>
+ <blockquote>I knew a man named Tom Moran who lived a few miles from Cahirciveen. I knew Tom and his wife very well, but at the time my story begins Tom wasn't married.</blockquote>
+ <blockquote>One time he was kept late in town by the shoemaker, and on the road home he met a strange priest on horseback. The priest stopped him. "Why are you out so late, my good man?" asked the priest; "tis in your bed you should be. The night outside belongs to the dead and the house to the living."</blockquote>
+ <blockquote>"Why are you outside yourself?" asked Tom.</blockquote>
+ <blockquote>"Tis my business to be out at all times," said the priest. "Is it often you are out at night?"</blockquote>
+ <blockquote>"It is then," said Tom.</blockquote>
+ <blockquote>"Go home, now," said the priest, "the night is no time for travelling."</blockquote>
+ <blockquote>When Tom came home he put his white horse outside in a little field so as to be able to put his hands on him easily and have no delay in the morning, for he was to go to the strand very early for seaweed. He wasn't long in bed when he heard the horse galloping around the house and making a great noise. Tom ran out in his shirt to see what the trouble was, but if he did he couldn't come near the horse.</blockquote>
+ <blockquote>Out on to the road with the horse and Tom after him, in shirt and bare feet. Tom followed till he came to a very lonesome place at the side of a graveyard, about two miles from his own house. The horse turned in there, and Tom followed closely till they came to a field, where the horse disappeared; and no wonder, for the field was full up of men and horses. Tom stepped aside into a corner. All the crowd moved from the field and went past him towards the road. When they went out the road was covered with people and horses moving towards Cahirciveen. All at once they shot away quickly and Tom came home alone. He found his horse in the field where he put him at first. It was a fairy horse that gave him the turn to the graveyard.</blockquote>
+ <blockquote>Some time after this Tom Moran married in this parish and his wife died in twelve months after the marriage. Nine or ten months after her death Tom was going home one night from Cahirciveen. He was matchmaking all day to know could he find a new wife, and he wasn't above a quarter of a mile from the town when he met the dead woman.</blockquote>
+ <blockquote>"You are here, you ruffian," said she. "Isn't it soon for you to be marrying again? You didn't give time to my footprints to leave the puddle in the yard or the hair to fall from my head in the grave before you are looking for a second wife, but I'll pay you well to-night for your conduct."</blockquote>
+ <blockquote>She went at him then and knocked him, but he rose up and walked on. She made after him and took another fall out of him.</blockquote>
+ <blockquote>"Now," said she, "if I don't take a third fall out of you before you go to Needham's gate you will be saved; but if I do you are done for."</blockquote>
+ <blockquote>Just at the gate she knocked him a third time and left him. Tom made his way home and sent for the priest and told him everything, he told the neighbours as well. He didn't live more than three or four days. [Needham's gate is about half a mile from Cahirciveen.]</blockquote>
+ <blockquote> </blockquote>
+ <blockquote> </blockquote>
+ <blockquote>NOTE.--The tales from "John Cokeley and the Fairy" to the end were told by Dyeermud Sheehy, a cartman for years between Killarney and Cahirciveen.</blockquote>
+ </body>

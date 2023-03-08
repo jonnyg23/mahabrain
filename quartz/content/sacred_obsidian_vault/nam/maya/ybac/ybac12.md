@@ -1,0 +1,46 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Maya</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ybac11.htm">Previous</a> 
+ <a href="ybac13.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0486236226/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Yucatan Before and After the Conquest</i>, by Diego de Landa, tr. William Gates, [1937], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_14"><font size="1" color="GREEN">p. 14</font></a></p>  <h3 align="center">SEC. XIII. ARRIVAL OF THE TUTUL-XIUS AND THE ALLIANCE THEY MADE WITH THE LORDS OF MAYAPAN. TYRANNY OF COCOM, THE RUIN OF HIS POWER AND OF THE CITY OF MAYAPAN.</h3>  
+ <p>The Indians relate that there came into Yucatan from the south many tribes with their chiefs, and it seems they came from Chiapas, although this the Indians do not know; but the author so conjectures from the many words and verbal constructions that are the same in Chiapas and in Yucatan, and from the extensive indications of sites that have been abandoned. They say that these tribes wandered forty years through the wilderness of Yucatan, having in that time no water except from the rains; that at the end of that time they reached the Sierra that lies about opposite the city of Mayapán, ten leagues distant. Here they began to settle and erect many fine edifices</p>  
+ <p align="center"><a name="img_01400"></a>
+ </p><p align="CENTER">
+ <a href="img/01400.jpg"><img src="tn/01400.jpg" alt="EIGHTH CENTURY STONE RESIDENCE IN THE SIERRA DISTRICT.&lt;br&gt; Photo by Maler"><br><font size="-3">Click to enlarge</font></a><br>EIGHTH CENTURY STONE RESIDENCE IN THE SIERRA DISTRICT.<br> Photo by Maler<br></p>  
+ <p>in many places; that the inhabitants of Mayapán held most friendly relations with them, and were pleased that they worked the land as if they were native to it. In this manner the people of the <b>Tutul-xiu</b> subjected themselves to the laws of Mayapán, they intermarried, and thus the lord Xiu of the Tutul-xius came to find himself held in great esteem by all. <a name="fr_8"></a><a href="#fn_8"><font size="1">*</font></a></p>  
+ <p>
+ </p>  
+ <p><a name="page_15"><font size="1" color="GREEN">p. 15</font></a></p>  
+ <p>These tribes lived in such peace that they had no conflicts and used neither arms nor bows, even for the hunt, although now today they are<a name="img_01500"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/01500.jpg" align="LEFT"></td></tr></table> excellent archers. They only used snares and traps, with which they took much game. They also had a certain art of throwing darts by the aid of a stick as thick as three fingers, hollowed out for a third of the way, and six palms long; with this and cords they threw with force and accuracy. <a name="fr_9"></a><a href="#fn_9"><font size="1"></font></a>  
+ <p>They had laws against delinquents which they executed rigorously; such as against an adulterer, whom they turned over to the injured party that he might either put him to death by throwing a great stone down upon his head, or he might forgive<a name="img_01501"></a>
+ </p><table align="RIGHT"><tr><td align="CENTER" valign="CENTER"><img src="img/01501.jpg" align="RIGHT"></td></tr></table> him if he chose. For the adulteress there was no penalty save the infamy, which was a very serious thing with them. One who ravished a maiden was stoned to death, and they relate a case of a chief of<a name="img_01502"></a>
+ <table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/01502.jpg" align="LEFT"></td></tr></table> the Tutul-xiu who, having a brother accused of this crime, had him stoned and afterwards covered with a great heap of rocks. They also say that before the foundation of the city they had another law providing the punishment of adulterers by drawing out the intestines through the navel.<a name="img_01503"></a>
+ <table align="RIGHT"><tr><td align="CENTER" valign="CENTER"><img src="img/01503.jpg" align="RIGHT"></td></tr></table>  
+ <p>The governing Cocom began to covet riches, and to that end negotiated with the garrison kept by the kings of Mexico in Tabasco and Xicalango, that he would put the city in their charge.<a name="img_01504"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/01504.jpg" align="LEFT"></td></tr></table> In this way he introduced the Mexicans into Mayapán, oppressed the poor, and made slaves of many. The chiefs would have slain him but for fear of the Mexicans. The lord of the Tutul-xiu never gave his consent to this. Then those of Yucatan, seeing themselves so fixed, learned from the Mexicans the art of arms, and thus became masters of the bow and arrow, of the lance, the axe, the buckler, and strong cuirasses made of quilted cotton <a name="fr_10"></a><a href="#fn_10"><font size="1"></font></a> together with other implements of war. Soon they no longer stood in awe of nor feared the Mexicans, but rather held them of slight moment. In this situation several years passed.  
+ <p>This Cocom was the first who made slaves; but out of this evil carne the use of arms to defend themselves, that they might not all become slaves. Among the successors of the Cocom dynasty was another</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_16"><font size="1" color="GREEN">p. 16</font></a></p>  
+ <p>one, very haughty and an imitator of Cocom, who made another alliance with the Tabascans, placing more Mexicans within the city, and began to act the tyrant and to enslave the common people. The chiefs then attached themselves to the party of Tutul-xiu, a man<a name="img_01600"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/01600.jpg" align="LEFT"></td></tr></table> patriotic like his ancestors, and they plotted to kill e Cocom. This they did, killing at the same time all of his sons save one who was absent; they sacked his dwelling and possessed themselves of all his property, his stores of cacao and other fruits, saying that thus they repaid themselves what had been stolen from them. The struggles between the Cocoms, who claimed that they had been unjustly expelled, and the Xius, went on to such an extent that after having been established in this city for more than five hundred years, they abandoned and left it desolate, each going to his own country.  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_8"></a><a href="ybac12.htm#fr_8">14:*</a> The historical problem involved in this paragraph is far from settled. The word <b>xiu</b> is the common term for 'plant' in both Aztec and Maya, and we are told that the Tutul-xius were Mexicans. Their significant symbol was a plant, just as that of the Cocoms was the <b>kambul</b> or pheasant. They were called foreigners by the Cocoms, but they certainly became the dominant element in western Yucatan, and finally at the fall of Mayapán claimed to be the defenders of 'true Maya,' and the present paragraph is clearly a Xiu 'apologia.' Nevertheless the evidence for very strong Mexicanization of customs and religion around the year 1000 is unquestioned, although the language does not seem to have been affected, as was English by the Normans. And finally, Landa's statement as to the closer similarity between Yucatecan Maya and the language of the Chiapans is definitely correct, Tzeltal and Maya being the two branches of the Mayance family moss nearly alike.</p>
+ <p><a name="fn_9"></a><a href="ybac12.htm#fr_9">15:</a> <a name="page_16"><font size="1" color="GREEN">p. 16</font></a> The dart thrower, <b>hulche</b> in Maya, <b>atlatl</b> in Mexican, is a weapon common throughout ancient America generally. The text illustrations above are all taken from the Madrid Maya codex, except the last, which is Mexican. In the first a deer is caught by a spring trap set at a stream; in the next an armadillo is caught in a box trap, and in the next a turkey in a net or noose. The two hunters both carry <b>hulches</b>, the first as he sets out and the other as he returns with the deer on his back. The last figure is an Aztec warrior.</p>
+ <p><a name="fn_10"></a><a href="ybac12.htm#fr_10">15:</a> A curious error in the Landa manuscript occurs here, stating that they wore "heavy coats of <i>salt</i> and cotton." The garment is the well-known <b>ichca-huipil</b>, corrupted in Yucatan to <b>escuypil</b>, of heavy quilted or 'tied' cotton strong enough to withstand arrows. Now in Maya <b>taab</b> (with double <b>a</b>) means 'to tie,' while <b>tab</b> (short <b>a</b>) means 'salt.' The error in the text would seem to have come from a mistranslation by Landa of what was told to him in Maya.</p>
+ <p></p><hr>
+ <center>
+ <a href="ybac13.htm">Next: IX. Chronological Monuments of Yucatan. Foundation of the Kingdom of Sotuta. Origin of the Chels. The Three Principal Kingdoms of Yucatan</a></center>
+ </body>

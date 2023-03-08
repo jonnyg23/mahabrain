@@ -1,0 +1,32 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hec29.htm">Previous</a> 
+ <a href="hec31.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002HWRKOI/internetsacredte">Buy this Book on Kindle</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Hymns of the Eastern Church</i>, by J.M. Neale, [1884], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_108"><font size="1" color="green">p. 108</font></a></p>  <h3 align="center">THE STICHERA OF THE LAST KISS.</h3>  
+ <p align="center"><font size="-1" color="green">by S. John Damascene.</font></p>  
+ <p align="center">Δεῦτε τελευταῖον ἄσπασμον δῶμεν.</p>  
+ <p>The following Stichera, which are generally (though without any great cause) attributed to S. John Damascene, form, perhaps, one of the most striking portions of the service of the Eastern Church. They are sung towards the conclusion of the Funeral Office, while the friends and relations are, in turn, kissing the corpse; the Priest does so last of all. Immediately afterwards, it is borne to the grave; the Priest casts the first earth on the coffin, with the words, "The earth is the <span style="font-variant:small-caps;">Lord's</span> and all that therein is: the compass of the world, and they that dwell therein." I have omitted four of the stanzas, as being almost a repetition of the rest.</p>  
+ <p><a name="page_109"><font size="1" color="green">p. 109</font></a></p>  
+ <p>Take the last kiss,—the last for ever!<br>   Yet render thanks amidst your gloom:<br> He, severed from his home and kindred,<br>   Is passing onwards to the tomb:<br> For earthly labours, earthly pleasures,<br>   And carnal joys, he cares no more:<br> Where are his kinsfolk and acquaintance?<br>   They stand upon another shore.<br>     Let us say, around him pressed,<br>     Grant him, <span style="font-variant:small-caps;">Lord</span>, eternal rest!</p>  
+ <p>The hour of woe and separation,<br>   The hour of falling tears is this:<br> Him that so lately was among us<br>   For the last time of all we kiss:<br> Up to the grave to be surrendered,<br>   Sealed with the monumental stone,<br> A dweller in the house of darkness,<br>   Amidst the dead to lie alone. <a name="page_110"><font size="1" color="green">p. 110</font></a><br>     Let us say, around him pressed,<br>     Grant him, <span style="font-variant:small-caps;">Lord</span>, eternal rest!</p>  
+ <p>Life, and life's evil conversation,<br>   And all its dreams, are passed away:<br> The soul hath left her tabernacle:<br>   Black and unsightly grows the clay.<br> The golden vessel here lies broken:<br>   The tongue no voice of answer knows:<br> Hushed is sensation, stilled is motion;<br>   Toward the tomb the dead man goes.<br>     Let us cry with heart's endeavour,<br>     Grant him rest that is for ever!</p>  
+ <p>What is our life? A fading flower;<br>   A vapour, passing soon away;<br> The dewdrops of the early morning:—<br>   Come gaze upon the tombs to-day. <a name="page_111"><font size="1" color="green">p. 111</font></a><br> Where now is youth? Where now is beauty,<br>   And grace of form, and sparkling eye?<br> All, like the summer grass, are withered;<br>   All are abolished utterly<br>     While our eyes with grief grow dim,<br>     Let us weep to <span style="font-variant:small-caps;">Christ</span> for him!</p>  
+ <p>Woe for that bitter, bitter moment,<br>   The fearful start, the parting groan,<br> The wrench of anguish, from the body<br>   When the poor soul goes forth alone!<br> Hell and destruction are before her;<br>   Earth in its truest worth she sees;<br> A flickering shade; a dream of error;<br>   A vanity of vanities.<br>     Sin in this world let us flee,<br>     That in heaven our place may be.</p>  
+ <p>Draw nigh, ye sons of Adam; viewing<br>   A likeness of yourselves in clay: <a name="page_112"><font size="1" color="green">p. 112</font></a><br> Its beauty gone; its grace disfigured;<br>   Dissolving in the tomb's decay;<br> The prey of worms and of corruption,<br>   In silent darkness mouldering on;<br> Earth gathers round the coffin, hiding<br>   The brother, now for ever gone.<br>     Yet we cry, around him pressed,<br>     Grant him, <span style="font-variant:small-caps;">Lord</span>, eternal rest!</p>  
+ <p>When, hurried forth by fearful angels,<br>   The soul forsakes her earthly frame,<br> Then friends and kindred she forgetteth,<br>   And this world's cares have no more claim<br> Then passed are vanity and labour;<br>   She hears the Judge's voice alone;<br> She sees the ineffable tribunal:<br>   Where we, too, cry with suppliant moan,<br>     For the sins that soul hath done,<br>     Grant Thy pardon, Holy One!</p>  
+ <p><a name="page_113"><font size="1" color="green">p. 113</font></a></p>  
+ <p>Now all the organs of the body,<br>   So full of energy before,<br> Have lost perception, know not motion,<br>   Can suffer and can act no more.<br> The eyes are closed in death's dark shadow;<br>   The ear can never hear again;<br> The feet are bound; the hands lie idle;<br>   The tongue is fast as with a chain.<br>     Great and mighty though he be,<br>     Every man is vanity.</p>  
+ <p>Behold and weep me, friends and brethren!<br>   Voice, sense, and breath, and motion gone;<br> But yesterday I dwelt among you;<br>   Then death's most fearful hour came on.<br> Embrace me with the last embracement;<br>   Kiss me with this, the latest kiss;<br> Never again shall I be with you;<br>   Never with you share woe or bliss.</p>  
+ <p><a name="page_114"><font size="1" color="green">p. 114</font></a></p>  
+ <p>I go toward the dread tribunal<br>   Where no man's person is preferred;<br> Where lord and slave, where chief and soldier,<br>   Where rich and poor alike are heard:<br> One is the manner of their judgment:<br>   Their plea and their condition one:<br> And they shall reap in woe or glory<br>   The earthly deeds that they have done.<br> I pray you, brethren, I adjure you,<br>   Pour forth to <span style="font-variant:small-caps;">Christ</span> the ceaseless prayer,<br> He would not doom me to Gehenna,<br>   But in His glory give me share</p>  
+ <p></p><hr>
+ <center>
+ <a href="hec31.htm">Next: Idiomela for All Saints</a></center>
+ </body>

@@ -1,0 +1,20 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Tarot</a> 
+ <a href="tarot0.htm">Tarot Reading</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pktsw04.htm">Previous</a> 
+ <a href="pktsw02.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002ACPMP4/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Pictorial Key to the Tarot</i>, by A.E. Waite, ill. by Pamela Colman Smith [1911], at sacred-texts.com</font></p><hr> <h4 align="CENTER">SWORDS</h4> <h4 align="CENTER">Three</h4> 
+ <p align="CENTER"><a name="img_sw03"></a>
+ <span align="CENTER">
+ <a href="img/sw03.jpg"><img src="tn/sw03.jpg"><br><font size="-3">Click to enlarge</font></a></span></p> 
+ <p>Three swords piercing a heart; cloud and rain behind. <i>Divinatory Meanings</i>: Removal, absence, delay, division, rupture, dispersion, and all that the design signifies naturally, being too simple and obvious to call for specific enumeration. <i>Reversed</i>: Mental alienation, error, loss, distraction, disorder, confusion.</p> 
+ <p></p><hr>
+ <center>
+ <a href="pktsw02.htm">Next: Two of Swords</a></center>
+ </body>

@@ -1,0 +1,19 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Classics</a> 
+ <a href="../index.htm">Aristotle</a> 
+ <a href="index.htm">Index</a> 
+ <a href="nico048.htm">Previous</a> 
+ <a href="nico050.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="CENTER">Chapter 6.</h3> <h4 align="CENTER">Political justice and analogous kinds of justice.</h4> 
+ <p>Since acting unjustly does not necessarily imply being unjust, we must ask what sort of unjust acts imply that the doer is unjust with respect to each type of injustice, e.g. a thief, an adulterer, or a brigand. Surely the answer does not turn on the difference between these types. For a man might even lie with a woman knowing who she was, but the origin of his might be not deliberate choice but passion. He acts unjustly, then, but is not unjust; e.g. a man is not a thief, yet he stole, nor an adulterer, yet he committed adultery; and similarly in all other cases.</p> 
+ <p>Now we have previously stated how the reciprocal is related to the just; but we must not forget that what we are looking for is not only what is just without qualification but also political justice. This is found among men who share their life with a view to selfsufficiency, men who are free and either proportionately or arithmetically equal, so that between those who do not fulfil this condition there is no political justice but justice in a special sense and by analogy. For justice exists only between men whose mutual relations are governed by law; and law exists for men between whom there is injustice; for legal justice is the discrimination of the just and the unjust. And between men between whom there is injustice there is also unjust action (though there is not injustice between all between whom there is unjust action), and this is assigning too much to oneself of things good in themselves and too little of things evil in themselves. This is why we do not allow a man to rule, but rational principle, because a man behaves thus in his own interests and becomes a tyrant. The magistrate on the other hand is the guardian of justice, and, if of justice, then of equality also. And since he is assumed to have no more than his share, if he is just (for he does not assign to himself more of what is good in itself, unless such a share is proportional to his merits--so that it is for others that he labours, and it is for this reason that men, as we stated previously, say that justice is 'another's good'), therefore a reward must be given him, and this is honour and privilege; but those for whom such things are not enough become tyrants.</p> 
+ <p>The justice of a master and that of a father are not the same as the justice of citizens, though they are like it; for there can be no injustice in the unqualified sense towards thing that are one's own, but a man's chattel, and his child until it reaches a certain age and sets up for itself, are as it were part of himself, and no one chooses to hurt himself (for which reason there can be no injustice towards oneself). Therefore the justice or injustice of citizens is not manifested in these relations; for it was as we saw according to law, and between people naturally subject to law, and these as we saw' are people who have an equal share in ruling and being ruled. Hence justice can more truly be manifested towards a wife than towards children and chattels, for the former is household justice; but even this is different from political justice.</p> 
+ <p></p><hr>
+ <center>
+ <a href="nico050.htm">Next: Chapter 7. Natural and legal justice</a></center>
+ </body>

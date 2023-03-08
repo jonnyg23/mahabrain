@@ -1,0 +1,22 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Atlantis</a> 
+ <a href="index.htm">Index</a> 
+ <a href="soa30.htm">Previous</a> 
+ <a href="soa32.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h1 align="CENTER">City of the Golden Gates</h1>
+ <p>The "City of the Golden Gates" and its surroundings must be described before we come to consider the remarkable system by which its inhabitants were supplied with water. It lay, as we have seen, on the east coast of the continent close to the sea, and about 15º north of the equator. A beautifully wooded park-like country surrounded the city. Scattered over a large area of this were the villa residences of the wealthier classes. To the west lay a range of mountains, from which the water supply of the city was drawn. The city itself was built on the slopes of a hill, which rose from the plain about 500 feet. On the summit of this hill lay the emperor's palace and gardens, in the centre of which welled up from the earth a never-ending stream of water, supplying first the palace and the fountains in the gardens, thence flowing in the four directions and falling in cascades into a canal or moat which encompassed the palace grounds, and thus separated them from the city which lay below on every side. From this canal four channels led the water through four quarters of the city to cascades which in their turn supplied another encircling canal at a lower level. There were three such canals forming concentric circles, the outermost and lowest of which was still above the level of the plain. A fourth canal at this lowest level, but on a rectangular plan, received the constantly flowing waters, and in its turn discharged them into the sea. The city extended over part of the plain, up to the edge of this great outermost moat, which surrounded and defended it with a line of waterways extending about twelve miles by ten miles square.</p>
+ <p>It will thus be seen that the city was divided into three great belts, each hemmed in by its canals. The characteristic feature of the upper belt that lay Just below the palace grounds, was a circular racecourse and large public gardens. Most of the houses of the court officials also lay on this belt, and here also was an institution of which we have no parallel in modern times. The term "Strangers' Home" amongst us suggests a mean appearance and sordid surroundings, but this was a palace where all strangers who might come to the city were entertained as long as they might choose to stay--being treated all the time as guests of the Government. The detached houses of the inhabitants and the various temples scattered throughout the city occupied the other two belts. In the days of the Toltec greatness there seems to have been no real poverty--even the retinue of slaves attached to most houses being well fed and clothed--but there were a number of comparatively poor houses in the lowest belt to the north, as well as outside the outermost canal towards the sea. The inhabitants of this part were mostly connected with the shipping, and their houses, though detached, were built closer together than in other districts.</p>
+ <p>It will be seen from the above that the inhabitants had thus a never-failing supply of pure clear water constantly coursing through the city, while the upper belts and the emperor's palace were protected by lines of moats, each one at a higher level as the centre was approached. It was from a lake which lay among the mountains to the west of the city, at an elevation of about 2,600 feet, that the supply was drawn.</p>
+ <p>Now it does not require much mechanical knowledge in order to realise how stupendous must have been the works needed to provide this supply, for in the days of its greatness the "City of the Golden Gates" embraced within its four circles of moats over two million inhabitants. No such system of water supply has ever been attempted in Greek, Roman or modern times--indeed it is very doubtful whether our ablest engineers, even at the expenditure of untold wealth, could produce such a result.</p>
+ <p></p><hr>
+ <center>
+ <a href="soa32.htm">Next: Air-Ships</a></center>
+ </body>

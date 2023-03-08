@@ -1,0 +1,30 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="seil28.htm">Previous</a> 
+ <a href="seil30.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002B561B4/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Spiritual Exercises of St. Ignatius of Loyola</i>, [1914], at sacred-texts.com</font></p><hr> <a></a> <h3 align="center">THREE TIMES</h3> <h5 align="center">FOR MAKING, IN ANY ONE OF THEM, A SOUND AND GOOD ELECTION</h5> <b>First Time</b>. The first time is, when God our Lord so moves and attracts the will, that without doubting, or being able to doubt, such devout soul follows what is shown it, as St. Paul and St. Matthew did in following Christ our Lord.
+ <p> <b>Second Time</b>. The second, when enough light and knowledge is received by experience of consolations and desolations, and by the experience of the discernment of various spirits.
+ </p><p> <b>Third Time</b>. The third time is quiet, when one considers, first, for what man is born -- namely, to praise God our Lord and save his soul -- and desiring this chooses as means a life or state within the limits of the Church, in order that he may be helped in the service of his Lord and the salvation of his soul.
+ </p><p> I said time of quiet, when the soul is not acted on by various spirits, and uses its natural powers freely and tranquilly.
+ </p><p> If election is not made in the first or the second time, two ways follow as to this third time for making it.  <a></a> </p><h4 align="center">THE FIRST WAY</h4> <h5 align="center">TO MAKE A SOUND AND GOOD ELECTION</h5> It contains six Points.
+ <p> <b>First Point</b>. The first Point is to put before me the thing on which I want to make election, such as an office or benefice, either to take or leave it; or any other thing whatever which falls under an election that can be changed.
+ </p><p> <b>Second Point</b>. Second: It is necessary to keep as aim the end for which I am created, which is to praise God our Lord and save my soul, and, this supposed, to find myself indifferent, without any inordinate propensity; so that I be not more inclined or disposed to take the thing proposed than to leave it, nor more to leave it than to take it, but find myself as in the middle of a balance, to follow what I feel to be more for the glory and praise of God our Lord and the salvation of my soul.
+ </p><p> <b>Third Point</b>. Third: To ask of God our Lord to be pleased to move my will and put in my soul what I ought to do regarding the thing proposed, so as to promote more His praise and glory; discussing well and faithfully with my intellect, and choosing agreeably to His most holy pleasure and will.
+ </p><p> <b>Fourth Point</b>. Fourth: To consider, reckoning up, how many advantages and utilities follow for me from holding the proposed office or benefice for only the praise of God our Lord and the salvation of my soul, and, to consider likewise, on the contrary, the disadvantages and dangers which there are in having it. Doing the same in the second part, that is, looking at the advantages and utilities there are in not having it, and likewise, on the contrary, the disadvantages and dangers in not having the same.
+ </p><p> <b>Fifth Point</b>. Fifth: After I have thus discussed and reckoned up on all sides about the thing proposed, to look where reason more inclines: and so, according to the greater inclination of reason, and not according to any inclination of sense, deliberation should be made on the thing proposed.
+ </p><p> <b>Sixth Point</b>. Sixth, such election, or deliberation, made, the person who has made it ought to go with much diligence to prayer before God our Lord and offer Him such election, that His Divine Majesty may be pleased to receive and confirm it, if it is to His greater service and praise.  <a></a> </p><h4 align="center">THE SECOND WAY</h4> <h5 align="center">TO MAKE A GOOD AND SOUND ELECTION</h5> It contains four Rules and one Note. 
+ <p> <b>First Rule</b>. The first is that that love which moves me and makes me choose such thing should descend from above, from the love of God, so that he who chooses feel first in himself that that love, more or less, which he has for the thing which he chooses, is only for his Creator and Lord.
+ </p><p> <b>Second Rule</b>. The second, to set before me a man whom I have never seen nor known, and I <a name="fr_16"></a><a href="seil83.htm#fn_16"><font size="1">17</font></a> desiring all his perfection, to consider what I would tell him to do and elect for the greater glory of God our Lord, and the greater perfection of his soul, and I, doing likewise, to keep the rule which I set for the other.
+ </p><p> <b>Third Rule</b>. The third, to consider, as if I were at the point of death, the form and measure which I would then want to have kept in the way of the present election, and regulating myself by that election, let me make my decision in everything.
+ </p><p> <b>Fourth Rule</b>. The fourth, looking and considering how I shall find myself on the Day of Judgment, to think how I would then want to have <a name="fr_17"></a><a href="seil83.htm#fn_17"><font size="1">18</font></a> deliberated about the present matter, and to take now the rule which I would then wish to have kept, in order that I may then find myself in entire pleasure and joy.
+ </p><p> <b>Note. </b>The above-mentioned rules for my eternal salvation and peace having been taken, I will make my election and offering to God our Lord, conformably to the sixth Point of the First Way of making election.  
+ </p><p></p><hr>
+ <center>
+ <a href="seil30.htm">Next: To Amend and Reform One's Own Life</a></center>
+ </body>

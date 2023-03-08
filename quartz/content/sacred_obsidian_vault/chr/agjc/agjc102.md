@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc101.htm">Previous</a> 
+ <a href="agjc103.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 99</h4> <i>
+ </i><p>The Sermon on the Mount, continued. Jesus unfolds to the twelve the spiritual aspects of the ninth Commandment.<br> <br> <b>1. </b>The law has said: Thou shalt not lie; but in the eyes of law a man to lie must tell in words what is not true.<br> <b>2. </b>Now, in the light of spirit law, deceit in any form is nothing but a lie.<br> <b>3. </b>A man may lie by look or act; yea, even by his silence may deceive, and thus be guilty in the eyes of Holy Breath.<br> <b>4. </b>It has been said in olden times: Thou shalt not swear by thine own life.<br> <b>5. </b>But, lo, I say, Swear not at all; not by the head, the heart, the eye, nor hand; not by the sun, the moon, nor stars;<br> <b>6. </b>Not by the name of God, nor by the name of any spirit, good or bad.<br> <b>7. </b>You shall not swear by anything; for in an oath there is no gain.<br> <b>8. </b>A man whose word must be propped up by oath of any kind is not trustworthy in the sight of God or man.<br> <b>9. </b>By oath you cannot make a leaf to fall, nor turn the colour of a hair.<br> <b>10. </b>The man of worth just speaks and men know that he speaks the truth.<br> <b>11. </b>The man who pours out many words to make think he speaks the truth, is simply making smoke to hide a lie.<br> <b>12. </b>And there are many men with seeming double hearts; men who would serve two masters at a time--two masters quite adverse.<br> <b>13. </b>Men feign to worship God upon the Sabbath day and then pay court to Beelzebul on every other day.<br> <b>14. </b>No man can serve two masters at a time no more than he can ride two asses at a time that go in different ways.<br> <b>15. </b>The man who feigns to worship God and Beelzebul is foe of God, a pious devil and a curse of men.<br> <b>16. </b>And men cannot lay treasures up in heaven and earth at once.<br> <b>17. </b>Then, lo, I say, Lift up your eyes and see the safety vaults of heaven, and there deposit every gem.<br> <b>18. </b>Where moth and rust cannot corrupt; where thieves cannot break in and steal.<br> <b>19. </b>There are no safety vaults on earth; no place secure from moth, and rust and thieves.<br> <b>20. </b>The treasures of the earth are but illusive things that pass away.<br> <b>21. </b>Be not deceived; your treasures are the anchor of the soul, and where your treasures are your heart will be.<br> <b>22. </b>Fix not your heart upon the things of earth; be anxious not about the things to eat, or drink or wear.<br> <b>23. </b>God cares for those who trust in him and serve the race.<br> <b>24. </b>Behold the birds! They praise God in their songs; the earth is made more glorious by their ministry of joy; God keeps them in the hollow of his hand,<br> <b>25.</b> And not a sparrow falls to earth without his care; and every one that falls shall rise again.<br> <b>26. </b>Behold the flowers of earth! they trust in God and grow; they make the earth resplendent with their beauty and perfume.<br> <b>27. </b>Look at the lilies of the field, the messengers of holy love. No son of man, not even Solomon in all his excellence, was ever clothed like one of these.<br> <b>28. </b>And yet they simply trust in God; they feed from out his hand; they lay their heads to rest upon his breast.<br> <b>29. </b>If God so clothes and feeds the flowers and birds that do his will, will he not feed and clothe his children when they trust in him?<br> <b>30. </b>Seek first the kingdom of the soul, the righteousness of God, the good of men, and feed, and clothe.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc103.htm">Next: Chapter 100</a></center>
+ </div>
+ </center></body>

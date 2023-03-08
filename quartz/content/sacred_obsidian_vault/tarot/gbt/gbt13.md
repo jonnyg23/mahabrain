@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Tarot</a> 
+ <a href="index.htm">Index</a> 
+ <a href="gbt12.htm">Previous</a> 
+ <a href="gbt14.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0766157350/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>General Book of the Tarot</i>, by A. E. Thierens, [1930], at sacred-texts.com</font></p><hr>  
+ <p align="center"><a name="img_~../pkt/tn/ar06.jpg"></a>
+ <img src="../pkt/tn/ar06.jpg"></p>  <h4 align="center">VI. The Lovers. Virgo.</h4>  
+ <p>From the original meaning of the sign Virgo, the virgin matter of the cosmos or world-ether, to that principle which makes 'lovers' is rather a long step,</p>  
+ <p><a name="page_56"><font size="1" color="GREEN">p. 56</font></a></p>  
+ <p>but we will observe that all these Tarot symbols relate to human points of view and human life in particular, i.e. cosmic principles seen from this particular standpoint which gives more of a practical image than of abstract reasoning, the abstract cosmic significance, however, being imbedded fairly accurately in them. So in the human constitution the sign Virgo means the nervous system and everything acting as an organ as well as the relatively 'virginal matter' which is extracted from the food and will serve to build up the body. So this house is known to rule health and sickness. It is further known to relate to the principles and materials of our work. And so the card of the Lovers must in the first place symbolise these things. It does indeed. <i>P</i>. says it is connected with the Hebrew letter <i>Vau</i> in its significance of "the eye, and all that relates to light and brilliancy. The eye establishes the link between the external world and ourselves; by it light and form are revealed to us." In fact 'the eye' is a very ancient symbol for the idea of 'organ'; the Neoplatonists repeatedly used it. When saying it "establishes the link," we must be aware, however, that it is not yet this link itself but offers the elements for it. And again this card does not say 'love' but 'lovers' (in the French edition of the cards the singular is used: <i>l’amoureux</i>). Evidently the meaning is this: what makes man feel 'amorous' is his sensuousness, the word used in the strictly philosophical and biological meaning of receptivity of the senses for agreeable, caressing, benefic, gratifying vibrations. The same receptivity, however, exists on the other hand for disagreeable, painful, disturbing, malific vibrations. The receptivity and the condition of</p>  
+ <p><a name="page_57"><font size="1" color="GREEN">p. 57</font></a></p>  
+ <p>an organic centre in its double possibility of experience is only the phenomenal expression of the same in organic existence in general, consequently stamping the whole of manifestation with the law of duality of 'good' and 'evil.' The latter is well illustrated by the picture on the older cards where a youth is represented standing between two women, the one appearing to be benefic, the other malific. This sensuousness indeed can lead to a lower sensuality or can be the means of demonstrating love. A sort of angelic figure (Cupid?) is seen shooting an arrow: symbol of the ray of light. The card which was drawn on the authority of Mr. <i>W</i>. shows a man and a woman in a state of paradisical nudity, and over the two hovers the figure of an angel. It confers much the same meaning, of course. "This is in all simplicity the card of human love, here exhibited as part of the way, the truth and the life." (<i>W</i>.) And we shall find, that the same force which makes us love, physically, is at the back of all the work we do. Because it is the material response to the fiery and central pushing power and includes actual possibility on the basis of practical knowledge, experimental knowing. <i>W</i>. did well to show the Tree of Knowledge in the drawing, it being the symbol of Nature in general and of the seed or seminal elements.</p>  
+ <p></p><hr>
+ <center>
+ <a href="gbt14.htm">Next: VII. The Chariot. Libra</a></center>
+ </body>

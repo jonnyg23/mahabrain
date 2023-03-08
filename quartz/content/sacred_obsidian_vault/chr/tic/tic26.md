@@ -1,0 +1,114 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="tic25.htm">Previous</a> 
+ <a href="tic27.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B00267RV6Q/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Interior Castle</i>, by St. Teresa of Avila, [1921], at sacred-texts.com</font></p><hr>  <h3 align="center">CHAPTER IX.</h3>  
+ <p>THIS CHAPTER SPEAKS OF THE MANNER IN WHICH GOD COMMUNICATES WITH THE SOUL BY IMAGINARY VISIONS. STRONG REASONS ARE GIVEN FOR NOT DESIRING TO BE LED IN THIS WAY; THIS IS VERY PROFITABLE READING.</p>  
+ <p><i>1. The jewel in the locket. 2. The simile explained. 3. The apparition explained. 4. Awe produced by this vision. 5. False and genuine visions. 6. Illusive visions. 7. Effects of a genuine vision. 8. Conviction left by a genuine vision. 9. Its effects upon the after conduct. 10. A confessor should be consulted. 11. How to treat visions. 12. Effects of seeing the face of Christ. 13. Reasons why visions are not to be sought. 14. The second reason. 15. Third reason. 16. Fourth reason. 17. Fifth reason. 18. Sixth reason. 19. Additional reasons. 20. The virtues more meritorious than consolations. 21. Fervent souls desire to serve God for Himself alone</i>.</p>  
+ <p>1. Now we come to treat of imaginary visions, whereby it is held that the devil is more liable to deceive people than by the other visions I have already described. This is probably true. Yet when imaginary visions are divine, they seem, in a certain manner, more profitable for us than the others, as being more suited to our nature--with the exception of the visions sent by our Lord in the seventh mansion which far surpass all others. The presence of our Lord described in the last chapter may thus be symbolized. Let us suppose that we have in our possession a gold locket containing a precious stone of the highest value and powers, which, though we have not seen it, we are certain</p>  
+ <p><a name="page_237"><font size="1" color="green">p. 237</font></a></p>  
+ <p>is in the case, and its virtues benefit us when we wear the pendant. Although we have never gazed on it we value it highly, knowing by experience that it has cured us of maladies for which it is remedial. However, we dare not look at it nor open the locket nor could we do so even if we wished, for the owner of the jewel alone knows the secret of unfastening its casket. Although he lent it us for our use, yet he kept the key for himself; he will open the trinket when he chooses to show us its contents and close it again when he sees fit to do so.</p>  
+ <p>2. Our Lord treats us here in this way. Now, suppose the owner of this locket suddenly opened it at times for the benefit of the person to whom he has entrusted it; doubtless the latter would value the diamond more highly through remembering its wonderful lustre. This may be compared to what happens when our Lord is pleased to caress the soul. He shows it in vision His most sacred Humanity under whatever form He chooses; either as He was during His life on earth <a name="fr_356"></a><a href="#fn_356"><font size="1">1</font></a> or after His resurrection. <a name="fr_357"></a><a href="#fn_357"><font size="1">2</font></a> The vision passes as quickly as a flash of lightning, yet this most glorious picture makes an impression on the imagination that I believe can never be effaced until the soul at last sees Christ to enjoy Him for ever. Although I call it a 'picture,' you must not imagine that it looks like a painting; Christ appears as a living Person Who sometimes speaks and reveals deep mysteries. You must understand that though the soul sees this for a certain space of time, it is no more possible to continue</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_238"><font size="1" color="green">p. 238</font></a></p>  
+ <p>looking at it than to gaze for a very long time on the sun; therefore this vision passes very quickly, although its brightness does not pain the interior sight in the same way as the sun's glare injures our bodily eyes.</p>  
+ <p>3. The image is seen by the interior sight alone; but of bodily apparitions I can say nothing, for the person I know so intimately never having experienced anything of the kind herself could not speak about them with certainty. <a name="fr_358"></a><a href="#fn_358"><font size="1">3</font></a> The splendour of Him Who is revealed in the vision resembles an infused light like that of the sun covered with a veil as transparent as a diamond, if such a texture could be woven, while His raiment looks like fine linen. The soul to whom God grants this vision almost always falls into an ecstasy, nature being too weak to bear so dread a sight. I say 'dread,' though this apparition is more lovely and delightful than anything that could be imagined even though any one should live a thousand years and spend all that time in trying to picture it, for it far surpasses our limited imagination and understanding; yet the presence of such surpassing majesty inspires the soul with great fear.</p>  
+ <p>4. There is no need to ask how the soul knew Who He was or who declared with absolute certainty that He was the Lord of heaven and earth. This is not so with earthly kings; unless we were told their names or saw their attendant courtiers, they would attract little notice. O Lord, how little do we Christians know Thee! What will that day be in which Thou comest as our Judge, since now,</p>  
+ <p>
+ </p>  
+ <p><a name="page_239"><font size="1" color="green">p. 239</font></a></p>  
+ <p>when Thou comest as a Friend to Thy spouse, the sight of Thee strikes us with such awe? O daughters! what will it be when He says in wrath: 'Go, accursed of my Father?' <a name="fr_359"></a><a href="#fn_359"><font size="1">4</font></a>Let this impression be the result of this favour granted by God to the soul and we shall reap no little benefit from it, since St. Jerome, saint as he was, ever kept the thought of the last judgment before his eyes. <a name="fr_360"></a><a href="#fn_360"><font size="1">5</font></a> Thus we shall care nothing what sufferings we endure from the austerities of our Rule, for long as they may last, the time is but a moment compared to this eternity of pain. I sincerely assure you that, wicked as I am, I have never feared the torments of hell <a name="fr_361"></a><a href="#fn_361"><font size="1">6</font></a> for they have seemed to me as nothing when I remembered that the lost would see the beautiful, meek and pitiful eyes of our Lord turned on them in wrath. <a name="fr_362"></a><a href="#fn_362"><font size="1">7</font></a> I have thought all my life that this would be more than my heart could bear.</p>  
+ <p>5. How much more must any one fear this to whom our Lord so revealed Himself in vision here as to overcome her feelings and produce unconsciousness! This must be the reason that the soul remains in a rapture: our Lord strengthens its weakness so as to unite it to His greatness in this sublime communion with God. When any one</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_240"><font size="1" color="green">p. 240</font></a></p>  
+ <p>can contemplate this sight of our Lord for a long time, I do not believe it is a vision but rather some overmastering idea which causes the imagination to fancy it sees something; but this illusion is only like a dead image in comparison with the living reality of the other case.</p>  
+ <p>6. As not only three or four, but a large number of people have spoken to me on the subject, I know by experience that there are souls which, either because they possess vivid imaginations or active minds, or for some other reason of which I am ignorant, are so absorbed in their own ideas as to feel certain they see whatever their fancy imagines. If they had ever beheld a genuine vision, they would recognize the deception unmistakably. They themselves fabricate, piece by piece, what they fancy they see: no after effects are produced on the mind, which is less moved to devotion than by the sight of a sacred picture. It is clear that no attention should be paid to such fancies, which pass more quickly than dreams from the memory.</p>  
+ <p>7. In the favour of which I speak, the case is very different. A person is far from thinking of seeing anything, no idea of which has crossed the mind, when suddenly the vision is revealed in its entirety, causing within the powers and senses of the soul a fright and confusion soon changed into a blissful peace. Thus, after St. Paul was thrown to the ground, a great tempest and noise followed from heaven; <a name="fr_363"></a><a href="#fn_363"><font size="1">8</font></a> so, in the interior world of the soul, there is a violent tumult followed instantly, as I said, by</p>  
+ <p>
+ </p>  
+ <p><a name="page_241"><font size="1" color="green">p. 241</font></a></p>  
+ <p>perfect calm. Meanwhile certain sublime truths have been so impressed on the mind that it needs no other master, for with no effort of its own, Wisdom Himself has enlightened its former ignorance.</p>  
+ <p>8. The soul for some time afterwards possesses such certainty that this grace comes from God that whatever people may say to the contrary it cannot fear delusion. Later on, when her confessor suggests doubts to her, God may allow such a person to waver in her belief for a time and to feel misgivings lest, in punishment for her sins, she may possibly have been left to go astray. However, she does not give way to these apprehensions, but (as I said in speaking of other matters) <a name="fr_364"></a><a href="#fn_364"><font size="1">9</font></a> they only affect her in the same way as the temptations of the devil against faith, which may disturb the mind but do not shake the firmness of belief. In fact, the more severe the assault, <a name="fr_365"></a><a href="#fn_365"><font size="1">10</font></a> the more certain is she that the evil one could never have produced the great benefits she is conscious of having received, because he exercises no such power over the interior of the soul. He may present a false apparition but it does not possess such truth, majesty, and efficacy.</p>  
+ <p>9. As confessors cannot see these effects, which perhaps the person to whom God has shown the vision is unable to explain, they are afraid of deception, as indeed they have good reason to be. Therefore caution is necessary and time should be allowed to see what effects follow. Day by day, the progress of the soul in humility and in the virtues should be watched: if the devil is concerned in the matter, he will soon show signs of himself and will</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_242"><font size="1" color="green">p. 242</font></a></p>  
+ <p>be detected in a thousand lies. If the confessor is experienced and has received such favours himself, he will not take long in discovering the truth. In fact, he will know immediately, on being told of the vision, whether it is divine or comes from the imagination or the demon: more especially if he has received the gift of discerning spirits--then, if he is learned, he will understand the matter at once even though he has not personally experienced the like.</p>  
+ <p>10. The great point is, sisters, that you should be perfectly candid and straightforward with your confessor: I do not mean in declaring your sins that is evident enough--but in giving him an account of your prayer. <a name="fr_366"></a><a href="#fn_366"><font size="1">11</font></a> Unless you do this, I cannot assure you of your safety nor that you are led by God. Our Lord desires that we should be as truthful and open with those who stand in His place as we should with Himself; that we should wish them to know not only our thoughts but especially all relating to our actions, however insignificant. Then you need feel no trouble nor anxiety <a name="fr_367"></a><a href="#fn_367"><font size="1">12</font></a> because even if your vision were not from God, it could do you no harm if you are humble and possess a good conscience, for His Majesty knows how to glean good from evil. What the devil intended to injure you will benefit you instead: believing that God has granted you such signal favours, you will strive to please Him better and will keep His image ever before your memory.</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_243"><font size="1" color="green">p. 243</font></a></p>  
+ <p>11. A great theologian <a name="fr_368"></a><a href="#fn_368"><font size="1">13</font></a> once said that he should not trouble himself though the devil, who is a clever painter, should present before his eyes the living image of Christ, which would only kindle his devotion and defeat the evil one with his own weapons. However wicked an artist may be, we should reverence his picture if it represents Him Who is our only good. This great scholar held that it was very wrong to advise any one who saw a vision of our Lord to offer it signs of scorn, <a name="fr_369"></a><a href="#fn_369"><font size="1">14</font></a> because we are bound to show respect to the portrait of our King wherever we see it. I am sure that he was right, for even in the world any one who was on friendly terms with a person would take it as an offence were his portrait treated with contempt. How much more should we always show respect to a crucifix or a picture of our heavenly Sovereign wherever it meets our gaze! Although I have written about this elsewhere, I am glad of the opportunity of saying it now for I know some one who was deeply pained at being bidden to behave in this way. I know not who can have invented such a torture for one who felt bound to obey the counsel given by her confessor, for she would have thought her soul was at stake had she disobeyed him. My advice is, if you are given such an order, that humbly alleging the reasons I have set before you to your confessor, you should not carry it out. I am perfectly satisfied with the motives given for doing so by him who counselled me on this subject.</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_244"><font size="1" color="green">p. 244</font></a></p>  
+ <p>12. One great advantage gained by the soul from this favour shown by our Lord is that when thinking of Him or of His life and Passion, the remembrance of His most meek and beautiful face brings with it the greatest consolation. In the same way, we feel happier after having seen a benefactor than if we had never known him personally. I can assure you that the remembrance of the joy caused by this vision gives us the greatest comfort and assistance.</p>  
+ <p>13. Many other advantages result; but as I have written elsewhere <a name="fr_370"></a><a href="#fn_370"><font size="1">15</font></a> at length about the effect these visions produce, and must do so again later on, I will say no more now lest I weary us both. But I most earnestly advise you, when you know or hear of God's bestowing these graces on others, never to pray nor desire to be led by this way yourself though it may appear to you to be very good; indeed, it ought to be highly esteemed and reverenced, yet no one should seek to go by it for several reasons. Firstly, as it is a want of humility to desire what you have never deserved, I do not think any one who longs for these graces can be really humble: a common labourer never dreams of wishing to be made a king--the thing seems impossible and he is unfit for it; a lowly mind has the same feeling about these divine favours. I do not believe God will ever bestow these gifts on such a person, as before doing so He always gives thorough self-knowledge. How can that soul, while filled with such lofty aspirations, realize the truth that He has shown it great mercy in not casting it into hell?</p>  
+ <p>14. The second reason is that such a one is certain</p>  
+ <p>
+ </p>  
+ <p><a name="page_245"><font size="1" color="green">p. 245</font></a></p>  
+ <p>to be deceived or at least is in great danger of delusion, for an entrance is thus left open to the devil, who only needs to see the door left ajar to slip in at once and play us a thousand tricks.</p>  
+ <p>15. Thirdly: when people strongly desire a thing, the imagination makes them fancy they see or hear it, just as when a man's mind is set upon a subject all day he dreams of it at night.</p>  
+ <p>16. Fourthly: it would be very presumptuous of me to choose a way for myself without knowing what is good for me. <a name="fr_371"></a><a href="#fn_371"><font size="1">16</font></a> I should leave our Lord, Who knows my soul, to guide me as is best for me so that His will may be done in all things.</p>  
+ <p>17. Fifthly: do you think people on whom our Lord bestows these favours have little to suffer? No, indeed! their trials are most severe and of many kinds. How can you tell whether you would be able to bear them?</p>  
+ <p>18. Sixthly: perhaps what you think would be your gain might prove your loss, as happened to Saul when he was made king. <a name="fr_372"></a><a href="#fn_372"><font size="1">17</font></a> In short, sisters, there are other reasons besides these; believe me, it is safer to wish only what God wishes, Who knows us better than we know ourselves and Who loves us. Let us place ourselves entirely in His hands so that His will may be done in us; we can never go astray if our will is ever firmly fixed on this.</p>  
+ <p>19. Know that for having received many favours of this kind, you will not merit more glory but will</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_246"><font size="1" color="green">p. 246</font></a></p>  
+ <p>be the more stringently obliged to serve, since you have received more. God does not deprive us of anything by which we merit more, for this remains in our own control. There are many saints who never knew what it was to receive one such favour, while others who have received them are not saints at all. Do not imagine that these gifts are continually bestowed; indeed, for one that is granted, the soul bears many a cross, so that instead of longing to receive more favours, it only strives to use them better.</p>  
+ <p>20. True, such a grace is a most powerful aid towards practising the virtues in their highest perfection, but it is far more meritorious to gain them at the cost of one's own toil. I was acquainted with some one, <a name="fr_373"></a><a href="#fn_373"><font size="1">18</font></a> indeed with two people (of whom one was a man), on whom our Lord had bestowed some of these gifts. They were both so desirous of serving His Majesty at their own cost without these great consolations and so longed to suffer for His sake, that they remonstrated with Him for giving them these favours, and if it had been possible would have refused to receive them. When I say 'consolations,' I do not mean these visions which greatly benefit the soul and are highly to be esteemed, but the delights given by God during contemplation.</p>  
+ <p>21. I believe that these desires are supernatural and proper to very fervent souls who wish to prove to God that they do not serve Him for pay; so as I said, such people do not urge themselves to work</p>  
+ <p>
+ </p>  
+ <p><a name="page_247"><font size="1" color="green">p. 247</font></a></p>  
+ <p>harder for Him by the thought of the glory they will gain, but rather labour to satisfy their love, of which the nature is to toil for the Beloved in a thousand ways. Such souls would fain find a way to consume themselves in Him, and were there need that, for the sake of God's greater glory, they should be annihilated for ever, they would count it great gain. May He be for ever praised Who, in abasing Himself to hold converse with us miserable creatures, vouchsafes to manifest His greatness! Amen.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_356"></a><a href="tic26.htm#fr_356">237:1</a> <i>Life</i>, ch, vii, 11.</p>
+ <p><a name="fn_357"></a><a href="tic26.htm#fr_357">237:2</a> <i>Ibid</i>. xxix, 4.</p>
+ <p><a name="fn_358"></a><a href="tic26.htm#fr_358">238:3</a> <i>Life</i>, ch, vii. 11, 12.</p>
+ <p><a name="fn_359"></a><a href="tic26.htm#fr_359">239:4</a> St. Matt. xxv. 41: 'Discedite a me, maledicti, in ignem æternum.'</p>
+ <p><a name="fn_360"></a><a href="tic26.htm#fr_360">239:5</a> 'Whenever I ponder on the Day of Judgment I am overwhelmed by the thought and tremble from head to foot.' (St. Jerome). The following saying is by some attributed to St. Jerome, though not to be found in his works: 'Whether I eat or drink, or whatever else I do, the dreadful trumpet of the last day seems always sounding in my ears: Arise, ye dead, and come to judgment.' (Alban Butler, <i>Life of St. Jerome</i>). The <i>Life of Christ</i> by Ludolf of Saxony gives this quotation with the word <i>vox</i> instead of <i>tuba</i> (part ii. ch. lxxxvii. 9).</p>
+ <p><a name="fn_361"></a><a href="tic26.htm#fr_361">239:6</a> <i>Life</i>, ch. iii.</p>
+ <p><a name="fn_362"></a><a href="tic26.htm#fr_362">239:7</a> <i>Excl</i>. xiii, 3.</p>
+ <p><a name="fn_363"></a><a href="tic26.htm#fr_363">240:8</a> Acts ix. 3, 4.</p>
+ <p><a name="fn_364"></a><a href="tic26.htm#fr_364">241:9</a> <i>Castle</i>, M. vi. ch. iii. 12.</p>
+ <p><a name="fn_365"></a><a href="tic26.htm#fr_365">241:10</a> <i>Way of Perf</i> ch, xl. 4.</p>
+ <p><a name="fn_366"></a><a href="tic26.htm#fr_366">242:11</a> <i>Life</i>, ch. xxvi. 5; xxviii. 21.</p>
+ <p><a name="fn_367"></a><a href="tic26.htm#fr_367">242:12</a> <i>Way of Perf.</i> ch. xl. 3.</p>
+ <p><a name="fn_368"></a><a href="tic26.htm#fr_368">243:13</a> This was Father Dominic Bañez. <i>Found</i>. ch. viii. 3. <i>Life</i>, ch. xxix. 6, 7 and note.</p>
+ <p><a name="fn_369"></a><a href="tic26.htm#fr_369">243:14</a> <i>Letters of Blessed John of Avila</i> (translated by the Benedictines of Stanbrook), i. 5, p. 19.</p>
+ <p><a name="fn_370"></a><a href="tic26.htm#fr_370">244:15</a> <i>Life</i>, ch. xxviii. 13, 4.</p>
+ <p><a name="fn_371"></a><a href="tic26.htm#fr_371">245:16</a> St. Teresa, when led in this way, always asked to be delivered from favours so dangerous as visions, etc. See <i>Life</i>, ch. xxv. 20; xxvii. 3.</p>
+ <p><a name="fn_372"></a><a href="tic26.htm#fr_372">245:17</a> I. Reg. xv. 26-28.</p>
+ <p><a name="fn_373"></a><a href="tic26.htm#fr_373">246:18</a> <i>Life</i>, ch. xl. 27. She herself was one, and the other, no doubt, was St. John of the Cross.</p>
+ <p></p><hr>
+ <center>
+ <a href="tic27.htm">Next: Chapter X. Intellectual Visions Continued</a></center>
+ </body>
