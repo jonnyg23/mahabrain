@@ -7,7 +7,7 @@ class BooksSpider(scrapy.Spider):
     name = "books"
     allowed_domains = ["sacred-texts.com"]
     # start_urls = ["https://www.sacred-texts.com/the/iu/iu000.htm"]
-    start_urls = ["https://www.sacred-texts.com/bib/poly/"]
+    start_urls = ["https://www.sacred-texts.com"]
 
     def parse(self, response):
         base_path = "./sacred_obsidian_vault"
