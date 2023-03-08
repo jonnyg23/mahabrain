@@ -6,12 +6,12 @@ from scrapy.linkextractors import LinkExtractor
 class BooksSpider(scrapy.Spider):
     name = "books"
     allowed_domains = ["sacred-texts.com"]
-    # start_urls = ["https://www.sacred-texts.com/the/iu/iu000.htm"]
-    start_urls = ["https://www.sacred-texts.com"]
+    # start_urls = ["https://sacred-texts.com/chr/agjc/agjc041.htm"]
+    start_urls = ["https://sacred-texts.com"]
 
     def parse(self, response):
         base_path = "./sacred_obsidian_vault"
-        endpoint = response.url.replace("https://www.sacred-texts.com/", "")
+        endpoint = response.url.split(".com")[-1]
 
         # Add non-book containing folders
         if "." not in endpoint:
@@ -26,7 +26,7 @@ class BooksSpider(scrapy.Spider):
         # Add book
         else:
             # Create parent folders if they don't exist
-            filepath = f"{base_path}/{endpoint.split('.')[0]}.md"
+            filepath = f"{base_path}{endpoint.split('.')[0]}.md"
             folder_path = "/".join(filepath.split("/")[:-1])
             Path(folder_path).mkdir(parents=True, exist_ok=True)
 
@@ -60,9 +60,7 @@ class BooksSpider(scrapy.Spider):
         for link in link_extractor.extract_links(response):
             # Filter link list to reduce calls
             if "#" not in link.url.split(".")[-1]:
-                local_path_no_ext = (
-                    f"{base_path}{link.url.replace('https://www.sacred-texts.com', '')}"
-                )
+                local_path_no_ext = f"{base_path}{link.url.split('.com')[-1]}"
                 local_link = local_path_no_ext.replace(".htm", ".md")
 
                 if not Path(local_link).exists():
