@@ -1,8 +1,15 @@
 ---
-title: 🪴 Quartz 3.3
+title: Mahabrain 🧠 📚
 enableToc: false
 ---
 
+<img src="../assets/ISTA_OV.jpg" alt="ISTA_OV.jpg" width="450px" />
+
+Get started -> [Vault Index](sacred_obsidian_vault/index.md)
+- [afr/mind/mind00.md](sacred_obsidian_vault/afr/mind/mind00.md)
+
+
+## Use everything below as a reference
 Host your second brain and [digital garden](https://jzhao.xyz/posts/networked-thought) for free. Quartz features
 
 1. Extremely fast natural-language [[notes/search]]
