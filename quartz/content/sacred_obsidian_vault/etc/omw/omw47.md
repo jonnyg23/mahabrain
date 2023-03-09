@@ -1,0 +1,26 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Misc</a> 
+ <a href="index.htm">Index</a> 
+ <a href="omw46.htm">Previous</a> 
+ <a href="omw48.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="center">THE DEATH OF CONAIRE MÓR, THE KING OF IRELAND</h3>  <h3 align="center">I</h3>  
+ <p>When Eterscel, the king, died, a bull was slain; then one who was a diviner drank of the broth and ate of the flesh of the bull and went into a slumber, and truth-compelling spells were chanted over him. All this was done so that it might be shown to the people what man was destined to be king over them.. In his slumber the diviner cried out that he saw the one who was destined to be the King of Ireland: he saw him as a naked man carrying a sling, and with a stone in the sling, coming by night along the road to Tara. Messengers were forth. with sent to meet this naked man, and to bring him into the king's house and proclaim him king.</p>  
+ <p>Now at that time a youth who had been brought up in Eterscel's house and recognized as Eterscel's son was playing with his foster-brothers along the plain of the Liffey. This youth was Prince Conaire. And while he was with his foster-brothers he saw a flock of birds that were wonderful for their size and their colour, and he drove towards them. The birds flew, and lighted on the ground, and flew again as Conaire followed them; always they kept a spear-cast ahead of his chariot. He became separated from his foster-brothers. At last the birds lighted on the shore of the sea; then Conaire dismounted from his chariot, and went towards them, a sling in his hand.</p>  
+ <p><a name="page_146"><font size="1" color="GREEN">p. 146</font></a></p>  
+ <p>Thereupon the flock of birds turned themselves into men; they came towards him with spears and swords. One of them protected Conaire. "Know," he said to him, "that I am Nemglan, king of thy father's birds, and there is no one here but who is kin to thee."</p>  
+ <p>"Until now," said Conaire, "I knew not this."</p>  
+ <p>It was then that the youth learned of his parentage and of his descent. His mother was Mess Buachalla. She was called by that name which means "The Cowherds' Fosterling" because, from her infancy, she was brought up by two cowherds. She was reared in a hut of wattles, but her fosterers taught her many accomplishments, and no king's daughter was fairer than she was. One of King Eterscel's folk looked into the wattled hut one day; he saw there the fairest maiden in all Ireland, and he brought back to the king's household word of what he had seen. Now it had been told King Eterscel that he would marry a maiden of a strange race: when he heard of the Cowherds' Fosterling, he said, "This is the woman who is to be mine according to the prophecy."</p>  
+ <p>Now that day, while Mess Buachalla sat within her wattled hut with the last of the daylight coming through the wattles, a bird flew down through the opening of the roof. The bird changed into a man, a radiant being, and Mess Buachalla knew that he was one of the Danaan lords and from the Land of the Ever-living. They became lovers, he and she, and Conaire was the child of their love. Eterscel sent for Mess Buachalla, and she became his queen, and it was thought that Conaire was the son of King Eterscel.</p>  
+ <p>Now those who were of the Danaan folk both loved and hated the race from which Mess Buachalla had come. She was sprung from Etain who, in the Land of the Ever-living, was loved by Midir the Proud. Etain became a mortal and married Eochaid, the King of Ireland. And when Midir had drawn Etain back to the Land of the Ever-living, Eochaid had laid waste the places where the Danaan folk dwelt. From Eochaid who had laid waste these places, through Mess Buachalla, daughter of his daughter, Conaire was descended.</p>  
+ <p>Thus Conaire learned from Nemglan of his parentage and of his descent. "Thou shalt be made King of Ireland," Nemglan told him, "and these are things that thou must never do." Then Nemglan gave Conaire a list of <i>geise</i>, of things that were prohibited to him to do.</p>  
+ <p><a name="page_147"><font size="1" color="GREEN">p. 147</font></a></p>  
+ <p>"If thou dost break any of these prohibitions," he said, "nothing will stand in the way of the Danaan vengeance upon thy house." Thereafter he said, "A man stark naked who shall go at the end of the night along the road to Tara, having a sling and a stone in the sling--tis he shall be made king." Then Conaire stripped off his raiment and went naked through the night to Tara. Messengers were watching the roads for him. When they met the naked man they clothed him in royal garments and brought him into the king's house. All rejoiced to find that it was Prince Conaire who was given to them for king. His foster-brothers were there--Ferrogain, Fergobar, and Lomna Dru--and greatly did they rejoice at his being made King of Ireland.</p>  
+ <p></p><hr>
+ <center>
+ <a href="omw48.htm">Next: The Death of Conaire Mór, the King of Ireland, Part II</a></center>
+ </body>

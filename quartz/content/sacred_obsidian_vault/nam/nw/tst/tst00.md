@@ -1,0 +1,24 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br><a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Northwest</a> 
+ <a href="index.htm">Index</a> 
+ <a href="tst01.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h1 align="CENTER">TSIMSHIAN TEXTS</h1>
+ <h5 align="CENTER">(New Series)</h5>
+ <h2 align="CENTER">By Franz Boas</h2>
+ <h4 align="CENTER">Publications of the American Ethnological Society</h4>
+ <h4 align="CENTER">Volume III, Part 2</h4>
+ <h4 align="CENTER">Late E. J. Brill</h4>
+ <h4 align="CENTER">Publishers and Printers</h4>
+ <h4 align="CENTER">Leyden</h4>
+ <h4 align="CENTER">[1912]</h4>
+ <h6 align="CENTER">Scanned at sacred-texts.com, July 2003. J. B. Hare, redactor. This text is in the public domain. These files may be used for any non-commercial purpose, provided this notice of attribution is left intact.</h6>
+ <font face="Times Roman,Times New Roman"><p></p><hr>
+ </font><center>
+ <a href="tst01.htm">Next: Introduction</a></center>
+ </body>

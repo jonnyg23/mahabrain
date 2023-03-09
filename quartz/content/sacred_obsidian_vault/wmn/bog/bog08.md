@@ -1,0 +1,17 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Women</a> 
+ <a href="index.htm">Index</a> 
+ <a href="bog07.htm">Previous</a> 
+ <a href="bog09.htm">Next</a> 
+ </center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Book of the Goddess</i>, by Anna Livia Plurabelle, [© 2002 Anna Livia Plurabelle, All rights reserved], at sacred-texts.com</font></p><hr>  <h3 align="center">IV.</h3>  
+ <p>My mother was the one who told me that the girl arose;<br> She put her hands into the wood ashes;<br> She threw up the wood ashes into the sky.<br> She said to the wood ashes:<br> "The wood ashes which are here,<br> They must altogether become the Milky Way.<br> They must white lie along in the sky,<br> That the stars may stand outside of the Milky Way,<br> While the Milky Way is the Milky Way,<br> While it used to be wood ashes."<br> They (the ashes) altogether become the Milky Way.<br> The Milky Way must go round with the stars;<br> While the Milky Way feels that,<br> The Milky Way lies going round;<br> While the stars sail along; therefore,<br> The Milky Way, lying, goes along with the stars.<br> The Milky Way, when the Milky Way stands upon the earth,<br> The Milky Way turns across in front,<br> While the Milky Way means to wait,<br> While the Milky Way feels that the Stars are turning back;<br> While the Stars feel that the Sun is the one who has turned back;<br> She is upon his path; the Stars turn back;<br> While they go to fetch the daybreak;<br> That they may lie nicely,<br> While the Milky Way lies nicely.<br> The Stars shall also stand nicely around.</p>  
+ <p>They shall sail along upon their footprints,<br> Which they, always sailing along, are following.<br> While they feel that, they are the Stars which descend.<br> The Milky Way lying comes to its place,<br> To which the girl threw up the wood ashes,<br> That it may descend nicely;<br> It had lying gone along, while it felt that it lay upon the sky.<br> It had lying gone round, while it felt that the Stars also turned round.<br> They turning round passed over the sky.<br> The sky lies still; the Stars are those which go along;<br> While they feel that they sail.<br> They had been setting; they had, again,<br> Been coming out; they had, sailing along,<br> Been following their footprints.<br> They become white, when the Sun comes out.<br> The Sun sets, they stand around above;<br> While they feel that they did turning follow the Sun.<br> The darkness comes out; the Stars wax red,<br> While they had at first been white.<br> They feel that they stand brightly around;<br> That they may sail along; while they feel that it is night.<br> Then, the people go by night;<br> While they feel that the ground is made light.<br> While they feel that the Stars shine a little.<br> Darkness is upon the ground.<br> The Milky Way gently glows;<br> While it feels that it is wood ashes.<br> Therefore, it gently glows.<br> While it feels that the girl was the one who said<br> That the Milky Way should give a little light for the people,<br> that they might return home by night, in the middle of the night.<br> For, the earth would not have been a little light, had not the Milky Way been there.<br> It and the Stars.</p>  
+ <p></p><hr>
+ <center>
+ <a href="bog09.htm">Next: V</a></center>
+ </body>

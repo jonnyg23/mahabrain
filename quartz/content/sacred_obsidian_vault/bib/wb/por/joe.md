@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Portuguese Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> Palavra do Senhor, que foi dirigida a Joel, filho de Petuel.</p> 
+ <p><a name="an_1:2">1:2</a> Ouvi isto, vós anciãos, e escutai, todos os moradores da terra: Aconteceu isto em vossos dias, ou nos dias de vossos pais?</p> 
+ <p><a name="an_1:3">1:3</a> Fazei sobre isto uma narração a vossos filhos, e vossos filhos a transmitam a seus filhos, e os filhos destes � geração seguinte.</p> 
+ <p><a name="an_1:4">1:4</a> O que a locusta cortadora deixou, a voadora o comeu; e o que a voadora deixou, a devoradora o comeu; e o que a devoradora deixou, a destruidora o comeu.</p> 
+ <p><a name="an_1:5">1:5</a> Despertai, bêbedos, e chorai; gemei, todos os que bebeis vinho, por causa do mosto; porque tirado é da vossa boca.</p> 
+ <p><a name="an_1:6">1:6</a> Porque sobre a minha terra é vinda uma nação poderosa e inumerável. os seus dentes são dentes de leão, e têm queixadas de uma leoa.</p> 
+ <p><a name="an_1:7">1:7</a> Fez da minha vide uma assolação, e tirou a casca � minha figueira; despiu-a toda, e a lançou por terra; os seus sarmentos se embranqueceram.</p> 
+ <p><a name="an_1:8">1:8</a> Lamenta como a virgem que está cingida de saco, pelo marido da sua mocidade.</p> 
+ <p><a name="an_1:9">1:9</a> Está cortada da casa do Senhor a oferta de cereais e a libação; os sacerdotes, ministros do Senhor, estão entristecidos.</p> 
+ <p><a name="an_1:10">1:10</a> O campo está assolado, e a terra chora; porque o trigo está destruído, o mosto se secou, o azeite falta.</p> 
+ <p><a name="an_1:11">1:11</a> Envergonhai-vos, lavradores, uivai, vinhateiros, sobre o trigo e a cevada; porque a colheita do campo pereceu.</p> 
+ <p><a name="an_1:12">1:12</a> A vide se secou, a figueira se murchou; a romeira também, e a palmeira e a macieira, sim, todas as árvores do campo se secaram; e a alegria esmoreceu entre os filhos dos homens.</p> 
+ <p><a name="an_1:13">1:13</a> Cingi-vos de saco e lamentai-vos, sacerdotes; uivai, ministros do altar; entrai e passai a noite vestidos de saco, ministros do meu Deus; porque foi cortada da casa do vosso Deus a oferta de cereais e a libação.</p> 
+ <p><a name="an_1:14">1:14</a> Santificai um jejum, convocai uma assembléia solene, congregai os anciãos, e todos os moradores da terra, na casa do Senhor vosso Deus, e clamai ao Senhor.</p> 
+ <p><a name="an_1:15">1:15</a> Ai do dia! pois o dia do senhor está perto, e vem como assolação da parte do Todo-Poderoso.</p> 
+ <p><a name="an_1:16">1:16</a> Porventura não está cortado o mantimento de diante de nossos olhos? a alegria e o regozijo da casa do nosso Deus?</p> 
+ <p><a name="an_1:17">1:17</a> A semente mirrou debaixo dos seus torrões; os celeiros estão desolados, os armazéns arruinados; porque falharam os cereais.</p> 
+ <p><a name="an_1:18">1:18</a> Como geme o gado! As manadas de vacas estão confusas, porque não têm pasto; também os rebanhos de ovelhas estão desolados.</p> 
+ <p><a name="an_1:19">1:19</a> A ti clamo, ó Senhor; porque o fogo consumiu os pastos do deserto, e a chama abrasou todas as árvores do campo.</p> 
+ <p><a name="an_1:20">1:20</a> Até os animais do campo suspiram por ti; porque as correntes d'água se secaram, e o fogo consumiu os pastos do deserto.</p> 
+ <p><a name="an_2:1">2:1</a> Tocai a trombeta em Sião, e dai o alarma no meu santo monte. Tremam todos os moradores da terra, porque vem vindo o dia do Senhor; já está perto;</p> 
+ <p><a name="an_2:2">2:2</a> dia de trevas e de escuridão, dia de nuvens e de negrume! Como a alva, está espalhado sobre os montes um povo grande e poderoso, qual nunca houve, nem depois dele haverá pelos anos adiante, de geração em geração:</p> 
+ <p><a name="an_2:3">2:3</a> Diante dele um fogo consome, e atrás dele uma chama abrasa; a terra diante dele é como o jardim do Édem mas atrás dele um desolado deserto; sim, nada lhe escapa.</p> 
+ <p><a name="an_2:4">2:4</a> A sua aparência é como a de cavalos; e como cavaleiros, assim correm.</p> 
+ <p><a name="an_2:5">2:5</a> Como o estrondo de carros sobre os cumes dos montes vão eles saltando, como o ruído da chama de fogo que consome o restelho, como um povo poderoso, posto em ordem de batalha.</p> 
+ <p><a name="an_2:6">2:6</a> Diante dele estão angustiados os povos; todos os semblantes empalidecem.</p> 
+ <p><a name="an_2:7">2:7</a> Correm como valentes, como homens de guerra sobem os muros; e marcham cada um nos seus caminhos e não se desviam da sua fileira.</p> 
+ <p><a name="an_2:8">2:8</a> Não empurram uns aos outros; marcham cada um pelo seu carreiro; abrem caminho por entre as armas, e não se detêm.</p> 
+ <p><a name="an_2:9">2:9</a> Pulam sobre a cidade, correm pelos muros; sobem nas casas; entram pelas janelas como o ladrão.</p> 
+ <p><a name="an_2:10">2:10</a> Diante deles a terra se abala; tremem os céus; o sol e a lua escurecem, e as estrelas retiram o seu resplendor.</p> 
+ <p><a name="an_2:11">2:11</a> E o Senhor levanta a sua voz diante do seu exército, porque muito grande é o seu arraial; e poderoso é quem executa a sua ordem; pois o dia do Senhor é grande e muito terrível, e quem o poderá suportar?</p> 
+ <p><a name="an_2:12">2:12</a> Todavia ainda agora diz o Senhor: Convertei-vos a mim de todo o vosso coração; e isso com jejuns, e com choro, e com pranto.</p> 
+ <p><a name="an_2:13">2:13</a> E rasgai o vosso coração, e não as vossas vestes; e convertei-vos ao Senhor vosso Deus; porque ele é misericordioso e compassivo, tardio em irar-se e grande em benignidade, e se arrepende do mal.</p> 
+ <p><a name="an_2:14">2:14</a> Quem sabe se não se voltará e se arrependerá, e deixará após si uma bênção, em oferta de cereais e libação para o Senhor vosso Deus?</p> 
+ <p><a name="an_2:15">2:15</a> Tocai a trombeta em Sião, santificai um jejum, convocai uma assembléia solene;</p> 
+ <p><a name="an_2:16">2:16</a> congregai o povo, santificai a congregação, ajuntai os anciãos, congregai os meninos, e as crianças de peito; saia o noivo da sua recâmara, e a noiva do seu tálamo.</p> 
+ <p><a name="an_2:17">2:17</a> Chorem os sacerdotes, ministros do Senhor, entre o alpendre e o altar, e digam: Poupa a teu povo, ó Senhor, e não entregues a tua herança ao opróbrio, para que as nações façam escárnio dele. Por que diriam entre os povos: Onde está o seu Deus?</p> 
+ <p><a name="an_2:18">2:18</a> Então o Senhor teve zelo da sua terra, e se compadeceu do seu povo.</p> 
+ <p><a name="an_2:19">2:19</a> E o Senhor, respondende, disse ao seu povo: Eis que vos envio o trigo, o vinho e o azeite, e deles sereis fartos; e vos não entregarei mais ao opróbrio entre as nações;</p> 
+ <p><a name="an_2:20">2:20</a> e removerei para longe de vós o exército do Norte, e o lançarei para uma terra seca e deserta, a sua frente para o mar oriental, e a sua retaguarda para o mar ocidental; subirá o seu mau cheiro, e subirá o seu fedor, porque ele tem feito grandes coisas.</p> 
+ <p><a name="an_2:21">2:21</a> Não temas, ó terra; regozija-te e alegra-te, porque o Senhor tem feito grandes coisas.</p> 
+ <p><a name="an_2:22">2:22</a> Não temais, animais do campo; porque os pastos do deserto já reverdecem, porque a árvore dá o seu fruto, e a vide e a figueira dão a sua força.</p> 
+ <p><a name="an_2:23">2:23</a> Alegrai-vos, pois, filhos de Sião, e regozijai-vos no Senhor vosso Deus; porque ele vos dá em justa medida a chuva temporã, e faz descer abundante chuva, a temporã e a serôdia, como dantes.</p> 
+ <p><a name="an_2:24">2:24</a> E as eiras se encherão de trigo, e os lagares trasbordarão de mosto e de azeite.</p> 
+ <p><a name="an_2:25">2:25</a> Assim vos restituirei os anos que foram consumidos pela locusta voadora, a devoradora, a destruidora e a cortadora, o meu grande exército que enviei contra vós.</p> 
+ <p><a name="an_2:26">2:26</a> Comereis abundantemente e vos fartareis, e louvareis o nome do Senhor vosso Deus, que procedeu para convosco maravilhosamente; e o meu povo nunca será envergonhado.</p> 
+ <p><a name="an_2:27">2:27</a> Vós, pois, sabereis que eu estou no meio de Israel, e que eu sou o Senhor vosso Deus, e que não há outro; e o meu povo nunca mais será envergonhado.</p> 
+ <p><a name="an_2:28">2:28</a> Acontecerá depois que derramarei o meu Espírito sobre toda a carne; vossos filhos e vossas filhas profetizarão, os vossos anciãos terão sonhos, os vossos mancebos terão visões;</p> 
+ <p><a name="an_2:29">2:29</a> e também sobre os servos e sobre as servas naqueles dias derramarei o meu Espírito.</p> 
+ <p><a name="an_2:30">2:30</a> E mostrarei prodígios no céu e na terra, sangue e fogo, e colunas de fumaça.</p> 
+ <p><a name="an_2:31">2:31</a> O sol se converterá em trevas, e a lua em sangue, antes que venha o grande e terrível dia do Senhor.</p> 
+ <p><a name="an_2:32">2:32</a> E há de ser que todo aquele que invocar o nome do Senhor será salvo; pois no monte Sião e em Jerusalém estarão os que escaparem, como disse o Senhor, e entre os sobreviventes aqueles que o Senhor chamar.</p> 
+ <p><a name="an_3:1">3:1</a> Pois eis que naqueles dias, e naquele tempo, em que eu restaurar os exilados de Judá e de Jerusalém,</p> 
+ <p><a name="an_3:2">3:2</a> congregarei todas as nações, e as farei descer ao vale de Jeosafá; e ali com elas entrarei em juízo, por causa do meu povo, e da minha herança, Israel, a quem elas espalharam por entre as nações; repartiram a minha terra,</p> 
+ <p><a name="an_3:3">3:3</a> e lançaram sortes sobre o meu povo; deram um menino por uma meretriz, e venderam uma menina por vinho, para beberem.</p> 
+ <p><a name="an_3:4">3:4</a> E também que tendes vós comigo, Tiro e Sidom, e todas as regiões da Filístia? Acaso quereis vingar-vos de mim? Se assim vos quereis vingar, bem depressa retribuirei o vosso feito sobre a vossa cabeça.</p> 
+ <p><a name="an_3:5">3:5</a> Visto como levastes a minha prata e o meu ouro, e os meus ricos tesouros metestes nos vossos templos;</p> 
+ <p><a name="an_3:6">3:6</a> também vendestes os filhos de Judá e os filhos de Jerusalém aos filhos dos gregos, para os apartar para longe dos seus termos;</p> 
+ <p><a name="an_3:7">3:7</a> eis que eu os suscitarei do lugar para onde os vendestes, e retribuirei o vosso feito sobre a vossa cabeça;</p> 
+ <p><a name="an_3:8">3:8</a> pois venderei vossos filhos e vossas filhas na mão dos filhos de Judá, e estes os venderão aos sabeus, a uma nação remota, porque o Senhor o disse.</p> 
+ <p><a name="an_3:9">3:9</a> Proclamai isto entre as nações: Preparai a guerra, suscitai os valentes. Cheguem-se todos os homens de guerra, subam eles todos.</p> 
+ <p><a name="an_3:10">3:10</a> Forjai espadas das relhas dos vossos arados, e lanças das vossas podadeiras; diga o fraco: Eu sou forte.</p> 
+ <p><a name="an_3:11">3:11</a> Apressai-vos, e vinde, todos os povos em redor, e ajuntai- vos; para ali, ó Senhor, faze descer os teus valentes.</p> 
+ <p><a name="an_3:12">3:12</a> Suscitem-se as nações, e subam ao vale de Jeosafá; pois ali me assentarei, para julgar todas as nações em redor.</p> 
+ <p><a name="an_3:13">3:13</a> Lançai a foice, porque já está madura a seara; vinde, descei, porque o lagar está cheio, os vasos dos lagares trasbordam, porquanto a sua malícia é grande.</p> 
+ <p><a name="an_3:14">3:14</a> Multidões, multidões no vale da decisão! porque o dia do Senhor está perto, no vale da decisão.</p> 
+ <p><a name="an_3:15">3:15</a> O sol e a lua escurecem, e as estrelas retiram o seu resplendor.</p> 
+ <p><a name="an_3:16">3:16</a> E o Senhor brama de Sião, e de Jerusalém faz ouvir a sua voz; os céus e a terra tremem, mas o Senhor é o refúgio do seu povo, e a fortaleza dos filhos de Israel.</p> 
+ <p><a name="an_3:17">3:17</a> Assim vós sabereis que eu sou o Senhor vosso Deus, que habito em Sião, o meu santo monte; Jerusalém será santa, e estranhos não mais passarão por ela.</p> 
+ <p><a name="an_3:18">3:18</a> E naquele dia os montes destilarão mosto, e os outeiros manarão leite, e todos os ribeiros de Judá estarão cheios de águas; e sairá uma fonte da casa do Senhor, e regará o vale de Sitim.</p> 
+ <p><a name="an_3:19">3:19</a> O Egito se tornará uma desolação, e Edom se fará um deserto assolado, por causa da violência que fizeram aos filhos de Judá, em cuja terra derramaram sangue inocente.</p> 
+ <p><a name="an_3:20">3:20</a> Mas Judá será habitada para sempre, e Jerusalém de geração em geração.</p> 
+ <p><a name="an_3:21">3:21</a> E purificarei o sangue que eu não tinha purificado; porque o Senhor habita em Sião.</p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

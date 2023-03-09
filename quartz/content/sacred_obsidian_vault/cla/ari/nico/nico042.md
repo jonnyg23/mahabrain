@@ -1,0 +1,20 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Classics</a> 
+ <a href="../index.htm">Aristotle</a> 
+ <a href="index.htm">Index</a> 
+ <a href="nico041.htm">Previous</a> 
+ <a href="nico043.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="CENTER">Chapter 8.</h3> <h4 align="CENTER">Ready wit, buffoonery, boorishness.</h4> 
+ <p>Since life includes rest as well as activity, and in this is included leisure and amusement, there seems here also to be a kind of intercourse which is tasteful; there is such a thing as saying -- and again listening to--what one should and as one should. The kind of people one is speaking or listening to will also make a difference. Evidently here also there is both an excess and a deficiency as compared with the mean. Those who carry humour to excess are thought to be vulgar buffoons, striving after humour at all costs, and aiming rather at raising a laugh than at saying what is becoming and at avoiding pain to the object of their fun; while those who can neither make a joke themselves nor put up with those who do are thought to be boorish and unpolished. But those who joke in a tasteful way are called ready-witted, which implies a sort of readiness to turn this way and that; for such sallies are thought to be movements of the character, and as bodies are discriminated by their movements, so too are characters. The ridiculous side of things is not far to seek, however, and most people delight more than they should in amusement and in jestinly. and so even buffoons are called ready-witted because they are found attractive; but that they differ from the ready-witted man, and to no small extent, is clear from what has been said.</p> 
+ <p>To the middle state belongs also tact; it is the mark of a tactful man to say and listen to such things as befit a good and well-bred man; for there are some things that it befits such a man to say and to hear by way of jest, and the well-bred man's jesting differs from that of a vulgar man, and the joking of an educated man from that of an uneducated. One may see this even from the old and the new comedies; to the authors of the former indecency of language was amusing, to those of the latter innuendo is more so; and these differ in no small degree in respect of propriety. Now should we define the man who jokes well by his saying what is not unbecoming to a well-bred man, or by his not giving pain, or even giving delight, to the hearer? Or is the latter definition, at any rate, itself indefinite, since different things are hateful or pleasant to different people? The kind of jokes he will listen to will be the same; for the kind he can put up with are also the kind he seems to make. There are, then, jokes he will not make; for the jest is a sort of abuse, and there are things that lawgivers forbid us to abuse; and they should, perhaps, have forbidden us even to make a jest of such. The refined and well-bred man, therefore, will be as we have described, being as it were a law to himself.</p> 
+ <p>Such, then, is the man who observes the mean, whether he be called tactful or ready-witted. The buffoon, on the other hand, is the slave of his sense of humour, and spares neither himself nor others if he can raise a laugh, and says things none of which a man of refinement would say, and to some of which he would not even listen. The boor, again, is useless for such social intercourse; for he contributes nothing and finds fault with everything. But relaxation and amusement are thought to be a necessary element in life.</p> 
+ <p>The means in life that have been described, then, are three in number, and are all concerned with an interchange of words and deeds of some kind. They differ, however, in that one is concerned with truth; and the other two with pleasantness. Of those concerned with pleasure, one is displayed in jests, the other in the general social intercourse of life.</p> 
+ <p></p><hr>
+ <center>
+ <a href="nico043.htm">Next: Chapter 9. Shame, bashfulness, shamelessness</a></center>
+ </body>

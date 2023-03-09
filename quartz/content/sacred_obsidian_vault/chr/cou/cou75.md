@@ -1,0 +1,24 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cou74.htm">Previous</a> 
+ <a href="cou76.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B00295S2X6/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Cloud of Unknowing</i>, ed. by Evelyn Underhill, [1922], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_lxxvi"></a> </p>  
+ <p><a name="an_lxxvi-p1"></a> </p>  <h3 align="center"><a name="an_lxxvi-p1.1"></a>HERE BEGINNETH THE SEVENTIETH CHAPTER</h3>  
+ <p><a name="an_lxxvi-p2"></a> </p>  
+ <p><a name="an_lxxvi-p3"></a>That right as by the defailing of our bodily wits we begin more readily to come to knowing of ghostly things, so by the defailing of our ghostly wits we begin most readily to come to the knowledge of God, such as is possible by grace to be had here.</p>  
+ <p><a name="an_lxxvi-p4"></a><i> </i></p>  
+ <p><a name="an_lxxvi-p5"></a>AND therefore travail fast in this nought, and this nowhere, and leave thine outward bodily wits and all that they work in: for I tell thee truly, that this work may not be conceived by them.</p>  
+ <p><a name="an_lxxvi-p6"></a>For by thine eyes thou mayest not conceive of anything, unless it be by the length and the breadth, the smallness and the greatness, the roundness and the squareness, the farness and the nearness, and the colour of it. <a name="an_lxxvi-p6.1"></a><a name="page_296"><font size="1" color="green">p. 296</font></a> <a name="an_lxxvi-Page_296"></a> And by thine ears, nought but noise or some manner of sound. By thine nose, nought but either stench or savour. And by thy taste, nought but either sour or sweet, salt or fresh, bitter or liking. And by thy feeling, nought but either hot or cold, hard or tender, soft or sharp. And truly, neither hath God nor ghostly things none of these qualities nor quantities. And therefore leave thine outward wits, and work not with them, neither within nor without: for all those that set them to be ghostly workers within, and ween that they should either hear, smell, or see, taste or feel, ghostly things, either within them or without, surely they be deceived, and work wrong against the course of nature.</p>  
+ <p><a name="an_lxxvi-p7"></a>For by nature they be ordained, that with them men should have knowing of all outward bodily things, and on nowise by them come to the knowing of ghostly things. I mean by their works. By their failings we may, as thus: when we read or hear <a name="an_lxxvi-p7.1"></a><a name="page_297"><font size="1" color="green">p. 297</font></a> <a name="an_lxxvi-Page_297"></a> speak of some certain things, and thereto conceive that our outward wits cannot tell us by no quality what those things be, then we may be verily certified that those things be ghostly things, and not bodily things.</p>  
+ <p><a name="an_lxxvi-p8"></a>On this same manner ghostly it fareth within our ghostly wits, when we travail about the knowing of God Himself. For have a man never so much ghostly understanding in knowing of all made ghostly things, yet may he never by the work of his understanding come to the knowing of an unmade ghostly thing: the which is nought but God. But by the failing it may: for why, that thing that it faileth in is nothing else but only God. And therefore it was that Saint Denis said, <i>the most goodly knowing of God is that, the which is known by unknowing. </i>And truly, whoso will look in Denis’ books, he shall find that his words will clearly affirm all that I have said or shall say, from <a name="an_lxxvi-p8.1"></a><a name="page_298"><font size="1" color="green">p. 298</font></a> <a name="an_lxxvi-Page_298"></a> the beginning of this treatise to the end. On otherwise than thus, list me not cite him, nor none other doctor, for me at this time. For sometime, men thought it meekness to say nought of their own heads, unless they affirmed it by Scripture and doctors’ words: and now it is turned into curiosity, and shewing of cunning. To thee it needeth not, and therefore I do it not. For whoso hath ears, let him hear, and whoso is stirred for to trow, let him trow: for else, shall they not. <a name="an_lxxvi-p8.2"></a><a name="page_299"><font size="1" color="green">p. 299</font></a> <a name="an_lxxvi-Page_299"></a></p>  
+ <p></p><hr>
+ <center>
+ <a href="cou76.htm">Next: Chapter 71: That some may not come to feel the perfection of this work but in time of ravishing, and some may have it when they will, in the common state of man's soul</a></center>
+ </body>

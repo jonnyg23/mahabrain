@@ -1,0 +1,45 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">UFOs</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sos06.htm">Previous</a> 
+ <a href="sos08.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0007EHL0Q/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg" border="0"></a><br><i>The Secret of the Saucers</i>, by Orfeo M. Angelucci, [1955], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_58"><font size="1" color="GREEN">p. 58</font></a></p>  <h3 align="center">CHAPTER V</h3>  <h3 align="center">THE PAST IS NEVER DEAD!</h3>  
+ <p>The Christmas holidays arrived with their gay, festive spirit and usual bustling excitement. By then things had settled back to normal and I had experienced no further contacts. Flying saucers seemed to have vanished from the skies; practically no accounts of sightings appeared in the newspapers. Although I had completed the manuscript for <i>The Twentieth Century Times</i>, I couldn't get up the courage to have it published.</p>  
+ <p>Mabel kept saying: "Orfie, if you publish that, people will think you are completely crazy. Why don't you just forget it! Nothing good can ever come of it. Everything is going along so smoothly now; we're both working and the boys are happylet's just leave it that way."</p>  
+ <p>"But, Mae . . ." I'd remonstrate. "Don't you understand; these things really happened to me! It is my duty to tell what I know!"</p>  
+ <p>"And just what thanks will you get for it? Do you want to be ridiculed, laughed at and considered a crackpot or a psycho? Think back! Remember how everybody talked when you first told that wild story about a trip in a flying saucer. What did it get you but ridicule! Even if it did happen, Orfie, forget it! Just forget the whole thing for your family's sake. Let's be happy and enjoy life."</p>  
+ <p><a name="page_59"><font size="1" color="GREEN">p. 59</font></a></p>  
+ <p>Thus although I felt I was betraying Neptune, I let things drift and made no effort to get my story published. In fact on New Year's Day, 1953 our lives were going along so smoothly and pleasantly that I had decided to forget it all insofar as the world was concerned and let those incredible experiences become a part of the dead past of 1952.</p>  
+ <p>But the events of 1952 would not rest. During the latter part of January, 1953 the front pages of the newspapers were carrying sensational new saucer stories. The Air Force released reports that flying disks and strange clusters of lights were numerous over Korea. F-94 Starfires had encountered several of the saucers and one of their pilots had gotten a radar magnetic lock on one of them. Northern Japan too had many sightings.</p>  
+ <p>The reports made me restless. At night I frequently went outside and scanned the heavens. Frequently I saw the disks overhead as roving lights. Any casual observer would not give a second glance, but simply pass the lights off as ordinary airplane lights. And since our apartment was close to several large airports, there were usually airplanes visible at all times. I should never have been able to distinguish saucer lights from those of aircraft were it not for the peculiar sensitivity of my nervous system to the electro-magnetic effect of the saucers.</p>  
+ <p>Then I began to be ashamed of myself for having failed so completely the trust that Neptune had placed in me. He had said: "The road will open, Orfeo; travel it as you will." I realized that thus</p>  
+ <p><a name="page_60"><font size="1" color="GREEN">p. 60</font></a></p>  
+ <p>far I had refused to travel the road and except for the few talks I had made to small groups I had done nothing to help people understand the strange visitors. More and more every day I realized how selfish I was in thinking first of my family and myself. Finally I knew there was no alternative for me. Come what may, I had to go ahead with publication of the facts of my experiences. It was the only constructive thing I could think of to do.</p>  
+ <p>Without discussing the matter any further with Mabel, I took the manuscript for <i>The Twentieth Century Times</i> to several local publishers. None of them were encouraging. Far from it! The first one I approached was highly amused and a little contemptuous as he said: "You'd better send this thing to a science-fiction mag, old boy, unless you want to land in a strait-jacket."</p>  
+ <p>The next publisher I tried told me how rambling and incoherently the thing was written. "You forget I'm not a writer, "I replied. "I've done the best I can and all of the facts are there."</p>  
+ <p>He laughed. "You say the facts are herebut are they? You start off by saying these experiences are true and yet before the narrative is completed you have inferred several times that they could be imaginary. In fact, right here on the front page you make the statement: 'This story is either a yarn or it is real!' What kind of facts are those? And how can you expect people to accept the paper as actual fact?"</p>  
+ <p>"I've thought of all that," I replied. "Frankly,</p>  
+ <p><a name="page_61"><font size="1" color="GREEN">p. 61</font></a></p>  
+ <p>it was my idea to break the news gently. In other words, to let the readers feel uncertain at first as to the absolute authenticity of the facts. To tell this entire thing at first as fact is too much of a shock for an unstable world. As you yourself say, I might be hustled off to a mental institution. Let the truth of what I have to say develop gradually."</p>  
+ <p>After considerably more talk along these same lines, he agreed to publish it, but only if I would permit him to edit it and delete major portions of the story. I flatly refused and he in turn refused to have anything to do with publication of the manuscript.</p>  
+ <p>And so it went. I tried publisher after publisher with the same discouraging results. At last, however, I found a small publishing house that was willing to print the piece word for word as written if I would pay all publishing costs and take all of the papers myself. I agreed to do this. But as we parted he shook his head and said: "Pardon me for saying this, Mr. Angelucci, but I honestly think you are making a grave mistake. Not only are you throwing your money away, but you are liable to make yourself a public laughing stock."</p>  
+ <p>"I'll have to risk all that," I answered. "There is no alternative for me; I must publish that paper."</p>  
+ <p>Thus on February 19, 1953, the one and only issue of <i>The Twentieth Century Times</i> came off the press, an eight-page, tabloid-type newspaper which carried word for word an account of all my experiences I felt it was wise for me to release. I breathed</p>  
+ <p><a name="page_62"><font size="1" color="GREEN">p. 62</font></a></p>  
+ <p>a huge sigh of relief when I saw the paper, for I felt that I had satisfied a debt.</p>  
+ <p>When I walked into our apartment with an armful of the papers Mabel took one horrified look at one of the sheets and sank down in a chair. "Oh Orfie, you didn't do it! You didn't! This thing is dynamite. It can wreck us. Wreck your job, my job and the boys' schooling. This can finish everything we've built up here."</p>  
+ <p>"I'm sorry, Mae," I replied doggedly. "Believe me, there is no other way out for me. I've got to live with myself; so I had to do it. I hope you'll try to understand."</p>  
+ <p>But I knew Mae didn't understand. And as copies of the paper got around, many of her predicted reactions occurred. People began ridiculing me outright and several papers published sarcastic news items about me and my experiences, subtly inferring that I "wasn't all there". Believe me, it wasn't easy to bear, and especially did I suffer for my family. The boys were ribbed unmercifully at school and at her job at the snack bar Mabel was the constant target for the sharp barbs of wit aimed at me.</p>  
+ <p>But the response was not entirely negative. Some persons became genuinely interested. About that time I resumed my weekly talks at the Club House and thus I was able to distribute the papers at the meetings. As more and more persons became interested and ceased to take my <i>Twentieth Century Times</i> as a joke, I began to feel that all might not</p>  
+ <p><a name="page_63"><font size="1" color="GREEN">p. 63</font></a></p>  
+ <p>be lost. And more important, I could face my reflection in the mirror again, happy in the thought that I had not entirely failed the space visitors.</p>  
+ <p></p><hr>
+ <center>
+ <a href="sos08.htm">Next: Chapter VI. Airplanes Do Disappear!</a></center>
+ </body>

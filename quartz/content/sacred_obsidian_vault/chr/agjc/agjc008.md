@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc007.htm">Previous</a> 
+ <a href="agjc009.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 5</h4> <i>
+ </i><p>Three magian priests honour Jesus. Herod is alarmed. Calls a council of the Jews. Is told that prophets had foretold the coming of a king. Herod resolves to kill the child. Mary and Joseph take Jesus and flee into Egypt.<br> <br> <b>1. </b>Beyond the river Euphrates the magians lived; and they were wise, could read the language of the stars, and they divined that one, a master soul, was born; they saw his star above Jerusalem.<br> <b>2. </b>And there were three among the magian priests who longed to see the master of the coming age; and they took costly gifts and hastened to the West in search of him, the new-born king, that they might honour him.<br> <b>3. </b>And one took gold, the symbol of nobility; another myrrh, the symbol of dominion and of power; gum-thus the other took, the symbol of the wisdom of the sage.<br> <b>4. </b>Now when the magians reached Jerusalem the people were amazed, and wondered who they were and why they came.<br> <b>5. </b>And when they asked, Where is the child that has been born a king? the very throne of Herod seemed to shake.<br> <b>6. </b>And Herod sent a courtier forth to bring the magians to his court.<br> <b>7. </b>And when they came they asked again, Where is the new born king? And then they said, While yet beyond the Euphates we saw his star arise, and we have come to honour him.<br> <b>8. </b>And Herod blanched with fear. He thought, perhaps, the priests were plotting to restore the kingdom of the Jews, and so he said within himself, I will know more about this child that has been born a king.<br> <b>9. </b>And so he told the magian priests to tarry in the city for a while and he would tell them all about the king.<br> <b>10. </b>He called in council all the Jewish masters of the law and asked, What have the Jewish prophets said concerning such a one?<br> <b>11. </b>The Jewish masters answered him and said, The prophets long ago foretold that one would come to rule the tribes of Israel; that this Messiah would be born in Bethlehem.<br> <b>12. </b>They said, The prophet Micah wrote, O Bethlehem Judea, a little place among the Judean hills, yet out of you will one come forth to rule my people, Israel; yea, one who lived in olden times, in very ancient days.<br> <b>13. </b>Then Herod called the magian priests again and told them what the masters of the Jewish law had said; and then he sent them on the way to Bethlehem.<br> <b>14. </b>He said, Go search, and if you find the child that has been born a king, return and tell me all, that I may go and honour him.<br> <b>15. </b>The magians went their way and found the child with Mary in the shepherd's home.<br> <b>16. </b>They honoured him; bestowed upon him precious gifts and gave him gold, gum-thus and myrrh.<br> <b>17. </b>These magian priests could read the hearts of men; they read the wickedness of Herod's heart, and knew that he had sworn to kill the new born king.<br> <b>18. </b>And so they told the secret to the parents of the child, and bid them flee beyond the reach of harm.<br> <b>19. </b>And then the priests went on their homeward way; they went not through Jerusalem.<br> <b>20. </b>And Joseph took the infant Jesus and his mother in the night and fled to Egypt land, and with Elihu and Salome in ancient Zoan they abode.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc009.htm">Next: Chapter 6</a></center>
+ </div>
+ </center></body>

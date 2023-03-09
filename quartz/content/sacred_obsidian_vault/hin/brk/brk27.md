@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Hinduism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="brk26.htm">Previous</a> 
+ <a href="brk28.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002DEMAYK/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="../../img/tn_hin.jpg"></a><br><i>Brahma Knowledge</i>,  by L. D. Barnett, [1911], at sacred-texts.com</font></p><hr>  
+ <p>§ 24. <span style="font-variant:small-caps;">Salvation</span>.—I. <i>Upanishads.</i>—Release of the soul <i>(mukti, moksha)</i>, which falls to the lot of the elect few, consists in enlightenment, intuitive vision of the eternal unity of the thinker's Self with Brahma, to which he has hitherto been blind. When once this saving knowledge has been gained, the enlightened man is no longer under the power of "works." He has everything in himself, for he is one with the All; together with the false idea of a self distinct from the universal Self the forces of former works have vanished away; thus he has no desire and no pain, and can have none. And when his soul has cast off the body, it will be reborn nevermore; it is united for ever with the Absolute Brahma. See especially the fine exposition in B.A. IV. ii.-iv.; also Ch. VII. xxvi. 2, Taitt. II. 9, Kena 11-12,</p>  
+ <p><a name="page_51"><font size="1" color="green">p. 51</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Muṇḍ. II. ii. 8, III. ii. 9, and Śankara on Brahma-sūtra, I. i. 4, III. iv. 1 f., IV. i. 13 f.</p>  
+ <p>II. <i>Later Vedānta.</i>—Śankara points out that this saving intuition is unattainable by effort of will or thought; it arises from the power of the inner self, the metaphysical ego within us, which from a theistic and therefore empiric standpoint may be conceived as personal God, "the Lord," or "qualified Brahma" (§§ 12, 22). This knowledge annuls not only all sins, but likewise all works, no matter whether good or bad, which have not yet begun to bear fruit in present experience. The works however which are the cause of the present series of experience must continue in operation even after the attainment of enlightenment, until their power is exhausted, whereupon the soul leaves the flesh for ever, as the potter's wheel continues to run round for a while after the potter's hand has been removed; but this subsequent bodily experience no longer has any influence upon the soul. The B.A. IV. iv. 6 teaches that, whereas on death the souls of those who have only exoteric knowledge or no knowledge at all go forth to continue in empiric conditions, the Self of the enlightened man does not "go out" <i>(na utkrāmanti)</i>, but enters into Brahma, with entire annihilation of spatial conditions; its <i>upādhis</i> or "determinations" wholly vanish, and it is absorbed in abstract entirety into the abstract Brahma (on Brahma-sūtra III. iii. 30, IV. ii. 12 f.). See § 15.</p>  
+ <p><a name="page_52"><font size="1" color="green">p. 52</font></a></p>  
+ <p>There has been much speculation upon the divisions of <i>karma.</i> A common classification is that which divides it into <i>sanchita, prārabdha,</i> and <i>kriyamāṇa.</i> The <i>sanchita</i> or "accumulated" <i>karma</i> is that which was created in former births and has not yet begun to operate upon the soul. <i>Prārabdha</i> or "commenced" <i>karma</i> is that which has already begun to affect the soul. <i>Kriyamāṇa</i> is "being made," that is, it is the activity of the present which will influence the soul in future births. The intellectual illumination of perfect "Brahma-knowledge" annuls both <i>sanchita</i> and <i>kriyamāṇa;</i> only the <i>prārabdha</i> remains, and this exhausts itself mechanically by prolonging the sage's physical life until all influence of <i>karma</i> is spent, and his body then dies.</p>  
+ <p>The later Vedānta designates by the term <i>jīvanmukti</i> the condition of the enlightened sage previous to death, while his <i>prārabdha</i> karma is exhausting itself; his subsequent condition is called <i>videha-mukti,</i> "emancipation in freedom from the body."</p>  
+ <p></p><hr>
+ <center>
+ <a href="brk28.htm">Next: The After Life</a></center>
+ </body>

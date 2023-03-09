@@ -1,0 +1,34 @@
+<body>
+ <h1 align="CENTER">Errata</h1>
+ <p><a name="0"></a>page xxi: '2'-&gt;'3'</p><hr>
+ <p><a name="1"></a>page 16: 'consequencee'-&gt;'consequence'</p><hr>
+ <p><a name="2"></a>page 61: 'inartifical'-&gt;'inartificial'</p><hr>
+ <p><a name="3"></a>page 64: 'sacricial'-&gt;'sacrificial'</p><hr>
+ <p><a name="4"></a>page 90: 'sees'-&gt;'seas'</p><hr>
+ <p><a name="5"></a>page 98: 'Suchchháyá'-&gt;'Suchcháyá'</p><hr>
+ <p><a name="6"></a>page 184: 'Váya'-&gt;'Váyu'</p><hr>
+ <p><a name="7"></a>page 184: 'condered'-&gt;'considered'</p><hr>
+ <p><a name="8"></a>page 226: 'Sravańá'-&gt;'Śravańá'</p><hr>
+ <p><a name="9"></a>page 239: 'apportiontment'-&gt;'apportionment'</p><hr>
+ <p><a name="10"></a>page 261: 'Praderśanas'-&gt;'Pradarśanas'</p><hr>
+ <p><a name="11"></a>page 266: 'Víshńu'-&gt;'Vishńu'</p><hr>
+ <p><a name="12"></a>page 273: 'seventeeth'-&gt;'seventeenth'</p><hr>
+ <p><a name="13"></a>page 290: 'Vansa'-&gt;'Vanśa'</p><hr>
+ <p><a name="14"></a>page 322: 'Matsysa'-&gt;'Matsya'</p><hr>
+ <p><a name="15"></a>page 332: 'occsions'-&gt;'occasions'</p><hr>
+ <p><a name="16"></a>page 350: 'Rámáyáńa'-&gt;'Rámáyáńa'</p><hr>
+ <p><a name="17"></a>page 354: 'it it'-&gt;'it'</p><hr>
+ <p><a name="18"></a>page 386: 'Matysa'-&gt;'Matsya'</p><hr>
+ <p><a name="19"></a>page 398: 'name'-&gt;'son'</p><hr>
+ <p><a name="20"></a>page 428: 'the the'-&gt;'the'</p><hr>
+ <p><a name="21"></a>page 459: 'of of'-&gt;'of'</p><hr>
+ <p><a name="22"></a>page 551: 'assemby'-&gt;'assembly'</p><hr>
+ <p><a name="23"></a>page 565: 'at at'-&gt;'at'</p><hr>
+ <p><a name="24"></a>page 571: 'liqour'-&gt;'liquor'</p><hr>
+ <p><a name="25"></a>page 584: 'Saytabhámá'-&gt;'Satyabhámá'</p><hr>
+ <p><a name="26"></a>page 602: 'Yúdhisht́hira'-&gt;'Yudhisht́hira'</p><hr>
+ <p><a name="27"></a>page 607: ''''-&gt;' '</p><hr>
+ <p><a name="28"></a>page 614: 'Dehli'-&gt;'Delhi'</p><hr>
+ <p><a name="29"></a>page 639: 'he he'-&gt;'he'</p><hr>
+ <p><a name="30"></a>page 700: 'Namatá'-&gt;'Mamatá'</p><hr>
+ </body>

@@ -1,0 +1,35 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Inuit</a> 
+ <a href="../../../asia/index.htm#siberia">Siberian</a> 
+ <a href="index.htm">Index</a> 
+ <a href="eos03.htm">Previous</a> 
+ <a href="eos05.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002EQAB3E/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Eskimo of Siberia</i>, by Waldemar Bogoras, [1913], at sacred-texts.com</font></p><hr> 
+ <p align="center">  </p><h3 align="center">3. The One without Arms.</h3>  
+ <p>   A man who had no food lived by angling. One time he went to the sea to catch some <i>vakhna</i> fish. He threw his fish-line into the water and drew out a small Fish-Woman no longer than a finger. He was much frightened. "Oh," said he, "it is something evil! I will throw it back into    <a name="page_421"><font size="1" color="green">p. 421</font></a>  the water." — "Do not throw me back!" said Fish-Woman, "rather take me for your wife!" — "How can I take you for my wife, when you are so small?" — "That is all right. Take me for your wife!"</p>  
+ <p>   He married her; and they lay down on the snow and slept together, although she was so small. Immediately she was with child, and early in the morning she bore a son. He had neither arms nor legs. Then the mother jumped into the water and was gone.</p>  
+ <p>   The father took his little son and carried him home. He had also a human wife, and even a companion in marriage. <a name="fr_1"></a><a href="#fn_1"><font size="1">1</font></a> The latter felt aversion against the One-without-Arms. He considered him to forebode evil. Therefore he left the settlement and emigrated in a boat to the opposite shore.</p>  
+ <p>   A rich man living on that shore heard about Armless, and became interested. He sent for him, because he wished to see him. "Go and bring me my bag of peltries." They brought the bag. He drew out a fox-skin. "There!" said he, "give that to his father, and say, 'The man on the other shore wants to see Armless.'" The messenger reached their house, and, without entering, thrust his head into the sleeping-room and said, "There is a fox-skin for you. A man living on the other shore wishes to see Armless." The father said, "No!" The messenger, without entering their house, returned home, and reported to the rich man that they did not want to let him go.</p>  
+ <p>   The rich man was astonished. So he said again, "Bring me my bag of peltries." They brought it, and he drew out of it an otter-skin nearly a fathom long, and quite black. "There! give that to them, and say, 'The man living on the other shore wants to see Armless.'" The father again refused; but Armless said, "Why do you refuse to send me there, since he is interested in seeing me? I want to go." — "All right!" They got a large boat ready and paddled on.</p>  
+ <p>   While on the way, Armless said, "I will go and carry the news to my old mother." He jumped on the gunwale, and then into the water just like a seal. They paddled along. At last the cliffs of the other shore were visible. Then a voice called to them from a ledge of rock, "Oh, you are slow! I had to wait for you ever so long." It was Armless. One could not understand how he had reached there in so short a time. But he was sitting on the rock and a small piece of edible seaweed was in his mouth.</p>  
+ <p>   They came to the village Nui´ak. The shore was quite black with dense crowds of men. As soon as they came ashore, scores of men took hold of the boat and hauled it ashore, — men and load and all. Then they took Armless and carried him into the house. All the people followed. The house was full, because everybody wanted to sea Armless. The people were crowded close together, and several were trampled to death. They just threw  
+ </p><p>
+ </p>   <a name="page_422"><font size="1" color="green">p. 422</font></a>  the dead out of the house, and continued to jostle and to push one another. So he killed a great number of people without as much as moving one finger.  
+ <p>   The Strong Man of the village heard about it, and grew angry. He said, "Bring me Armless! I will kill him too! Why has he destroyed such a large number of people?" They brought Armless there; and the other one said, "I want to kill you. Let us have a wrestling-match." — "But how can I wrestle with you, since I have neither arms nor legs?" — "Oh, but you were able to kill many unoffending people!" — "Ah, then, all right! We will wrestle, but you must bring a knife with you." The Strong Man took a knife and stepped forward. Then Armless sprang high upward; he spun around in the air so rapidly that it was impossible to follow his movements with the eyes. Then he dropped down; and at that moment the Strong Man of Nui´ak also fell down dead, the knife in his heart.</p>  
+ <p>   All the people were frightened. Armless set off in his boat, and reached St. Lawrence Island. In the village lived another Strong Man. Armless and his people were still on the water when this Strong Man challenged him to a shooting-match. They prepared for it. The man of St. Lawrence drew his bow and shot at Armless, who jumped upward, so that the arrow passed under his feet. The second time and the third time the same happened. "Now it is my turn," said Armless. He jumped upward, and spun around in the air so rapidly that the eye could not follow his movement. Then he dropped down; and his antagonist also fell down, the arrow in his heart.</p>  
+ <p>   The people of St. Lawrence grew angry. "Do not give them food, let them be starved to death!" They broke their boat, so that the visitors had no means of getting away. "Now we shall starve them to death."</p>  
+ <p>   Armless ordered his companion to prepare a large bucket of bent pine-wood. He made them sit down in a row upon the seashore, and each of them had in his hand a piece of the bill of a guillemot. He gave a signal, and all his companions threw the guillemot-bills into the water and cried out like guillemots. Immediately the people of St. Lawrence also cried out like guillemots, and rushed into the sea. The pieces of bills stuck firmly to their noses. They turned into guillemots. The bucket turned into a boat, and Armless and his companions paddled on, singing, and on their way homeward they hunted guillemots with great success.</p>  
+ <p align="right">Told by Ñịpe´wġi, an Asiatic Eskimo man, in the village of Uñi´sak, at Indian Point, May, 1901.</p>   
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_1"></a><a href="eos04.htm#fr_1">421:1</a> Compare Bogoras, The Chukchee, Vol. VII of this series, p. 602.</p>
+ <p></p><hr>
+ <center>
+ <a href="eos05.htm">Next: 4. The Girl who watched in the Night-Time.</a></center>
+ </body>

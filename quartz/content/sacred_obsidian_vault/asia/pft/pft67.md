@@ -1,0 +1,17 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Asia</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pft66.htm">Previous</a> 
+ <a href="pft68.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/1426464215/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Philippine Folklore Stories</i>, by Mabel Cook Cole, [1916], at sacred-texts.com</font></p><hr>  <h3 align="center">PRONUNCIATION OF PHILIPPINE NAMES</h3>  
+ <p>The vowel sounds in the following pronunciations are those used in Webster's dictionary.</p>  
+ <p><i>Adasen</i>, a-dä´sen<br> <i>Aguio</i>, a´ge-o<br> <i>Alan</i>, ä´län<br> <i>Alokotan</i>, ä-lo-ko-tän´<br> <i>Aponibalagen</i>, apo-ne-bä-lä-gen´<br> <i>Aponibolinayen</i>, apo-ne-bo-le-nä´yen<br> <i>Aponitolau</i>, apo-ne-to´lou<br> <i>Bagbagak</i>, bäg-bä-gäk´<br> <i>Bagobo</i>, ba-go´bo<br> <i>Balatama</i>, bä-lä-tä´ma<br> <i>Bangan</i>, bän´gän<br> <i>Bantugan</i>, bän-too´gan<br> <i>Benito</i>, be-ne´to<br> <i>Bilaan</i>, be-lä´an<br> <i>Bita</i>, be´ta<br> <i>Bontoc</i>, bon´tok<br> <i>Bukidnon</i>, boo-kid´non<br> <i>Bulanawan</i>, boo-la-nä´wan<br> <i>Caalang</i>, kä-ä´läng<br> <i>Cabildo</i>, kä-bil´do<br> <i>Cibolan</i>, ci-bo´lan<br> <i>Dalonagan</i>, da-lo-na´gan<br> <i>Danepan</i>, dä-ne-pan´<br> <i>Dapilisan</i>, da-pe-le´san<br> <i>Dayapan</i>, di-a-pan<br> <i>Dinawagen</i>, de-nä-wä´gen<br> <i>Dodedog</i>, dog-e-dog<br> <i>Domayco</i>, do-mi´ko<br> <i>Dumalawi</i>, doo-mä-lä-we´<br> <i>Epogow</i>, e-po-gou´<br> <i>Gawigawen</i>, gä-we-gä´wen<br> <i>Gaygayoma</i>, gi-gi-o´ma<br> <i>Gotgotapa</i>, got-go-ta´pa<br> <i>Igorot</i>, ig-o-rot´<br> <i>Ilocano</i>, il-o-kä´no<br> <i>Ilocos Norte</i>, il-o´kos no´rte<br> <i>Indarapatra</i>, in-dä-rä-pä´tra<br> <i>Ini-init</i>, e-ni-e´nit<br> <i>Kabigat</i>, ka-be-gat´<br> <i>Kaboniyan</i>, kä-bo-ne-yan´<br> <i>Kadaklan</i>, ka-dak-lan´<br> <i>Kadalayapan</i>, kä-dä-lä-yä´pan<br> <i>Kadayadawan</i>, kä-dä-yä-dä´wan<br> <i>Kanag</i>, kä´näg<br> <i>Komow</i>, ko´mou<br> <i>Kurita</i>, ku-re´ta<br> <i>Langgona</i>, läng-go´na<br> <i>Ligi</i>, le´ge<br> <i>Limokon</i>, le-mo´kon<br> <i>Lumabet</i>, loo-mä´bet<br> <i>Lumawig</i>, loo-mä´wig<br> <i>Magbangal</i>, mäg-bäng´al<br> <i>Magindanau</i>, mä-gin-dä´nou<br> <i>Magosang</i>, ma-go´sang<br> <i>Magsawi</i>, mäg-sä-we´<br> <i>Magsingal</i>, mäg´sin-gäl<br> <i>Manama</i>, män-ä´ma<br> <i>Mandaya</i>, män-di´ya<br> <i>Mansumandig</i>, män-su-män-dig<br> <i>Mayinit</i>, mi-i´nit<br> <i>Mayo</i>, mi´yo<br> <i>Mindanao</i>, min-da-nou´<br> <i>Nalpangan</i>, nal-pan-gan´<br> <i>Pilar</i>, pe´lär´<br> <i>Samoki</i>, sa-mo´ki<br> <i>Sayen</i>, sä-yen´<br> <i>Siagon</i>, së-ä´gon<br> <i>Silit</i>, se´let<br> <i>Sinag</i>, se´nag<br> <i>Sogsogot</i>, sog-so-got´<br> <i>Subanun</i>, soo-bä´nun<br> <i>Sulayman</i>, soo-li´man<br> <i>Tagalog</i>, ta-ga´log<br> <i>Tarabusaw</i>, ta-ra-boo´sou<br> <i>Tikgi</i>, tik´ge<br> <i>Timaco</i>, ti-mä´ko<br> <i>Tinguian</i>, ting-gi-an´<br> <i>Toglai</i>, tog-lä´e<br> <i>Toglibon</i>, tog-le´bon<br> <i>Visayan</i>, vi-si´yan</p>  
+ <p></p><hr>
+ <center>
+ <a href="pft68.htm">Next: Notes</a></center>
+ </body>

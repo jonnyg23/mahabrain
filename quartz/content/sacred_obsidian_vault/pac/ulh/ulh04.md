@@ -1,0 +1,38 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Pacific</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ulh03.htm">Previous</a> 
+ <a href="ulh05.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0024FAH3E/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Unwritten Literature of Hawaii</i>, by Nathaniel B. Emerson, [1909], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_7"><font size="1" color="green">p. 7</font></a></p>  <h1 align="center">INTRODUCTION</h1>  
+ <p>This book is for the greater part a collection of Hawaiian songs and poetic pieces that have done service from time immemorial as the stock supply of the <i>hula</i>. The descriptive portions have been added, not because the poetical parts could not stand by themselves, but to furnish the proper setting and to answer the questions of those who want to know.</p>  
+ <p>Now, the hula stood for very much to the ancient Hawaiian; it was to him in place of our concert-hall and lecture-room, our opera and theater, and thus become one of his chief means of social enjoyment. Besides this, it kept the communal imagination in living touch with the nation's legendary past. The hula had songs proper to itself, but it found a mine of inexhaustible wealth in the epics and wonder-myths that celebrated the doing of the volcano goddess Pele and her compeers. Thus in the cantillations of the old-time hula, we find a ready-made anthology that includes every species of composition in the whole range of Hawaiian poetry. This epic <a name="fr_0"></a><a href="#fn_0"><font size="1">a</font></a> of Pele was chiefly a more or less detached series of poems forming a story addressed not to the closet-reader, but to the eye and ear and heart of the assembled chiefs and people; and it was sung. The Hawaiian song, its note of joy par excellence, was the <i>oli</i>; but it must be noted that in every species of Hawaiian poetry, <i>mele</i>--whether epic or eulogy or prayer, sounding through them all we shall find the lyric note.</p>  
+ <p>The most telling record of a people's intimate life is the record which it unconsciously makes in its songs. This record which the Hawaiian people have left of themselves is full and specific. When, therefore, we ask what emotions stirred the heart of the old-time Hawaiian as he approached the great themes of life and death, of ambition and jealousy, of sexual passion, of romantic love, of conjugal love, and parental love, what his attitude toward nature and the dread forces of earthquake and storm, and the mysteries of spirit and the hereafter, we shall find our answer in the songs and prayers and recitations of the hula.</p>  
+ <p>The hula, it is true, has been unfortunate in the mode and manner of its introduction to its moderns. An institution of divine, that is, religious, origin, the hula in modern times has wandered so far and fallen so low that foreign and critical esteem has come to associate it</p>  
+ <p>
+ </p>  
+ <p><a name="page_8"><font size="1" color="green">p. 8</font></a></p>  
+ <p>with the riotous and passionate ebullitions of Polynesian kings and the amorous posturing of their voluptuaries. We must make a just distinction, however, between the gestures and bodily contortions presented by the men and women, the actors in the hula, and their uttered words. "The voice is Jacob's voice, but the hands are the hands of Esau." In truth, the actors in the hula no longer suit the action to the word. The utterance harks back to the golden age; the gesture is trumped up by the passion of the hour, or dictated by the master of the hula, to whom the real meaning of the old bards is ofttimes a sealed casket.</p>  
+ <p>Whatever indelicacy attaches in modern times to some of the gestures and contortions of the hula dancers, the old-time hula songs in large measure were untainted with grossness. If there ever were a Polynesian Arcadia, and if it were possible for true reports of the doings and sayings of the Polynesians to reach us from that happy land--reports of their joys and sorrows, their love-makings and their jealousies, their family spats and reconciliations, their worship of beauty and of the gods and goddesses who walked in the garden of beauty--we may say, I think, that such a report would be in substantial agreement with the report that is here offered; but, if one's virtue will not endure the love-making of Arcadia, let him banish the myth from his imagination and hie to a convent or a nunnery.</p>  
+ <p>If this book does nothing more than prove that savages are only children of a younger growth than ourselves, that what we find them to have been we ourselves--in our ancestors--once were, the labor of making it will have been not in vain.</p>  
+ <p>For an account of the first hula we may look to the story of Pele. On one occasion that goddess begged her sisters to dance and sing before her, but they all excused themselves, saying they did not know the alt. At that moment in came little Hiiaka, the youngest and the favorite. Unknown to her sisters, the little maiden had practised the dance under the tuition of her friend, the beautiful but ill-fated Hopoe. When banteringly invited to dance, to the surprise of all, Hiiaka modestly complied. The wave-beaten sand-beach was her floor, the open air her hall. Feet and hands and swaying form kept time to her improvisation:</p>  
+ <p></p><div style="margin-left: 32px"><small>Look, Puna is a-dance in the wind;<br> The palm groves of Kea-au shaken.<br> Haena and the woman Hopoe dance and sing<br> On the beach Nana-huki,<br> A dance of purest delight,<br> Down by the sea Nana-huki.</small></div>  
+ <p>The nature of this work has made it necessary to use occasional Hawaiian words in the technical parts. At their first introduction</p>  
+ <p><a name="page_9"><font size="1" color="green">p. 9</font></a></p>  
+ <p>it has seemed fitting that they should be distinguished by italics; but, once given the entrée, it is assumed that, as a rule, they will be granted the rights of free speech without further explanation.</p>  
+ <p>A glossary, which explains all the Hawaiian words used in the prose text, is appended. Let no one imagine, however, that by the use of this little crutch alone he will be enabled to walk or stumble through the foreign ways of the simplest Hawaiian mele. Notes, often copious, have been appended to many of the mele, designed to exhaust neither the subject nor the reader, but to answer some of the questions of the intelligent thinker.</p>  
+ <p>Thanks, many thanks, are due, first, to those native Hawaiians who have so far broken with the old superstitious tradition of concealment as to unearth so much of the unwritten literary wealth stored in Hawaiian memories; second, to those who have kindly contributed criticism, suggestion, material at the different stages of this book's progress, and, lastly, to those dear friends of the author's youth--living or dead--whose kindness has made it possible to send out this fledgling to the world. The author feels under special obligations to Dr. Titus Munson Coan, of New York, for a painstaking revision of the manuscript.</p>  
+ <p>   <small>HONOLULU, HAWAII.</small></p>  
+ <p> </p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_0"></a><a href="ulh04.htm#fr_0">7:a</a> It might be termed a handful of lyrics strung on an epic thread.</p>
+ <p></p><hr>
+ <center>
+ <a href="ulh05.htm">Next: I.--The Hula</a></center>
+ </body>

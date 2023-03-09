@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Danish Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> Herrens Ord, som kom til Joel, Petuels søn.</p> 
+ <p><a name="an_1:2">1:2</a> Hør dette, I Ældste, lån Øre, alle, som bor i Landet! Er sligt mon sket i eders eller eders Fædres Dage?</p> 
+ <p><a name="an_1:3">1:3</a> I skal fortælle det til eders Børn, og de igen til deres, og deles til næste Slægt.</p> 
+ <p><a name="an_1:4">1:4</a> Græshoppen åd, hvad Gnaveren levned, Springeren åd, hvad Græshoppen levned, Æderen åd, hvad Springeren levned.</p> 
+ <p><a name="an_1:5">1:5</a> Vågn op, I drukne, og græd; enhver, som drikker Vin, skal jamre over Most, der gik tabt for eders. Mund.</p> 
+ <p><a name="an_1:6">1:6</a> Thi et Folk drog op mod mit Land, vældigt og uden Tal; dets Tænder er Løvetænder, det har Kindtænder som en Løvinde.</p> 
+ <p><a name="an_1:7">1:7</a> Det lagde min Vinstok øde, knækked mit Figentræ, afbarked og hærgede det; dets Grene stritter hvide.</p> 
+ <p><a name="an_1:8">1:8</a> Klag som sørgeklædt Jomfru over sin Ungdoms Brudgom!</p> 
+ <p><a name="an_1:9">1:9</a> Afgrødeoffer og Drikoffer gik tabt for HERRENs Hus; Præsterne, HERRENs Tjenere sørger.</p> 
+ <p><a name="an_1:10">1:10</a> Marken er ødelagt, Jorden sørger; thi Kornet er ødelagt, Mosten slog fejl og Olien hentørres.</p> 
+ <p><a name="an_1:11">1:11</a> Bønder skuffes og Vingårdsmænd jamrer både over Hveden og Byggen; thi Markens Høst gik tabt;</p> 
+ <p><a name="an_1:12">1:12</a> fejl slog Vinstokken, Figentræet tørres; Granatæble, Palme og æbletræ, hvert Markens Træ tørres hen. Ja, med Skam veg Glæde fra Menneskens Børn:</p> 
+ <p><a name="an_1:13">1:13</a> Sørg, I Præster i Sæk, I AIterets Tjenere, jamrer! Gå ind og bær Sæk i Nat, I, som tjener min Gud! Thi Afgrødeoffer og Drikofer unddrages eders Guds Hus.</p> 
+ <p><a name="an_1:14">1:14</a> Helliger en Faste, udråb festlig Samling, I Ældste, kald alle, som bor i Landet, sammen til HERREN eders Guds Hus og råb så til HERREN!</p> 
+ <p><a name="an_1:15">1:15</a> Ak, hvilken Dag! Thi nær er HERRENs Dag, den kommer som Vold fra den Vældige.</p> 
+ <p><a name="an_1:16">1:16</a> Så vi ej Føden gå tabt, vor Guds Hus tømt for Glæde og Jubel?</p> 
+ <p><a name="an_1:17">1:17</a> Sæden skrumper ind i den klumpede Jord; Lader er nedbrudt, Forrådshuse jævnet, thi Kornet er vissent.</p> 
+ <p><a name="an_1:18">1:18</a> Hvor Kvæget dog stønner! Oksernes Hjorde er skræmte, fordi de ikke har Græs; selv Småkvægets Hjorde lider.</p> 
+ <p><a name="an_1:19">1:19</a> Jeg råber til dig, o HERRE; thi Ild har fortæret Ørkenens Græsning, og Luen afsved hvert Markens Træ;</p> 
+ <p><a name="an_1:20">1:20</a> til dig skriger selv Markens Dyr, thi Bækkenes Lejer er tørre, og Ild har fortæret Ørkenens Græsning.</p> 
+ <p><a name="an_2:1">2:1</a> Stød i horn på Zion, blæs alarm på mit hellige Bjerg! Alle i landet skal bæve, thi HERRENs Dag, den kommer;</p> 
+ <p><a name="an_2:2">2:2</a> ja, nær er Mulms og Mørkes Dag, Skyers og Tåges Dag. Et stort, et vældigt Folk er bredt som Gry over Bjerge. Dets Lige har aldrig været, skal aldrig komme herefter til fjerneste Slægters År.</p> 
+ <p><a name="an_2:3">2:3</a> Foran det æder Ild, og bag det flammer Lue; foran det er Landet som Eden og bag det en øde Ørk; fra det slipper ingen bort.</p> 
+ <p><a name="an_2:4">2:4</a> At se til er de som Heste, som Hingste farer de frem;</p> 
+ <p><a name="an_2:5">2:5</a> det lyder som raslende Vogne, når de hopper på Bjergenes Tinder, som knitrende Lue, der æder Strå, som en vældig Hær, der er rustet til Strid.</p> 
+ <p><a name="an_2:6">2:6</a> Folkeslag skælver for dem, alle Ansigter blusser.</p> 
+ <p><a name="an_2:7">2:7</a> Som Helte haster de frem, som Stridsmænd stormer de Mure; enhver går lige ud, de bøjer ej af fra vejen.</p> 
+ <p><a name="an_2:8">2:8</a> De trænger ikke hverandre, hver følger sin egen Sti. Trods Våbenmagt styrter de frem uden at lade sig standse, de kaster sig over Byen,</p> 
+ <p><a name="an_2:9">2:9</a> stormer Mulen i Løb; i Husene trænger de ind, gennem Vinduer kommer de som Tyve.</p> 
+ <p><a name="an_2:10">2:10</a> Foran dem skælver Jorden, Himlen bæver; Sol og Måne sortner, Stjernerne mister deres Glans.</p> 
+ <p><a name="an_2:11">2:11</a> Foran sin Stridsmagt løfter HERREN sin Røst, thi såre stor er hans Hær, ja, hans Ords Fuldbyrder er vældig; thi stor er HERRENs Dag og såre frygtelig; hvem holder den ud?</p> 
+ <p><a name="an_2:12">2:12</a> Selv nu, så lyder det fra HERREN, vend om til mig af ganske Hjerte, med Faste og Gråd og Klage!</p> 
+ <p><a name="an_2:13">2:13</a> Sønderriv Hjerterne, ej eders Klæder, vend om til HERREN eders Gud! Thi nådig og barmhjertig er han, langmodig og rig på Miskundhed, han angrer det onde.</p> 
+ <p><a name="an_2:14">2:14</a> Måske slår han om og angrer og levner Velsignelse efter sig, Afgrødeoffer og Drikoffer til HERREN eders Gud.</p> 
+ <p><a name="an_2:15">2:15</a> Stød i Horn på Zion, helliger Faste, udråb festlig Samling,</p> 
+ <p><a name="an_2:16">2:16</a> kald Folket sammen, helliger et Stævne, lad de gamle samles, kald Børnene sammen, også dem, som dier Bryst; lad Brudgom gå ud af sit Kammer, Brud af sit Telt!</p> 
+ <p><a name="an_2:17">2:17</a> Imellem Forhal og Alter skal Præsterne, HERRENs Tjenere, græde og sige: "HERRE, spar dog dit Folk! Overgiv ej din Arv til Skændsel, til Hedningers Spot! Hvi skal man sige blandt Folkene: Hvor er deres Gud?"</p> 
+ <p><a name="an_2:18">2:18</a> Og HERREN blev nidkær for sit Land og fik Medynk med sit Folk.</p> 
+ <p><a name="an_2:19">2:19</a> Og HERREN svarede sit Folk: Se, jeg sender eder korn, Most og Olie, så I kan mættes deraf; og jeg vil ikke længer gøre eder til Skændsel iblandt Hedningerne.</p> 
+ <p><a name="an_2:20">2:20</a> Fjenden fra Nord driver jeg langt bort fra eder og støder ham ud i et tørt og øde Land, hans Fortrop ud i Havet i Øst og hans Bagtrop i Havet i Vest, og han skal udsprede Stank og ilde Lugt; thi han udførte store Ting.</p> 
+ <p><a name="an_2:21">2:21</a> Frygt ikke, Jord, fryd dig, vær glad! Thi HERREN har udført store Ting.</p> 
+ <p><a name="an_2:22">2:22</a> Frygt ikke, I Markens Dyr! Thi Ørkenens Græsmarker grønnes, og Træerne bærer Frugt; Figentræ og Vinstok giver alt, hvad de kan.</p> 
+ <p><a name="an_2:23">2:23</a> Og I, Zions Sønner, fryd eder, vær glade i HERREN eders Gud! Thi han giver eder Føde til Frelse, idet han sender eder Regn, Tidligregn og Sildigregn, som før.</p> 
+ <p><a name="an_2:24">2:24</a> Tærskepladserne skal fyldes med Korn, Persekummerne løbe over med Most og Olie.</p> 
+ <p><a name="an_2:25">2:25</a> Og jeg godtgør eder de År, da Græshoppen, Springeren, Æderen og Gnaveren hærgede, min store Hær, som jeg sendte imod eder.</p> 
+ <p><a name="an_2:26">2:26</a> I skal spise og mættes og love HERREN eders Guds Navn, fordi han handler underfuldt med eder; og mit Folk skal i Evighed ikke blive til Skamme.</p> 
+ <p><a name="an_2:27">2:27</a> Og I skal kende, at jeg er i Israels Midte, og at jeg, og ingen anden er HERREN eders Gud; og mit Folk skal i Evighed ikke blive til Skamme.</p> 
+ <p><a name="an_2:28">2:28</a> Og det skal ske derefter, at jeg vil udgyde min ånd over alt kød, eders Sønner og eders Døtre skal profetere, eders gamle skal drømme Drømme og eders unge skue Syner;</p> 
+ <p><a name="an_2:29">2:29</a> også over Trælle og Trælkvinder vil jeg udgyde min Ånd i de Dage.</p> 
+ <p><a name="an_2:30">2:30</a> Og jeg lader ske Tegn på Himmelen og på Jorden, Blod, Ild og Røgstøtter.</p> 
+ <p><a name="an_2:31">2:31</a> Solen skal vendes til Mørke og Månen til Blod, før HERRENs store og frygtelige Dag kommer.</p> 
+ <p><a name="an_2:32">2:32</a> Men enhver, som påkalder HERRENs Navn, skal frelses; thi på Zions Bjerg og i Jerusalem skal der være Frelse, som HERREN har sagt; og til de undslupne skal hver den høre, som HERREN kalder.</p> 
+ <p><a name="an_3:1">3:1</a> Thi se, i de Dage og på den Tid, når jeg vender Judas og Jerusalems Skæbne,</p> 
+ <p><a name="an_3:2">3:2</a> samler jeg alle Hedningefolk og fører dem ned i Josafats Dal. Der vil jeg holde Rettergang med dem om mit Folk og min Arvelod Israel, som de spredte blandt Folkene; og de delte mit Land,</p> 
+ <p><a name="an_3:3">3:3</a> kastede Lod om mit Folk, gav en Dreng for en Skøge og solgte en Pige for Vin, som de drak.</p> 
+ <p><a name="an_3:4">3:4</a> Og desuden, hvad vil I mig, Tyrus og Zidon og alle Filisterlands Kredse? Er der noget, I vil gengælde mig, eller vil I gøre mig noget? Hastigt og brat lader jeg Gengældelse komme over eders Hoved,</p> 
+ <p><a name="an_3:5">3:5</a> I, som tog mit Sølv og Guld, bortførte mine kostbareste Ting til eders Borge</p> 
+ <p><a name="an_3:6">3:6</a> og solgte Judæerne og Jerusalems Borgere til Grækerne, for at de skulde føres langt bort fra deres Hjem.</p> 
+ <p><a name="an_3:7">3:7</a> Se, jeg vækker dem op fra det Sted, I solgte dem til, og lader Gengældelse komme over eders Hoved.</p> 
+ <p><a name="an_3:8">3:8</a> Jeg sælger eders Sønner og Døtre til Judæerne, og de skal sælge dem til Sabæerne, Folket i det fjerne Land, så sandt HERREN har talet.</p> 
+ <p><a name="an_3:9">3:9</a> Råb det ud blandt Folkene, helliger en Krig, væk Heltene op! Lad alle våbenføre Mænd komme og drage op!</p> 
+ <p><a name="an_3:10">3:10</a> Smed eders Plovjern om til Sværd, eders Vingårdsknive til Spyd! Svæklingen skal sige: "Jeg er en Helt!"</p> 
+ <p><a name="an_3:11">3:11</a> Skynd eder og kom, alle Hedningefolk viden om, og saml eder! Før dine Helte derned, HERRE!</p> 
+ <p><a name="an_3:12">3:12</a> Hedningefolkene skal vækkes op og drage til Josafats Dal; thi der vil jeg sidde til Doms over alle Hedningefolk viden om.</p> 
+ <p><a name="an_3:13">3:13</a> Sving Seglen, thi Høsten er moden; kom og stamp, thi Persekummen er fuld! Persekarrene løber over, thi stor er Folkenes Ondskab.</p> 
+ <p><a name="an_3:14">3:14</a> Skarer på Skarer i Opgørets Dal! Thi nær er HERRENs Dag i Opgørets Dal.</p> 
+ <p><a name="an_3:15">3:15</a> Sol og Måne sortner, og Stjernerne mister deres Glans.</p> 
+ <p><a name="an_3:16">3:16</a> HERREN brøler fra Zion, fra Jerusalem løfter han sin Røst; Himmelen og Jorden skælver. Men HERREN er Ly for sit Folk og Værn for Israels Børn.</p> 
+ <p><a name="an_3:17">3:17</a> Og I skal kende, at jeg er HERREN eders Gud, som bor på Zion, mit hellige Bjerg. Jerusalem skal blive en Helligdom, og fremmede skal ikke mere drage derigennem.</p> 
+ <p><a name="an_3:18">3:18</a> På hin Dag skal Bjergene dryppe af Most og Højene flyde med Mælk; alle Judas Bække skal strømme med Vand, og en kilde skal vælde frem fra HERRENs Hus og vande Akaciedalen.</p> 
+ <p><a name="an_3:19">3:19</a> Ægypten skal blive øde, Edom en øde Ørk for deres Vold mod Judæerne, i hvis Land de udgød uskyldigt Blod.</p> 
+ <p><a name="an_3:20">3:20</a> Og Juda skal være beboet evindelig, Jerusalem fra Slægt til Slægt.</p> 
+ <p><a name="an_3:21">3:21</a> Jeg hævner deres Blod, som jeg endnu ikke har hævnet; og HERREN bor på Zion.</p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

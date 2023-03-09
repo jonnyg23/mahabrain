@@ -1,0 +1,37 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="../../neu/eng/index.htm">England</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hist055.htm">Previous</a> 
+ <a href="hist057.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/014044565X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Bede's Ecclesiastical History of England</i>, ed. by A.M. Sellar, [1907], at sacred-texts.com</font></p><hr>
+ <a name="v.ii.xx"></a>
+ 			 <h3 align="center"><a name="v.ii.xx-p0.1"></a>CHAP. XX.</h3> 
+ 
+ 			 <p><a name="v.ii.xx-p1"></a><b><br>
+ 				<br>
+ 				</b>EDWIN reigned most gloriously seventeen years over the nations of the English and the Britons, six whereof, as has been said, he also was a soldier in the kingdom of Christ. Caedwalla, king of the Britons, rebelled against him, being supported by the vigorous Penda, of the royal race of the Mercians, who from that time governed that nation for twenty-two years with varying success.<br>
+ 				<br>
+ 				A great battle being fought in the plain that is called Haethfelth, Edwin was killed on the 12th of October, in the year of our Lord 633, being then forty-eight years of age, and all his army was either slain or dispersed. In the same war also, Osfrid, one of his sons, a warlike youth, fell before him; Eadfrid, another of them, compelled by necessity, went over to King Penda, and was by him afterwards slain in the reign of Oswald, contrary to his oath. At this time a great slaughter
+ 				was made in the Church and nation of the Northumbrians; chiefly because one of the chiefs, by whom it was carried on, was a pagan, and the other a barbarian, more cruel than a pagan; for Penda, with all the nation of the Mercians, was an idolater, and a stranger to the name of Christ; but Caedwalla, though he professed and called himself a Christian, was so barbarous in his disposition and manner of living, that he did not even spare women and innocent children, but with bestial cruelty put all
+ 				alike to death by torture, and overran all their country in his fury for a long time, intending to cut off all the race of the English within the borders of Britain. Nor did he pay any respect to the Christian religion which had sprung up among them; it being to this day the custom of the Britons to despise the faith and religion of the English, and to have no part with them in anything any more than with pagans. King Edwin's head was brought to York, and afterwards taken into the church of the
+ 				blessed Peter the Apostle, which he had begun, but which his successor Oswald finished, as has been said before. It was laid in the chapel of the holy Pope Gregory, from whose disciples he had received the word of life. <br>
+ 				The affairs of the Northumbrians being thrown into confusion at the moment of this disaster, when there seemed to be no prospect of safety except in flight, Paulinus, taking with him Queen Ethelberg, whom he had before brought thither, returned into Kent by sea, and was very honourably received by the Archbishop Honorius and King Eadbald. He came thither under the conduct of Bassus, a most valiant thegn of King Edwin, having with him Eanfled, the daughter, and Wuscfrea, the son of
+ 				Edwin, as well as Yffi, the son of Osfrid, Edwin's son. Afterwards Ethelberg, for fear of the kings Eadbald and Oswald, sent Wuscfrea and Yffi over into Gaul to be bred up by King Dagobert, who was her friend; and there they both died in infancy, and were buried in the church with the honour due to royal children and to Christ's innocents. He also brought with him many rich goods of King Edwin, among which were a large gold cross, and a golden chalice, consecrated to the service of the altar,
+ 				which are still preserved, and shown in the church of Canterbury.<br>
+ 				<br>
+ 				At that time the church of Rochester had no pastor, for Romanus, the bishop thereof, being sent on a mission to Pope Honorius by Archbishop Justus, was drowned in the Italian Sea; and thus Paulinus, at the request of Archbishop Honorius and King Eadbald, took upon him the charge of the same, and held it until he too, in his own time, departed to heaven, with the fruits of his glorious labours; and, dying in that Church, he left there the pall which he had received from the Pope of
+ 				Rome. He had left behind him in his Church at York, James, the deacon, a true churchman and a holy man, who continuing long after in that Church, by teaching and baptizing, rescued much prey from the ancient enemy; and from him the village, where he chiefly dwelt, near Cataract,has its name to this day. He had great skill in singing in church, and when the province was afterwards restored to peace, and the number of the faithful increased, he began to teach church music to many, according to
+ 				the custom of the Romans, or of the Cantuarians. And being old and full of days, as the Scripture says. He went the way of his fathers.<br>
+ 				<br></p>
+ 
+ <p></p>
+ <p></p><hr>
+ <center>
+ <a href="hist057.htm">Next: I. How King Edwin's next successors lost both the faith of their nation and the kingdom; but the most Christian King Oswald retrieved both. [633 A.D.]</a></center>
+ </body>

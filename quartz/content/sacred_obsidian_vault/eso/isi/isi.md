@@ -1,0 +1,854 @@
+<body><p>The Isiac Tablet of Cardinal Bembo, by W. Wynn Westcott, [1887], at sacred-texts.com
+
+
+
+  
+
+TABULA BEMBINA
+
+  
+
+SIVE
+
+  
+
+MENSA ISIACA.
+
+  
+
+THE ISIAC TABLET
+
+  
+
+OF
+
+  
+
+CARDINAL BEMBO.
+
+  
+
+Its History and occult Significance.
+
+  
+
+BY
+
+  
+
+W. WYNN WESTCOTT,
+
+Hon. Magus Soc. Ros. in Ang.
+
+Hon. Member Hermetic Soc.
+
+"Une belle action, est une joie eternelle."
+
+  
+
+BATH:
+
+  
+
+ROBT. H. FRYAR,
+
+  
+
+[1887]
+
+(Year of jubilee)
+
+Scanned, proofed and formatted at sacred-texts.com, December 2007 by John Bruno Hare. This text is in the public domain in the US because it was published prior to 1923. These files may be used for any purpose.
+
+
+Click to enlarge
+Title Page
+
+
+
+     
+The Isiac Tablet of Cardinal Bembo, by W. Wynn Westcott, [1887], at sacred-texts.com
+
+
+
+  
+
+SYNOPSIS OF MONOGRAPH.
+
+Introduction, Description, History.
+
+Pignorius, opinion of.
+
+Kircher, explanation of.
+
+
+	Middle Region, Theosophic system.
+	
+	Superior Region, the Zodiac, and the Months.
+	
+	Inferior Region, Four Quarters of the World.
+	
+	Limbus, the: form of worship, the Sphynx.
+
+Montfaucon, views of.
+
+Shuckford, opinions of.
+
+Warburton, opinions of.
+
+Jablonski, annotations by.
+
+Egyptian Chronology, the Sothiac Cycle.
+
+Caylus, description of.
+
+Banier, Mackenzie, Kenealy, and Winckelmann.
+
+Recent Egyptology, the views of.
+
+Opinions of the Author, esoteric design of the Tablet.
+
+Occult Science, the views of Eliphas Levi.
+
+The Author's explanation of Levi's Diagram.
+
+The Book of Thoth, the Tarot.
+
+
+     
+The Isiac Tablet of Cardinal Bembo, by W. Wynn Westcott, [1887], at sacred-texts.com
+
+
+
+
+Click to enlarge
+The Isiac Tablet of Cardinal Bembo (267Kb)
+
+
+(Note: this is the Frontispiece in the original book--JBH.
+
+DETAIL IMAGES
+
+         	
+
+      	
+
+      	
+
+     
+     	
+
+      	
+
+      	
+
+     
+     	
+
+      	
+
+      	
+
+     
+   [p. 1]
+
+
+
+  
+
+THE ISIAC TABLET
+
+  
+
+OF
+
+  
+
+CARDINAL BEMBO.
+
+THIS curious relic of an age long past cannot fail to attract the attention of every earnest student of the Mysteries; its beauty of design, its careful execution, its obvious antiquity, its certain connection with that most incomprehensible scheme of religion--the Egyptian, all combine to fascinate the mind and stimulate the intellect in a search for the explanation of the purpose and meaning of this very elaborate pictorial work of Art.
+
+Mysterious in its conception, of unknown origin, and of peculiar workmanship, this Tablet merits examination and research.
+
+From the time of the learned Orientalist Kircher, and of the Classic Pignorius, many eminent archaeologists and men of letters have devoted their energies to the elucidation of the hidden object of the designer, who must have been as erudite in all the arts and wisdom of the Egyptians, as he was skilful in execution. The well-known names of Montfaucon, Shuckford, Warburton, Keysler, Caylus, the Abbe Banier, the Abbe Pluche, Jablonski, Kenneth Mackenzie, Kenealy, Wilkinson, Eliphas Levi, and Bonwick, all of whom have ventured some opinions, are sufficient proof of the worldwide interest that this Mensa Isiaca has aroused. Many years have now passed away since the Author made a labour of love of the drawing of the Tablet from which the Photogravure in this volume was taken; and his drawing being finished, his work seemed incomplete until he had supplied as its companion an explanatory treatise, however scanty and imperfect it may be deemed. He begs the indulgence of many a learned reader for its short-comings, and if he has apparently undervalued the opinions of the modern school of scientific Egyptology, it is only because of his conviction that the Tablet is essentially of an Esoteric character, and therefore insusceptible of ordinary methods of interpretation.
+
+The Photogravure provided with this little volume, 10 ins. by 8ins., is of course much smaller than the original, which is approximately 50 ins. in length, and 30 ins. in breadth.
+
+So far as can be ascertained, the Tablet has not been engraved nor printed in its entirety since 1719, when it was published in France by Montfaucon, and it has never been printed in England.
+
+[p. 2]
+
+The Isiac Tablet is of Bronze, the designs are inlaid upon its upper surface, and are composed partly of silver and partly of a dark coloured enamel, which has somewhat the tint of steel (niello work). Some portions of the silver ornamentation are missing, perhaps they have been removed by force for their intrinsic value, during the turbulent Middle Ages, although it is possible they may have become loosened and lost by accidental violence.
+
+Around the whole Tablet is a border of small designs, or Limbus, as Kircher called it; at each corner is a many-petalled rose-like flower, these divide the Limbus into four portions; two vertical, a right and left, and superior and inferior portions. Within this border there are three principal horizontal divisions; the Upper and Lower Regions are of equal depth, the Central Region is deeper and is further subdivided.
+
+The Upper Region presents Twelve principal erect human figures, and several smaller designs.
+
+The Lower Region presents Twelve principal more or less human figures, of whom two, the second and eleventh, are standing in porticoes; and two others are seated, the fifth and the eighth; there are also interspersed among these, several smaller figures; as a boy; a dog-headed human figure, a cat, a bird, and other curious mystic designs.
+
+The Central Region presents a Middle Grand Scene, extending over two-thirds of the whole length, consisting of a Throned Female under a Canopy, on each side of her is a triad. Each triad consists of a Seated figure, a human attendant and a winged human figure; there are also two birds in each lateral scene. At each extremity of this Grand Scene are placed designs somewhat similar to each other; each consists of an upper compartment, representing a Bull with two attendants, and a lower portion representing two female figures, one on each side of a Nameless object, whose formation can be better grasped by sight than from description.
+
+Between the Upper and Lower Regions runs a narrow line of Hieroglyphics, this does not appear in the Photogravure, which from its necessarily reduced size, would have rendered them illegible; and within the Limbus runs all round a narrow design of wavy lines, with occasional small flowers, vases, phalli; and masks or faces interspersed.
+
+The Letters which appear on the Photogravure do not belong to the Tablet; they are the reference marks adopted by Kircher in his scheme of explanation: most unfortunately the equally excellent plate given by Pignorius has a different set of reference letters. The only omission from the Photogravure is that of the series of very small designs on the plain border of the Central Canopy and its basement; these are all similar, and consist each one of a square, a circle within it, and within the circle four diameters dividing it into eight spaces.
+
+It will not be necessary to describe each figure minutely, as the plate can be referred to, and comments on each figure will be found later on, especially in the detailed explanation of Kircher, and the shorter references to other authors: many curious and esoteric notes and suggestions of my own will be found scattered through this volume, and are specially assigned to the conclusion.
+
+The Title, heading the Photogravure, does not belong to the Tablet; it is the superscription given by Kircher to his drawing of the Tablet, and reads as follows:--A true and genuine copy of the Isiac Tablet, or most ancient Brazen Tablet engraved with the Sacred letters of the Egyptians, for the first time produced from the Museum of Torquatus Bembo, in the year 1559, hence it is called Bembine; Aeneas Vicus of Parma, published it and dedicated it to Ferdinand Caesar the First. Athanasius Kircher, the Jesuit, devotes this as a monument more enduring than brass, having reduced it to a more convenient size, he is the interpreter of the same. Rome. 1654."
+
+This most interesting and mysterious Tablet appears to have been treasured in one of the palaces in Rome, at the time when the Constable of Bourbon, in command of an army of the Emperor Charles V. of Germany, over-ran Italy and sacked the city, in the year 1527.
+
+It then fell into the hands of a blacksmith, or iron worker, who sold it for a large sum of money to Cardinal Bembo. After his death it came into the possession of the Dukes of Mantua, in whose Treasure-house it figured as a relic of the past until 1630, when Mantua was plundered and burnt by an army under one of the generals of the Emperor Ferdinand II. It was then once more lost sight of, and indeed many important authors state that it was never seen again, but was probably destroyed by some of the ignorant soldiery, in removing from its surface the silver plates for the purpose of sale.
+
+There is however at least one author who gives a correct account of the history of the Tablet after the siege of Mantua
+
+[p. 3]
+
+in 1630; all honour to Johann Georg Keysler, who published in 1740 his Travels through Germany, Italy, and other countries. In his account of the Palace in Turin, he says that when Mantua was plundered, the Tablet fell into the hands of Cardinal Pava, who made a present of it to the Duke of Savoy, by whom it was preserved. It was finally presented to the King of Sardinia, in whose Palace at Turin, in 1730 it was made a great favour to him to be allowed to see it, because it was very carefully guarded; he describes it as a pretty large copper plate, with silver imagery inlaid, amid a blue steel enamel. He states that Pignorius' large plate is the real size, and that Montfaucon has in his copy inverted it. (This is an error, but Herwart de Hohemburg has done so).
+
+The guide to Northern Italy by Murray states that the Tablet is now exhibited in Turin at the Museum of Egyptian Antiquities: he gives as the dimensions 4ft. 2ins. by 2ft. 5 1/2ins. He states, without giving authorities, that it was first discovered on Mount Aventine in Rome at a spot where a Temple to Isis once stood. Having been again lost at the sack of Rome it was refound in 1709 at Turin, carried away to Paris in 1797 and returned to Italy at the peace; he suggests that it was made in the time of the Roman Emperor Hadrian.
+
+Baedeker, also without quoting any authority, states that the Tablet was first found in 1549 during the Papacy of Paul III at the Villa Caffarelli at Rome.
+
+Aeneas de Vico, who published his splendid identical sized drawing of the Tablet in 1559 at Venice, gives the following as the title:--
+
+"Vetustissimae Tabulae Aeneae Hieroglyphicis. Hoc est sacris Egyptiorum literis caelatae Typus. Quem ex Torquati Bembi Musaeo an. MDLIX Aeneas Vicus Parmensis edidit, ac Imp. Caes. Ferdinando dedicavit, nunc denuo publicae utilitalis ergo e tenebris in lucem prodit."
+
+This volume has no history of the Tablet, nor any attempt at description. A second edition appeared also at Venice in 1600, published by Jacques Franco. (Caylus prints a copy of this one.) John George Herwart de Hohemburg has also reproduced a drawing of the Tablet in his work "Thesaurus Hieroglyphicorum," 1610, and a diagram professing to explain it, in his "Admiranda Ethnicae Theologiae Mysteria," 1625. In this latter book he suggests that the Tablet is a sort of nautical map and that all the figures are points of the compass.
+
+So far as I have been able to ascertain, the oldest treatise on the Bembine Tablet is that of Laurentius Pignorius, of Padua, published at Venice in 1605, entitled, "An accurate explanation of the very Ancient Brazen Tablet, engraved with the Sacred Figures of the Egyptians;" it is furnished with a reduced size drawing of the Tablet.
+
+It is dedicated to Caesar Baronius, a Cardinal under the Papacy of Clement VIII. Pignorius, or Lorenzo Pignoria, as he was also called, died in 1631, but another edition of his book was published in 1669, by Andreas Frisius; he distinguishes the figures by means of letters, and his plate is of full size. The plate of the first edition has no letters of reference. Very unfortunately Kircher's plate, published 1655, had a separate and different set of reference letters, hence much confusion has arisen. The Photogravure in this volume has the lettering of Kircher, and my drawing is an accurate copy of the plate in the ###140###dipus Aegyptiacus. Pignorius was a very learned classical scholar, and the author of many valuable works on classical archaeology, but he was somewhat out of his depth in attempting an explanation of Egyptian theology. His treatise in fact, is a study of Greco-Roman theology, with many valuable classical references, apropos of the figures on the Tablet, but is hardly an elucidation of them: he lacked the vast Coptic, Arabic, and Hebrew information possessed by Kircher. Pignorius did not claim to understand the Tablet, and confessed that although he identified certain figures, he had not hit upon the design of its author, and he does not make any attempt at a detailed description of the plate itself, or even of all the principal figures.
+
+Athanasius Kircher in his ###140###dipus Aegyptiacus, A.D. 1654, has a very long treatise explanatory of the Tablet; he commences with a short history, and then passes on to a consideration of what use could be made of it, deciding that it probably formed a mystic ornament in the sanctum sanctorum, or adytum of some Temple in Egypt, for the Egyptians, like the Hebrews, provided such secret chambers in which the priests performed the most holy rites. Then follows a philosophical argument on the meaning of the symbolism, but this is short, because the meaning of each part follows later on. It embodies the doctrine of the triple arrangement of the constitution of the world, into Archetypal, Intellectual, and Sensible; the Paternal Mind as a centre gives motion and animation to all things, and marks every thing with the characteristic of Trinity.
+
+[p. 4]
+
+"The universe is regulated from the Paternal Foundation through three triads; this Foundation is variously called--The IYNX, Soul of the World, The Pantomorphous Redeemer, and by Philo, The Constructive Wisdom, and exists in the perfection of triads of Pater, Potentia, and Mater or Mens, the Father, the Power, and the Mother, or Design: co-existing with Faith, Truth, and Love. The order, disposition, administration, and functions of the Divine Powers are also shewn here, which are typified by the companions and officers of the Divine and Supreme Mens, the Great Potentia, and of the Paternal Iynx. Here are seen the Rectores Mundorum, Rulers of the Worlds, each with his notable symbols, whether of air, or of fire, or of material things. Here are also the Patres Fontium, the Fathers of the Fountains, Sources, Origins, Causes, whose care and duty it is, to decide and preserve the Principia, the dominions, the elements of all things, and the inviolable Laws of Nature."
+
+Here, the curious reader may perceive the Zonia, and the Azonia, divinities not bound to any certain sphere, each with proper ornaments, and relegated to male and female forms. Indeed the formation of the Tablet is such that it must also be effectual as an amulet against evil influences.
+
+He then describes the divisions of the Tablet, which need not be repeated here, and points out eight special points of notice in the figures, the head-dress, clothing, wands, and weapons, hieroglyphics, the actions implied, the position, erect or seated, and the form, sometimes animal, at others human, in other cases, combined.
+
+"The Egyptians considered the Divinity in two manners, as an Eternal Existence, self-constituted and quite apart from terrestrial concerns, or in connection with created objects which it governs by ministering spirits, and secondary powers They admitted a Triple essence of Deity, and also a triform secondary divinity, as they had learned of Hermes Trismegistus. This Divinity imprinted his seal upon all earthly things, both living and dead. Upon this same essential plan was this Tablet constructed."
+
+This system of Philosophy and Theosophy which Kircher associates with the Isiac Tablet, is of an extremely occult character. It is almost identical with that form which is ascribed to Zoroaster, as founder of the Chaldean or Chaldaic system. It has many points in common with the Kabbalistic scheme of the ancient Hebrews, which is known to us chiefly through the medium of the Zohar and Sepher Yetzirah. (A large portion of the former work is now for the first time being translated into English and published by Mr. S. L. MacGregor Mathers, and the latter has been translated from the original Hebrew versions by myself.) This Sepher Yetzirah, as Eliphas Levi pointed out, throws much light on this Tablet. The Chaldean doctrines are fully described by T. Stanley the Elder, in his History of Philosophy, 1740.
+
+The Eternal Being is first, with an Emanation of Light and Fire; then powers Aeviternal and Incorporeal, in three orders: 1st, Intelligible; 2nd, Intelligible and Intellectual; and 3rd, Intellectual; and lastly Mortals.
+
+In the second form are placed Fountains and Principles, and also Azonia, or Unzoned Gods, not restricted to any particular sphere, and the Zonia, or Deities restricted to special worlds; Angels and Souls succeed these. The Pater, Potentia and Mens, so often alluded to by Kircher are referred to the order of Intelligibles. The Iynx (this word has in Greek several meanings--Passion, Desire, Magic Wheel, a Charm, a Wryneck Bird) heads the second order of Intelligibles and Intellectuals, to whom follow the Synoches and the Teletarchs. The third order includes the Once Above, Hecate, the Twice Above, the three Amilicti, and the Hypezocos, seven Fountains of Power. Any further attempt at explanation would lead us too far from the object of this volume. Proclus, Psellus, Damascius, and Porphyrius should be consulted.
+
+Kircher then proceeds to describe and explain, as follows:--
+
+The Middle Region. In the centre is placed the most important design, consisting of The Great Gate of the Gods, an architectural canopy over a throne, on which is a seated figure. On the top of the canopy are shewn diverging flames, below is a globe double winged, then a second winged globe, a third is also seen below the seat of the figure: around the sides of the canopy are a series of squares, in which are circles with eight divisions. A column marked with alternate black and white bands and surmounted by a head of Isis, stands on each side of this canopy. Seated within is the figure of a female, dressed from waist downwards with feather markings, and having many closely placed breasts (not shewn in the drawing); on her head a fillet, and a Numidian bird the Turkey surmounting this, on its back a basket from which arise two Persea leaves and two horns, these latter bound a disc on which is a Scarabaeus. In her right hand is a Lotus
+
+[p. 5]
+
+flowered sceptre and her left hand is raised in attitude of command. Her seat is plain, but a sitting Dog is engraved on it. Below her seat is another design, an Abacus, within which lies a monster Nepher, part Lion, part Hawk, a Canopus between its fore paws: behind it is seen a Globe Winged and combined with a Serpent, over its head is a crescent Moon, 'and a sun within it. On each side of the Canopy are placed columns, and on each is a Serpent, as if as a guard.
+
+There are Three principal figures on each side of the goddess, each triad O Q R on the right, and X Y Z on the left, consists of one seated figure, and two standing ones: note that O and Z are clothed alike: R and X next the canopy have similar pedestals, wands and head-dress: Q is Ibis headed, and Y is a seated .female human figure.
+
+This Central Canopy represents the diffusion of the Triform Supreme Mens in the universal ways of the Three Worlds, from which process of evolution this Sensible World or Universe emerges, called by Plutarch the Borne of Horus, and by the Egyptians the Great Gate of the Gods.
+
+The diverging flames on the summit of the canopy mean the eternal and incorruptible supreme Mens, full of Fire, Light, and Life: the influence is communicated to the Intellectual, Sensible, and Elementary Worlds, as pictured by the three winged globes.
+
+The seated figure is the Supreme Mind, or PANTOMORPHOUS IYNX Multiform Sphynx, or Logos, Word, or Soul of the World, and is placed here in the middle, as in the Centre of Universal Nature. The sitting posture denotes Power and Dominion., the Dog is drawn on the seat, because the Isiac Iynx is associated with the Dog Star, Sirius, or Sothis: the feather winged clothing of the limbs denotes the sublime velocity of the higher powers: the abundance of breasts denotes the unlimited powers of creation and preservation: the necklets denote the celestial orbs in constant movement: the fillet on the head, or covering, denotes the hidden procedure of Nature, and the Turkey (the Numidian bird of Martial) of many colors and spots, denotes the variety of created things. The Basket denotes abundance, and the Persea denotes that Wisdom which administers all events: the Horns denote the Moon, and the Scarabaeus and disc the Sun, the sceptre denotes that all things are modelled after the  of the Paternal Mens, and the Lotus means the unwearied procession alike by night and day, the raised left hand denotes the ruling power whose every command is fulfilled. This mother of Universal Nature the Egyptians called ISIS, of her they indicted the inscription:--
+
+"Ego Isis omne sum id quod est, et fuit, et erit, et meum peplum nemo mortalium unquam retexit."
+
+"I am Isis, I am all that is, that has been, and that will be, and No Mortal has ever yet withdrawn my Veil."
+
+The Squares and Quaternary, and the Octuple division of the Circles, which form a design on the columns of the canopy, denote the numbers 4 and 8, which together produce 12, the symbol of Mundane Perfection. The alternate dark and white spaces on the columns refer to the ever varying vicissitudes of terrestial affairs. The two Serpents on standards are Ophionian Agathodaemons, Good Divinities, they indicate the life of earthly being, vegetable and animal, which need heat and moisture. The Abacus below means the Elementary World, The Lion T with the black veil is the Earth, the Hawk head refers to Elementary Fire: the Moon and notable star the Sun, point out that all things below are influenced by Luni Solar power: the Canopus means Elementary Water; a bi-partite flame above and two feathers denote Elementary Air, meaning that Water by Heat becomes vapour. The Kuklo-ptero-morphos, or Serpent Winged Globe means that all this Elementary World is animated and preserved by the power of the Supreme Triform Deity. The Elementary World is also called Hyle by the Greeks.
+
+The hieroglyphics of the upper set in face of the IYNX read as follows:--The entrance to the quadripartite world, through which the Pantomorphous Soul of the World Both enter, it penetrates all things with the eye of divine Providence, bestows the sphere of life by flowing both through the four parts of the superior world, and through the five gates of the inferior. world. The lower group reads thus:--The Barrier of the portals of the Superior and Inferior Worlds, of which the chain of the Zones is removed by the Ibimorphous Agathodaemon. (N. B. Kircher's translation of the hieroglyphics must be taken with all caution, as the secret language of the hieroglyphics has been lost since the period of the Ptolemies, until the last few years.) Orpheus has well described the Pantomorphous Nature Mother in the lines commencing:--
+
+
+	Natura omnium mater Dea, artificiosa mater;
+	 Suscitatrix, honorabilis, multa creans Daemon Regina.
+
+[p. 6]
+
+
+	Nature, all-parent, ancient and divine
+	 O much mechanic Mother! art is thine
+	 Heavenly, abundant, venerable Queen
+	 In every part of thy dominions seen.
+
+The Two Serpent figures Y and W, with the central Sphynx T form the Ophionian Agatho-demonic Triad, or Serpent Good Deities, the symbols of the Pantomorphous Spirit of the World, acting in the Three Spheres, Intellectual, Ethereal, and Elementary. Of the two lateral triads, Q and Y are Patres seated, R and X Potentiae, O and Z the Mentes, the faces of all are turned towards the Great Mens.
+
+Q is Ibimorphous, a Male divinity with the head of the bird Ibis. This is Hermanubis, the Mercury of the Romans, Hermes of the Greeks; the Ibis head denotes Deity of Moisture; the tesselated chair points out the ever changing states of nature, day and night, heat and cold, etc. Orpheus wrote:--
+
+
+	"Qui Mundi habenas tenet, variegata, sede splendidus."
+	
+	"Who holds the reins of the world, splendid on his variegated throne."
+
+The Quail pictured on the seat is a symbol of adversity, through which the general good of the universe is consummated. The Crux ansata of the Right Hand shows the influx of virtue from above, and the Isis headed wand, the power delegated by Isis, Pantomorphous  Nature Goddess. Of the head-dress the flames denote the power of heat; the serpents, life; the feathers, velocity and subtility; and the floral centre, fecundity.
+
+The two Crocodiles below the throne denote the evil powers of Typhon under the subjection of the Ibis.
+
+The eighteen divisions of the footstool denote the eighteen cubits rise of the Nile; which confers the acme of fertility, and the Ibis Thoth is the Nile deity. O is the Mens of the Triad, is a female with a full breast, she has long wings reaching to the ground, her feather wand denotes dominion over airy powers, and the vase on the pedestal, the nourishment by the Nile water, the hieroglyphics above read:--"The airy good genius of all nature, communicates its power by moisture so fecundating it." P is an Andro-sphynx, the fiery nature deity, and the hieroglyphics read:--"The divine arbiter by his power impresses with his seal the heavenly life." R is the executor of the commands of this triad, he is almost naked and his legs apart as in motion on his pedestal we read:--"He penetrates with the  celerity through the celestial sphere, through the moist Kingdom of Momphta, and the sacred Ibimorphous lakes." S is a flying Hawk it holds a circle and a rod, and refers to the power of heat, supplied by the archetypal Fire of the Supreme Mens.
+
+This whole triad denotes Masculine Potency, Active agents, while on the other hand X Y Z are Feminine, and Passive; but neither of them so in totality, but for the present purpose; for the Egyptians considered a deity to be bisexual, or asexual, yet becoming either active or passive, male or female as specially required.
+
+Here then we find the presiding Pater of the Triad to be a female, she is Nephta, throned and with a flowery head-dress, a kneeling figure beneath the seat, and on the pedestal is a Lion the symbol of Momphta, the rising Nile. On her head with triple flower symbols, is a winged scarabaeus beetle, type of the fecundating power of the Sun.
+
+Z is a similar form of Mens to O, with long wing and vase on a pedestal before her, her breast is full of milk. X differs from R the corresponding figure, it is a female also with the tumid breast, and a head-dress with globe, serpents, and feathers. a and b are companion figures, the Numidian Turkey and a Hawk.
+
+The Iynx of Chaldea, or Soul of the World, or Paternal Word, is also called by the Egyptians, Hemphta.
+
+The Azonian Hecatine Triad, L M N. This triad contains three Mentes, named in Greek, Triecdotis, Komas, and Ecclustike, while the Azonian gods are Serapis, Bacchus, and Osiris. The centre of all influxes is denoted by the head M, female with black veil and white ears, three necklets, and a great doorway of the world on her head. She is Isis under the form of Hecate, a type of the Great Pater, her white ears are canine, the dog was sacred to her. She was the faithful guardian and preserver of earthly treasures. Because the sensible world is subject to many changes, it is marked by the Lotus flowered column, by it are two heliotrope flowers, denoting the Solar motion, and the particolored column also points out the alternating states caused by the Solar motion: the column stands in a cordiform pedestal for a mysterious reason The attendants L and N are called by Psellus Triecdotis and Komas their breasts are pendulous with their abundance of milk, they have triple collars, relating to the animal, vegetable and mineral natures.
+
+[p. 7]
+
+The Serapean Triad, z Zeta, e eta, and th theta, is named from the head of monstrous shape marked H, this is the Pater, Zeta is the Mens, theta the Potentia: this is the Fontane triad of Faith, Truth and Love. Serapis is the Sun below the horizon, subterraneous, which the Greeks called Pluto and Dis, exercising authority over all the lower world. On his head are three feathers, of the triform deity, close by are drawn a Frog sitting on a Persea flower, and a Cynocephalus with a Moon above its head. The attendants stand one on each side of a similar mysterious column, as in the Hecatine picture, and the whole has a similar meaning.
+
+The Isiac Triad is placed over the Hecatine, in it we see the white and black Bull Mnevis, fecund deity of Omnipotent Nature: and the Osirian Triad is placed over the Serapean, in it is a White Bull or Apis, the one specially Lunar, the second Solar, and they have a relation to agriculture. The attendant K is Triptolemus holding a cup and a bovine phallus, G is Maro, the words above are:--The propagator of the celestial fluid to lower beings. The other two attendants are similar. Pignorius names the two bulls, Onuphis and Menuphis.
+
+Kircher then sums up the objects in the Middle Region as follows:--
+
+The first Triad of the Fiery Archetypal World, the Triform World of Life, and the Uncreated World bring forth seven triads,--Genii of the Universe:--
+
+       	Iyngean,
+
+      	Ophionian
+
+      	or
+
+      	World of Life and Fire, Aethereal.
+
+     
+     	 
+
+      	Ibimorphic
+
+      	or
+
+      	World of Moisture, Aethereal.
+
+     
+     	 
+
+      	Nephtaean
+
+      	or
+
+      	World of Fecundity, Aethereal.
+
+     
+     	 
+
+      	Isiac
+
+      	or
+
+      	World of the Moon, Sidereal.
+
+     
+     	 
+
+      	Osirian
+
+      	or
+
+      	World of the Sun, Sidereal.
+
+     
+     	 
+
+      	Hecatic
+
+      	or
+
+      	World of Vegetable growth, Sublunar.
+
+     
+     	 
+
+      	Serapean
+
+      	or
+
+      	World of Subterraneous existence.
+
+     
+ The Kabbalists describe Ten Worlds of which the three highest, referring to Kether, Chocmah and Binah are concealed, and are also denoted by the mystic A M S either male or female they also specify Four Worlds, the Aziluth for Deity, Briah, for Archangels, Yetzirah for Angels, and Assiah for Demons, Human beings and Matter; these possess secret names which are OB = 72, oib; SG = 63, seg; MH = 45, mah; and BN = 52, ben.
+
+The Superior Region. These twelve figures represent the Twelve Directors of the Celestial World. They are selected into four triads, and answer to our twelve signs of the Zodiac, and twelve months. Triad One consists of P S and V, referring to the months whose Coptic names are Mechir, Phamenoth; and Pharmuthi, these three constitute Winter or Mendes. The corresponding Hebrew months were Shebeth, Adar, and Nisan or Abib: that is January 26th to April 26th very nearly. Triad Two is X Z and A, the months Pachons, Paoni, and Epiphi, and are Spring or Ammon; the Hebrew are Iyar, Sivan, and Tammuz, April 27th to July 24th. Triad Three consists of B C and E, the Months Mesori, Thoth, and Paophi, the time of inundation, Momphta, Summer; the Hebrew months are Ab, Elul, and Tizri, July 25th to October 27th. Triad Four consists of the months, Athyr, Choiak, and Tybi, F G and H, forming Omphta, or Autumn; correspond to Cheshvan, Kislev, and Tebet, from October 28th to January 25th; but Hebrew and English months do not correspond exactly; Hebrew months begin with the New Moon.
+
+Psellus, quoting Zoroaster, says:--After the Intelligible Divinity, named "The Iynx," come the Directors of the Sidereal World, ruling over elementary fire, air, and matter. Compare the Sepher Yetzirah, cap. 5, sec. 1, where the twelve simple Hebrew letters are associated with the months and zodiacal signs. The most ancient Egyptian Zodiacal signs were, according to Kircher:--Ammon, Apis, Helitomenon and Harpocrates, Hermanubis, Momphta, Isis, Omphta, Typhon, Nephtys, Mendes, Canopus, and Ichton.
+
+The later Demotic Zodiacal figures were in the same order:--A skin, bull, shoots of a plant, scarabaeus, knife, virgin, solar mountain, snake, arrow, life, water, and fish.
+
+In the , S the Pater, V the Mens, or Mother, and P the Potentia, form the Triad of Mendes, the Goat, which is seen on the altar M: this symbol refers to the fecundity of the earth ready to nourish the germs of growth. It was customary to sacrifice goats at this season as an appeal for a favourable season. Capricornus translated into the skies, according to the. Greeks, refers to Mendes. Pis male, and V a female with tumid breast, each carries a Crux Ansata token of the Apotropaeum Numen, or Intercessory Deity. These are symbolical of the Active and Passive powers of Nature; Q and T are tablets acting as Amulets.
+
+In the Second Triad of Ammon X is the Pater, Z the Mater or Mens, and A the Potentia. Note the Ram Ammon seen above standing by a plant with three fructifying branches, symbol of the intense and ripening heat of the season. Rabbi Jehuda in the Zohar says, "to denote heat they drew a Ram,
+
+[p. 8]
+
+the horns diverging upwards being types of flames of fire." X is Ammon as a warrior with a lance, a Nilotic Phenicopterus in his left hand; the is often combined with Osiris.
+
+Z is Mother Isis to whom corn and fruit are dedicated. A the Potentia carries an Ibis Feather in the right hand and a Vase of Nile water in the left. (Pignorius says that the peculiar conical skirt of A is to insinuate Priapism.)
+
+Y, the Cynocephalus, marks the vernal equinox; below his seat are six circles with crosses of four lines, referring to 24, because at the equinox, when the day is 12 hours long, this animal was said urinam reddere every hour through the day, and through the night 24 times.
+
+The Third Triad, named Momphta, refers to Summer, its figures are B C and E. It is so called because Momphta is the presiding genius of Leo, the Rising Nile, which D, the Nilotic Sphynx expresses; on the head of D are the Crescent Moon and the Sun .dark, on the base are six quadrifid circles, or 24 days of increase, and 24 days of decrease. C is the Pater, an Intercessory deity, his vase shaped head-dress. is ornamented with circles, a snake emerges from it, and above it are two hawk's feathers and a circle; symbols of the vigour of the Sun, heat and life. His companions are the Mens, an Isis E, and the Potentia B. E has a white head-dress, a vase above it, then horns, star, and feathers, in her right hand a feathered sceptre, two triangular sistra hang from it. The horns are Isiac and the star is Sothis, whose heliacal rising preceded the Inundation: the sceptre is a weapon against Typhon, who is always supposed to be disturbed by music or noise. B carries an Absinth branch, and has, a Thermuthis on her head, the Absinth, enemy of putrifaction, was plentiful at the beginning of the month Thoth.
+
+The Fourth Triad is called Omphta, and concerns the Autumn. Omphta is the protector of the sign Libra, a Beneficent deity, ruling when the land of Egypt, pregnant with moisture after the inundation, is so disposed to fecundity; it is the figure G, with the Thyrsus in the right, and the Phallus oculatus in the left hand. The companion F holds a Cuckoo-headed wand and in the left hand a cup of black earth, alluvium, a happy augury for agriculture, which is referred to by the beast's tails of .F and G. H is an Atoning deity, carrying a Lotus flower wand, to ward off attacks of Typhon, the evil one; she also has a full breast, symbol of fruitfulness.
+
+The Inferior Region. This contains twelve principal figures, the Fathers of the Perennial Fountains, the Rulers of the Terrestial World: these are also divided into four series of triads--ps Ff Hh, the Western; x o S, the North; t f x, the Southern, l M N, the Eastern.
+
+The triad of the Great East Gate of the World presents M, the boy Horus, enclosed in the portico, he is involved in a network, holds a wand with a Cuckoo head and a cross upon it, and also a square and a trumpet; behind his neck hangs a triangle with a globe emerging from it. The portico is ornamented with a Winged Globe above, and its sides with quadrifid circles, and five pointed stars alternately placed.
+
+This gate admits all light, life, and motion, symbolized by the winged globe, to the four parts of the world, and the five orders of beings.
+
+Horus is the Sun, which confers heat and light to our earth, and rises in the East: the network points out that its origin and powers are hidden from our knowledge: the Cross denotes its power over the four elements, the Cuckoo head denotes variety of production, the square denotes order and symmetry, and the clarion, harmony: Plato calls the triangle the symbol of the world.
+
+The hieroglyphics on the pedestal read thus:--
+
+"The parent of vegetable nature, preserver of moisture, the sacred guardian of the Nile--Osiris, pantomorphous or many formed genius of living beings and things, making them fertile."
+
+N is a female figure filletted, with a Hawk on her head, offering five cups to Horus; this is the Mater or Mens of the triad. The Hawk expresses Heat and Light, and the five cups are the semina of water, air, minerals, vegetables, and animals. She is a form of Isis. l is the Potentia, a female figure with a Lotus flower wand, an asp with a turgid breast above it, and a star; in her left hand is a cup, her breast is full. This Asp is ophionian, called Thermuthis, and means the Life and Motion of things.
+
+The Second Triad is named Aeluromorphos, Fontana, or Western, and is placed at the opposite end of the Region. Ff is the Parens, a female figure with cat's head, standing in, a portico; above is the Winged Globe, symbol of the influx of the Supreme Mens; around are the quadrifid circles; referring to the Mundane world. In her right hand is the Lotus wand, in her left the Crux Ansata; on her head are a globe; scarabaeus and
+
+[p. 9]
+
+serpent. In the West, the Sun leaving the Upper Regions, seeks the Lower, night comes on, when Aelurus, or the Cat, with eyes specially fitted for night use, becomes powerful The Moon then supplants the Sun, for the Egyptians looked upon the Moon and her Rays, as the Sun's Rays reflected from a Mirror, instead of being direct. The Crux Ansata was a most powerful amulet or phylactery against evil powers, which are most offensive in the darkness.
+
+ps the Mater or Mens, carries a wand with flowering top in the left, the Phallus in the right, on her head is a diadem of two flames, two feathers, two asps, and a circle or star: the phallus denotes Fecundity, the flower head, vegetable nature, the diadem, Heat, Life, and Motion, reflected to the Moon from the Sun.
+
+H is the Intellectual Potency, Fecundity, in his left hand is a papyrus stem, sign of plenty, his right hand command the wishes of the androgyne Pater and Mens. Over his head are the Thermuthis and star,--(see above).
+
+But this triad presents us with three extra figures, d, e, and U. d is a sitting Dog, with a Sistrum, a musical instrument consisting of an oval metal frame, with loose rattling crossbars, this designates the Horizon destitute of solar light.
+
+Plutarch says the horizon is Anubis, the dog headed custodian: the sistrum is to terrify Typhon the Evil one.
+
+Omega U is also Anubis the Andro-kuno-morphos, with globe, serpent, and Ibis feather on his head; the Ibis being an enemy to the crocodile Typhon. It is on a column, and may be compared to the Hecatine Cerberus. e is Horus the Sun, harmony in the sensible world.
+
+The Third Triad is Pandochaean, the presidency of the genii of the North.
+
+The central figure is O a female seated; she has a full breast, the Lotus flower wand, and the mark of Thoth, the Crux Ansata in her right hand. Her seat has a chest board ornamentation, and her dress has a sort of crux ansata scattered over it. She is seated as a ruler of the North, which has definite limits; her variegated seat, marks the light and shade of the Northern Sun, corruption and generation alternating. The crux is needed as a protection from Typhonian powers, the Lotus Wand points to the archetypal Sun. The number Nine is associated with the North, being next to Ten, the complement of all good. First, the seat points out alternate day and night; secondly, the vegetable fasciculus of nature; third, the plenitude of influx shewn by the many cruces; fourth, the Crux ansata amulet; fifth, the Lotus sceptre, the Archetypal Sun; sixth, the Mundane cup or reservoir; seventh, the asps, the sanctuary of seminal vitality; eighth, the cloven cross, the mystery of the Solar Agathodaemon; ninth, the wings mark the barriers of the intellectual virtues. On the pedestal are alternate quadrifid circles and sets of five lines, the Egyptian symbol for the number nine.
+
+x Xi the attendant Mens has the Cuckoo wand and the Crux, and Globe and Serpents over head. S or Sigma the Potentia on the left of Pandochus carries a Quail, symbol of the wicked wiles of Typhon, against which the winged-serpent-globe, good-deity, marked a, works with constancy.
+
+The Fourth Triad is Thaustic, the presidency of the Southern genii. The Pater, f or Phi, is seated on a throne, ornamented like that of the North; his right hand commands his Mens T, his left has a papyrus stem, his head is most special, being Ierakomorphous, or like that of an Hawk. He is seated as a Ruler, and fixes the limits southwards, the Hawk head refers to the Solar Intelligence, life, light and spirit. He is called Thaustus, and Baieth, which means the Heart of Life, His crown is marked with many circles, which means dominion over many realms. The number 7 is dedicated to him, note the quadrifid circles and three lines, recurring on the pedestal. His companion T offers him a cup of Nile Water, and a Hawk's feather, she is clothed with a deer skin. These mean the heat producing Southern climate, so valuable for growth; on her head is a vase of flowers, with a statue of Hecate. This T is the subterranean Isis, called by the Greeks Persephone, the deity of flowers, fruit, and vegetables, and refers to the richness and fertility of the Southern Nile. x or Chi, the Thaustic Potentia, is also a female figure, with body and lower limbs covered by Hawk's wings wrapped around them: the Pharaonic bird, the Turkey, is on her head, and above it a cup, from which emerge two Cows' horns, with the Dog Star, Sothis, between them. This lady is the Nilotic Isis, she is an Atoning Divinity, the Sothis was sacred to her. Sothis is also placed over Y, the Scarabaeus with open wings. C is an Ibis with a Nilotic Vase from which grows the Absinth or Seriphius, also sacred to Isis; it was supposed to purify water. The Ibis is the Agathodaemon, or good genius of the Nile.
+
+[The South of Egypt was always held in great veneration and was called the Lamp of Light, and the Cup of the World.
+
+[p. 10]
+
+[paragraph continues] The Egyptians also called the North the Right and the South the Left of the Universe, because the human heart sending forth vivifying blood to all the system is on the left side, so with the Nile, the fount of all moisture and fertility to Egypt. Osiris a Nile Deity was black like the fertilizing Nile mud, hence Khem, Chem, Ham, words derived from the Chaldee CHM, heat and blackness. Horus was not painted black, although the son of Osiris. There is a mystical allusion in this blackness of the god, he is the lower shadow of a great light one, black by contrast. Levi says that a great secret of the Egyptian mysteries was revealed when the neophyte of the priesthood was told, "Osiris est un Dieu noir."--Levi.]
+
+The Limbus. Of this vast array of designs only a limited mention can be made on account of want of space. Upper Row. 1, a Dog sitting before a Sistrum and a vase of Nile water, and on either side a Lotus flower and a Persea leaf, a Phallus behind and before him. The Lotus was a white Nymphaea with narrow lily-like leaves; its flower rose above the water and expanded at sunrise, and closed and sank at sunset. The pendent Persea leaf is tongue shaped, its plant had a heart-shaped fruit. The Dog is Anubis the Guardian and preserver of the phallic fecundity of Osiris, and winged-serpent-globe is the cause of all causes, the Supreme Mens. 2 is a Hawk with the head of Horus, the idea of Terrestrial Providence. 3 is a Lion or Momphta, the action of the fiery heat of the Sun upon the earth. 4 is the Phallus oculatus adored by 5, Nephta praying for fecundity. 6 with Hawk head and Asp body is a good deity, symbol of light, life and motion, acting under 7, a Bovine head meaning Lunar influence. 8, a Frog upon an altar, living in Nile Mud, was sacred to Isis, but was a type of the lowest creatures and formation. 9 is an Androsphynx, Man Lion with a kneeling man, 10, before him. 11, 12, 13, 14 are a boat with a Mnevis Bull and attendants; this boat is the famous Egyptian Barys, it has a Hawk figure head, Horus with an oar, a plant of the sacred Erica, erect Persea leaves, a square in front of the Bull, and a guardian Ibis with a feather, and a crescent moon on her head, a lotus flower is on the poop of the vessel, this vessel is the vehicle of the supreme influence passing down through all the universal paths of the world. 15, 16, 17, a worshipper is Horus, then the Hawk is Thaustica, Solar; and a Goat's head on an altar refers to Mendes or Simendes the Greek Pan the fertilizer. Then follow 18 and 19, the worshipper, and Ammon a Ram. 20 is a vase of Nile water used at the festival of the entry of the Sun into Aries, or Spring. Then follow 21, a Cynocephalus, 22, a worshipper, 23, a wine bearing fountain of Hecate, and 24, a Hawk-headed-Lion-sphynx, with a Canopus. 25, the Lion is Osiris causing an influx over the sensible world, Horus 27. 28 is the Luni Solar influence affecting the 29 Frog or mud, or primeval matter to fertilize it. 30, this Sphynx is Hemphta, the Supreme Intelligence. 32, Lion Sphynx is the Archetypal Fire. 33, Ibiform, is the Archetypal humidity. 34, Asp Sphynx, means the genius of life, heat and motion. 36, the Meleagris, the Genius seminalium rationum. 39, 40, 41, is a symbol of the influx of the triform deity, or Soul of the World, upon the Sun, Horus, and hence to the Nile by the virtue of the Leonine Momphta; the guardians of the bed are three, the Man-headed Canopus, the Hawk-headed Nilotic Osiris, and the Dog-headed Anubis, denoting the power of humidity, Luni Solar influence, and guardianship. 42, the Mnevis Bull, is the Universe. 45, 46, the conjunction of the Ibiform Nile genius, and Leonine, Heat. 47, 48, 49, the Ship of Ammon, with Horus as guide. 50, 51, conjunction of Momphta Leo, heat, and Mendes, goat, fecundity. 52, 53, 54 Ibiform Lunar intelligence, conjoining with Solar. 55, 56, 57, conjunction of the Anubis Mens with the Luni Solar Cynocephalus. 58 is the Sensible World, and 59 is the Soul of the World, the Scarabaeus conjoined. 60, the Sothiac Mens, that of the Canicula or Dog Star.
+
+The last portion of Limbus contains Atoning Deities. 61, the genius of Horns, before the Ophionian Mens, 62. 63 is like 30 64, 65, 66, the Hawk-headed Agathodaemon of Ormuzd, with the Mnevis Bull. 67, 68, 69, the Ibiformed Nilotic Horus group. 70 is Anubis. 71 is a Scorpion, evil demon, combatted by Momphta 72 and by 70. 73 and 74 denotes the war between Horns and Typhon. The plant by 70 and 71 was called Mars, Blood; and also Motmutin, and was a Portulaca, the title meant "delivering from death," it was used also as a medicine to combat fevers and inflammations.
+
+[The true original sphynx I believe to have been the Virgin-headed and bosomed, Lion-bodied conception, symbol of the Zodiacal signs Leo and Virgo, under whose influence the Revivification of Egypt by the Nile inundation occurred.]
+
+In his extremely valuable work, "L'Antiquite expliquee," Bernard de Montfaucon, the Benedictine, published in Paris, 1719, an engraving (said by Keysler to be inverted) of the Isiac Tablet, and a Chapter of description is added. He deems it to be a general sketch of the religion and superstitions of Egypt, and appears wholly symbolical and enigmatic: it is
+
+[p. 11]
+
+seen at once that this vast collection of figures, arranged in such a definite manner, must shroud some mystical meaning; but when it has to be decided whether the tablet be a history of the gods, or some system enveloped in religious secrecy, or ceremonies, or whether the tablet has a moral design, or even if it be a resume of all these, hesitation is necessary. One thing is plain; certain characters appear several times, and act the same parts, yet the scenes are varied, as in a drama. Montfaucon considers that the work of Pignorius, Amsterdam, 1670, gives the most learned account, but in a suggestive rather than a dogmatic mode; while Kircher never hesitates, and is never embarrassed for a meaning, but M. adds, "his readers will find his account original, and will doubt whether any Egyptian ever thought as he did."
+
+M. describes the tablet at length, and points out that there are three Regions, the first containing four scenes, the second three scenes, and the third four scenes, eleven scenes as of a drama. In the First Region he describes P as Osiris, S as a Priest sacrificing a goat to Isis, V; then X is Osiris offering a bird to Isis Z, who gives him a cup in return; behind Isis is a Man A holding a cup and a bill-hook; above the bird of Osiris is the Goat of Mendes, and below is Y a Cercopithecus, monkey. The third scene has three figures, an Osiris C between two figures of Isis B and E. D is a Griffin sacred to the Sun. The fourth scene completes the first band; Osiris F offers a cup to a figure G, whom M. fails to name: H is a final Isis without doubt. He remarks that G holds in his left hand an unknown emblem (the phallus oculatus of Kircher).
+
+The Second Region. The fifth scene represents two figures of Isis, each holding a flower pendent from a tendril, and between them a column surmounted by the head of a cat, or of Aelurus, and above it a basket with handles. The Bull Apis with two priests occupy a space over this scene. The seventh scene resembles the fifth, with the exceptions that the Bull is Mnevis, and in the. lower compartment the cat head is replaced by a mysterious figure head or mask.
+
+The sixth scene is the grandest of all, and contains seven figures, the chief actor being in the middle between two trills. This is Isis seated on a throne between columns with an architrave and cornice; on her head is a bird with its wings falling downwards to her shoulders, above the bird horns and a globe. Some think this bird the Numidica gultata of Martial, the fowl of Numidia, with spotted body. In a compartment below her are a Griffin and a Canopus, and a Star, probably the Sun, for the crescent Moon rests on the head of the Griffin.
+
+The figures next Isis on each side seem like a Body-guard, and on each side of her is also a Dragon. Next come Q Ibis headed seated on throne over crocodiles, and Y an Osiris with a monstrous head dress, beneath him are a Kneeling Man, and a Lion. Above him is another bird similar to the Numidian head dress of the central figure. Two females O and Z similar complete the scene, these also resemble Isis, and they hold in the right hands curious sickles, which they hold over vases standing on columns: on their heads are horns and discs, and on the discs which are surmounted by feathers, are the mutilated organs of Osiris, these figures have long wings; they are probably priestesses of Isis. Above one is a Syren bird or Harpy and above the other a Sparrow.
+
+The Third Region. The eighth scene has three persons, the central figure is framed M, he is apparently in a net, this is Horus, au Isis is behind him, and another before him offering a tray of goblets. The ninth scene is Isis seated between two figures of Osiris, one of whom offers her a bird.
+
+The tenth scene presents Osiris seated; he is sparrow-headed, an attendant Isis is seen on each side, one has the Numidian bird head-dress.
+
+The eleventh scene shows five figures, of which the chief is a Lion headed Isis, Anubis stands before her, next comes Osiris presenting to her a Phallus Oculatus (priapic eye), then follows Horns, and above him appears a cat holding a Sistrum, which was an Egyptian form of musical instrument, consisting of an oval metal frame with a handle, three or more metallic bars passed across the oval placed loosely in holes, so that a metallic tinkling was produced when the Sistrum was shaken: then finally a figure of Osiris with a great Serpent on his head closes the array.
+
+Of the Limbus, or border of small devices, lie only gives a Catalogue, without any explanation of their meaning.
+
+In Dr. Samuel Shuckford's "Sacred and Profane History of the World connected," Vol. II, p. 315, there is a discussion on our Tablet. The author seeks to prove that it was designed before the Egyptians came to worship images of Men and Women; because all the images before which priests are seen in posture of adoration, are those of Birds and Beasts; see the Border, nineteen examples; and he suggests that the worship
+
+[p. 12]
+
+of images of Men was their last and lowest form of Idolatry; the Beasts being only symbols of the great First Cause considered in his attributes and relations. The kneeling Priests are found in the Border only, and not once in the main body of the plate He concludes:--(1.) That the Border represents the several animals which were worshipped in Egypt at a certain date, and the priests of each cult. (2.) The Table itself pictures some of the Priests not in the act of worship, but each in some characteristic ministration. (3.) The Animal figures associated, with many, point out to which animal's worship. each one belonged. (4.) The five seated figures represent eminent Priests, and are Monuments of them; those who have animal heads instead of human are those who have been honored with the names of the gods whose symbols they carry. (5.) That Montfaucon has wandered unaccountably from the true explanation in supposing many of the human figures to be Isis and Osiris presenting goblets, and Birds and Staves to another, because no designs of any such trifling intercourses have ever been pictured by ancient writers respecting them
+
+William Warburton, M.A., in his "Divine Legation of Moses," 1738 discusses the Bembine Tablet, and copies two of its figures in his chapter on the Hieroglyphics of the Egyptians. Book IV sec. IV, p. 185. He judges that the Tablet was made by some devotee of Isis living in Rome, that it was one of the latest of the old Egyptian monuments from the mixture of all kinds of hieroglyphics upon it and from its representing Isis in a galley that is as the first Cause of all things, which he adds was a late notion. He remarks that Jamblichus and Tacitus teach the notion the Egyptian symbol of a Ship and Pilot always referred to Isis and meant "the governor of the universe.
+
+Paul Ernest Jablonski, in his Pantheon Aegyptiorum, 1750, makes many references to the Tabula Bembina. He considers that the central figure represents Neith rather than Isis, partly because the figure is seated, a characteristic of Neith in particular, according to Eustathius, and partly because of her head dress bearing a scarabaeus on a globe. He also refers to the Canicula, or Little Dog beneath her seat, and adds who could be more properly placed in the middle of the tablet then Neith the Opifex or Artificer of the World, equivalent to the Greek Minerva. to some extent.
+
+He notes that the Thermuthis or Uraeus serpent, a constant companion of Isis, is placed each side of the central figure S, although this Thermuthis is also a type of Tithrambo, equivalent to the Greek Hecate, and as he says, "the just anger of the highest deities against the sins of men." He notes Ammon as the Ram, and Harpocrates as the Sun Renewed, with the feet closed in one case or network at the winter solstice; also the sacrifice of the Wild Goat at the Vernal equinox, figures S and M. The pair of designs L M N and z e th are each two maidens, standing one on each side of what is considered to be the Nilometer, the measure of the rising of the Nile. I note that in one case they have flaccid empty bosoms, in the other they are turgid and full of milk, denoting the Nile Valley, at one time sterile, but after the inundation very fruitful. Another very interesting point in this connection is the fact of Egypt, the Nile Valley, being shewn by two women on one side of the glyph of the Nile, and compare this with the fact the Biblical name of Egypt is Mizraim, or MITZRIM, a dual form of MTZUR, indicating that the two banks of the Nile constitute the country; compare also the Greek dual Mesrain, mesrain. Sothis is also a title of Isis, it really meant in Egyptian--initium temporis, the commencement of time, or of reckoning time; from it is named the "Sothiac period." A Frog sitting on a Lotus leaf was a symbol of the Decreasing of the Nile, when much invaluable mud was left behind for agricultural purposes. The Coptic word HRUR means both subsidence of water and frog.
+
+The same author Jablonski has in his "Opuscula," collected 1807, a tractate entitled, "Specimen of a new Interpretation of the Isiac Tablet," and also another named "A conjecture in conclusion." These are two very learned essays, and I cannot refrain from quoting from them, although I differ from him in many of his conclusions: his references to letters in the plate, refer to the edition of Andreas Frisius, so I have had occasion to change them for those used in my Photogravure. He suggests that the Tablet was designed in the time of Caracalla, or of the Antonines, and is a Calendar of Festivals of the Egyptian Religion, adjusted to the Roman divisions of the year: some Egyptian says, he designed it in Rome to prevent his forgetting the established order of his religious observances. It seems to form a series of symbols denoting the order of the Feasts of the Religion of Egypt.
+
+In the Upper Region the Central Figure seems to be intended to represent the Rising of the Canicula, the Dog Star, Sothis, marking the  of the Egyptian year, and indeed the
+
+[p. 13]
+
+division of the whole Tablet marks the division of the year into three seasons, (Hermes Trismegistus gives three strings to the Lyre as Diodorus Siculus remarks), Winter, Summer and Autumn, their Spring being called "the beginning of Summer."
+
+The first segment should represent the reign of Osiris, the rise of Summer; the second, the reign of Isis, beginning at the Summer solstice, and ending at the Autumn equinox; the third belongs to Horus and extends to the Winter solstice, including the remainder of Autumn and the Winter, until the renewal of the Sun.
+
+In Egypt, the first day of the month Thoth was fixed by the Heliacal rising of Sirius, the Dog Star, in Canis Minor; this marked the beginning of their year, yet in this Tablet it is far otherwise, this event being placed in the middle of the Upper Region. The Romans had their feast of the New Sun, or the Finding of Osiris, on December 25th, which the Egyptians kept as a feast on the 11th day of Tybi, or January 6th. Hence it seems likely that the design was intended to fix Egyptian Feasts on the Roman Calendar, and was conceived about the date of the Emperors M. Aurelius, Commodes, or Caracalla, A.D. 161-216. In the first segment are P S V, by this group is signified the Vernal equinox, or the entry of the Sun into Aries. The first figure P is Osiris, with the Crux Ansata in his right hand, symbol of the energy of the phallus, fecundity, and life; in his left hand a wand headed by a Hoopoe or Lapwing, a notable bird, typifying Gratitude.
+
+S is Horus, standing between Osiris and Isis, and sacrificing an Oryx, a Goat with a long neck, no beard, and straight horns. A famous festival was held at the Full Moon before the Vernal equinox, and sacrifices were offered. V is Isis holding the Crux Ansata in the left hand X is Horus as a hunter, with a spear and holding a bird. Y is a Cynocephalus, meaning an equinox (the Vernal), it is ornamented with the Lunar horns, orb, and asp of Isis. Above this the Ram of Ammon specially honored at Thebes., it refers to the entry of Sol into Aries.
+
+Here ends Jablonski's specimen of interpretation.
+
+In his second essay, "The Conjecture in conclusion," he deals with e, Omega, and Ff at the end of the Lower Region. e is Horus newly born, or Osiris refound, which comes to the same thing, he is swaddled up with feet together, and drawn of small size, hence the Winter Solstice. This birth of Horus is the same event as the birth of Harpocrates at Thebes (the 6th of Paophi). U or Omega, is the Cynocephalus or Anubis, the dog-headed boy, guide of Isis in her search for her husband's mutilated parts, and the Finder of them. Ff the Lion-headed-lady, is a form of Isis; this head he also calls that of Cebos, a ferocious and truculent animal: the combined personality means the Sun as the Lion head and the Moon as Isis, the Conjunction of the Sun and Moon.
+
+The ancient Egyptians invented and first used several Cycles, periods of time, which have become famous. Of these, one was the Apis cycle of 25 years, another the Phoenix cycle of 500 years, but most renowned was the Sothiac cycle of 1460 years; this latter began when the first day of the month Thoth or Taout coincided with the Heliacal Rising of Sirius, or Sothis, the Canicula or Dog star in the constellation Canis Minor: such a Cycle began in B.C. 2782, another in B.C. 1322, the date of the commencement of the reign of the Pharaoh Rameses or Menephthah, and ended A.D. 138.
+
+Among the ancient Egyptians, the seasons (lid not always coincide with the same monthly periods, because the number of the days were lunar. Their year consisted of twelve lunar months, to which they added five intercalary days, the festivals of Hesiri or Osiris, Set or Typhon, His or Isis, and Nebti or Nephthys. At the present time, the annual inundation commences about the end of June, and is at its height about the end of September.
+
+Count Caylus, in his "Recueil d' Antiquites," Vol. vii., remarks:--"This monument does not seem to date so far back in Egyptian history as the Biblical Pharaohs. As a proof of this, notice that the arms and legs are free and show a movement rare in the very ancient Egyptian designs: but if more recent than some extant works of art, it yet preserves the memory of the most ancient usages to which the Egyptians were always devoutly attached. This Tablet would serve to fix and preserve the Egyptian theology." He notes that every figure is drawn with the face in profile; that if the designs are not elegant, they are ye all drawn well proportioned; and that all are adult persons, except the son Horus. The great distinction between the figures conferred by the various headdresses, is noticeable, because on account of the heat of the climate, so simple a form of clothing was necessary, that differences of rank could not be represented by the body dress. The use of special batons and sceptres, as shewn in the Tablet, lead him to believe that the use of them arose in Egypt. All the seated figures are probably Divinities, either
+
+[p. 14]
+
+superior or inferior, for if a priest be drawn sitting, he has no special head-dress.
+
+Commencing at the centre--Group One. Isis is found seated on a Throne, under a Canopy: the Serpents on either side of her are of the sort called Theban Nasser or Ophilinus, or flying serpents, they are not venomous; perhaps these are-male and female: before and behind Isis are found triads of figures, each triad an inferior deity, or monument of some notability, between two other figures. There are also two Birds aloft on each side of the Isis. Caylus makes no attempt to name or explain any of these figures.
+
+Groups Two and Three are similar, the first behind the Isis, represents the Bull Apis, that on the opposite side the Bull Mnevis. Each Bull has a manger and two attendants. Apis is being offered two goblets, Mnevis only one. Apis is marked with a moon on the back and has a symbolic collar, and between the horns a disc with one marking; Mnevis has two. Apis is the Lunar, and Mnevis the Solar Bull. Below these Bulls are two other similar designs, one below each. These consist of two females, one on each side of an elevation; they at least have female breasts, but are otherwise like men in stature and dress. Above the elevated statue arrangement is in each case a head and face, very notable as being the only ones in the whole Tablet not drawn in profile. The bearded figure is called the Egyptian Dionysus or Bacchus, the female head is not named. He doubts whether the central ornaments be Nilometers, and notes that they are not alike in the number of their markings, one having 24 and the other 19 only.
+
+In the First Segment, P S and V form a Fourth Group, occupied in the sacrifice of a Goat, or Gazelle; the priest slaying the animal is seen by the head-dress to belong to the cult of Y, the seated Deity facing the central ; V is a priestess, not a deity, and P is a soldier or guard, bearing on his head the same dress as that of the seated Ibis-headed deity Q; the altar M is peculiar and deserves study.
+
+The Fifth Group, X Z A, point to the cult of the Ram, and of the Dog Y. The Ram is an emblem of Jupiter Ammon. X is a soldier and so is A, both have but little clothing. The clothing of Z is star-spotted, and she wears a Deer skin.
+
+The Sixth Group, B C E, show a worship of the Sphynx; note the Lion I). The Seventh Group shows no object of adoration; the Priestess of Isis, H, is administering an oath to two soldiers, F G.
+
+Lower Region. Group Eight. M is Horus in a Temple entrance, cased in like a mummy. The lady l bears a wand with a Serpent named Theban Nasser, the other attendant N bears a hawk on her head. Note that all the three canopies of the Tablet have the truly Egyptian form tapering upwards, the sides not vertical. Group Nine. x is a soldier. o the seated goddess, is Isis or Nephta. Group Ten. The central Hawk-headed figure f Phi, is consecrated to Isis, the others T and X are attendants. Group Eleven. Here we have a Dog-headed lady, erect under a canopy, and two attendants with an Anubis. Caylus describes the figures of the Limbus as forming Twenty Groups.
+
+The Abbe Banier, in his work, "Mythology Explained by History," 1738, devotes a chapter to the Isiac Tablet. He summarizes the views of Pignorius, Kircher, and Chifflet, and adds, that to him it seems a Votive Tablet which some worshipper had consecrated to Isis in return for some success or favour attributed to the goddess: it represents three forms of offerings to Isis, animals, plants, and libations, varieties which the giver had perhaps himself made use of. Such Votive Tablets were very common in the temples of pagan deities, as Juvenal notes. Satire XVIII.
+
+
+	Et quum votiva testantur fana tabella
+	 Plurima, Pictores quis nescit ab Iside pasci.
+
+The great English masonic authority, the late Kenneth Mackenzie always took a great interest in the relation of the Tablet to modern tripartite craft masonry.
+
+The late Dr. Kenealy made researches into the hidden meaning of the Bembine Tablet. He explains the Roses at the corners, each of twelve petals as symbolizing the Twelve Incarnations of the Holy Spirit, the Twelve Messengers from God to Man, who form an important feature of his doctrines of theosophy. He also notes a figure compounded of Goat (Deity), and Lamb (Messenger), with a mystic badge on the right shoulder indicative of the Female, or Holy Spirit nature.
+
+Winckelmann, the great modern German Egyptologist, does not believe in Warburton's opinion that the Tablet was made in Rome, for he justly remarks that hieroglyphics are never found on pseudo Egyptian designs made by the Romans.
+
+I have obtained what may be considered the opinion of the most advanced School of Egyptology of the day. Professor Le Page Renouf, of the British Museum, courteously explained his views to use. lie said he was of opinion that the Tablet
+
+[p. 15]
+
+was not designed by an ancient Egyptian, but in Roman or Mediaeval times, by some one conversant with Egyptian monuments, who had selected the figures from various sources; that the ornamentation around the designs was not Egyptian, but more modern; that very few of the figures were those of well-defined divinities; and that the hieroglyphics were either badly copied, or intentionally disfigured, and that they are practically illegible even to himself and others, who can decipher the inscriptions on the ancient monuments of Egypt; and lastly, that he had failed to discover any scheme or design in the representation, neither of the series suggested to him any grouping geographical, theological, or astronomical. He was further of opinion that the curious design seen in figures and called by old authors Phallus oculatus, had no generative signification, but that these were the mystical eyes, which rather referred to the points of the horizon, North and South. Other modern scientists consider these Right and Left Eyes to typify the Sun and the Moon. The chapters of the Egyptian "Ritual of the Dead," present no scenes like those of the Tablet, but one chapter treats of the Adoration of the Mystical Eyes. In connection with the curiously designed symbol, called by Kircher, the Phallus Oculatus, because it seems to combine the phallus and a human eye note that Paamylia was an Egyptian Festival resembling the Greco-Roman Phallophoria. Some authorities refer it to the worship of Osiris, because of his mutilated phallus; others, objecting that Osiris was not an ithyphallic god, refer the festival to the worship of Khem; at any rate, it was at these festivals that this symbol was honored specially.
+
+Such is a brief summary of the opinions of the learned men who devoted special attention to our Tablet. The extreme divergence of these views, and other considerations, have led me to conclude that the Tablet was not intended to serve any public purpose, but was intrinsically and of design without meaning to the ordinary Egyptian, or worshipper of Isis whether in Greece, Rome or by the banks of the Nile.
+
+The designer arranged his figures and his symbols for an Esoteric purpose; he was doubtless a priest of the Cult of Isis, and happily succeeded in embodying his ideas of religion, cosmogony and astronomy in a form which has truly proved a masonic secret, a stumbling block to the uninitiated. It is a gross absurdity to suppose that any man capable of designing such a Tablet, over which immense energy, research, and knowledge must have been expended, to say nothing of the skill displayed in its execution, should have wasted his abilities in perpetrating a gigantic hoax: for that is I suppose what some modern writers mean who call it a "forgery;" but a forgery is a deceitful imitation, how it can be called an imitation considering that its special character is that of being different to any other stele or Tablet known, is not clear; and how it can be a deceit is also incomprehensible since it bears no name or date purporting to refer it to a definite author or period. On the other hand, if we assign to it an esoteric purpose, the mystery is explained, and the attention of true students of Occultism and of the Ancient Mysteries is ipso facto fixed upon it. The precise date and place of its manufacture will probably never more be known, but from the internal evidence afforded by the ornamentation, and the peculiarities of the hieroglyphics, it seems that its age cannot be anterior to the Persian conquest, circa 500 B.C., it might be reasonably assigned to the Ptolemaic period, say about 300 B.C. It is certainly not the product of Egypt after the Saracen invasion, 638 A.D. There seems no doubt its existence was first made known in Italy, and it must have been abstracted from a Temple of Isis either at Rome, or some other city where the Egyptian deities were worshipped, but even if that be so, the Tablet may yet have originated in Egypt itself, and may have been transferred to a new foreign temple, possibly as a valuable relic. Although it is obviously intimately related to Isis and to Egyptian views of Astronomy, there is a notable absence of any reference to the Osirian and Isiac myths directly, there is no war of Osiris and Typhon depicted, no mutilation, no sign of the journeyings of Isis in search of her dead lord. There is a notable absence of the most usual designs of Isis, and especially of Osiris (see the pictured forms in Bunsen and Wilkinson). There is no Tamarisk tree, and there are no fish represented, and no musical instruments but one small Sistrum at d in the lower region. Very few of the best known of the great gods of Egypt are recognisable as such, there are no Ammon Ra, ithyphallic Khem, Khons, Harpocrates with the finger on his lip, Seb, nor Sutech, so that the Tablet is not a diagrammatic Pantheon. Almost all authorities agree on an astronomical explanation of the Upper Region, the Middle Region exhibits a supreme Numen, Divinity, surrounded by six others, these refer to the very ancient set of seven Planetary deities, anal seven lower Sephiroth, Then on each side are Nilotic figures: the one, the Nilotic alluvium, passive, the other bursting into fecundity; over these the Solar Bulls. The Lower Region shews four scenes, of three characters each, of these scenes two have the principal enthroned,
+
+[p. 16]
+
+and two principals are canopied. The Limbus exhibits a series of acts of worship, and tutelary deities.
+
+There are three representations which are conspicuous by their absence, namely the Four Genii of the Dead, Amset, Hapi, Tuamutef, and Kebhsnauf; the 42 Assessors of the judgment after death, and also any representation of the scene in the hall of judgment; some part of these allied, figures are found in a very large. number of Egyptian drawings, which form the designs of the 125th Chapter of the Per-M-Hru, or Ritual of the Dead.
+
+There are a few notable figures to which modern research has assigned certain meanings, which I must mention, but of course these may not have been introduced here in this esoteric Tablet with those meanings. As to Crowns, the Crown of V is the Het Crown of the Kings of Upper Egypt, that of l is the Techi Crown of the Kings of Lower Egypt, that of S and f, the Pschent Crown of Entire Egypt; figure H in Upper Region, has the Crown of Osiris, the Atef. The face H in the Serapean triad is the mask and plumes of Bes, who was a Typhonic and priapic god. V and W, the Serpents, have the Crowns of Nisham and Eilitheia, goddess of Upper and Lower Egypt. Neither of the Bulls have the true marks of Apis, white triangle on forehead, vulture on back, white crescent on shoulder, and a cross on the flank. The two Boats of the Limbus are the Morning Barque of Ra, the Rising Sun, and the Evening Barque of Tum, the Setting Sun. T the Hieracoleontisphynx is called Nepher. The figure H has the hieroglyphics of the name Isis, followed by a Snake, which is a determinative of the names of goddesses. Figure 53 of the Limbus is the Phoenix, or Phenicopterus, the Benno of Osiris. 55 is the Cercopithecus, or Hapi, the Ape, similar to the Hindoo Hanuman.
+
+The Nilotic Sphynx was an emblem of the world and year, and symbol of Concealed Wisdom; the Greek Neilos, is N = 50, E = 5, I = 10, L = 30, O =70, S = 200. Total 365 days.
+
+The Winged Globe, and Serpent holding a rod with three knots, is sometimes called Kneph, and is. said to have represented almost our modern idea of the Holy Ghost, it occurs at a near O and many times in the Limbus, it is the Arcana Divinae Essentiae, the globe denotes immensity and eternity, the wings universality, the serpent life, the sceptre dominion, the knots are unity, equality, connection and mutual harmony. But Kneph was also a Ram-headed god, and V is almost identical with Sati his wife, who is close to the Ram over the X. M in the lower row said by Kircher to be Horus, renewed Osiris, much resembles Ptah, and F is also similar to his wife Pasht or Bast. x is Hathor. T of the Inferior Region is drawn as Nehamao, daughter of the Sun and Lady of Tentyris. The figure marked by S in the Superior Region resembles Merula, last of the incarnations of Ammon. The greek small l or lambda marks the figure of Neith, or Minerva. Y over T in the inferior region is the Scarabaeus Beetle called Khepra, and it meant the Creative energy of the Sun, and was also a type of Resurrection from the Dead.
+
+Some authorities have suggested to me a Geographical interpretation, into the 36 Nomes of Egypt, each showing a special deity, but an attentive study of the subject has not induced me to accept the theory.
+
+Horapollo wrote that by the Serpent the eternal life of the gods was meant; by the Hawk, a Bird with opened wings, air or wind; and by Canopus, or Canopic jars, usually three, was conveyed the Rise of the Nile water.
+
+With these remarks, I am compelled by want of space to conclude the result of my studies of the history and exoteric view of the meaning of the Tablet: I now pass on to devote a few pages to suggestions of a recondite or esoteric explanation.
+
+My comments on the hidden and mystical meaning of the Tablet will be fitly introduced by a reference to the works of Eliphas Levi, and I must apologize for a digression into the occult purpose and significance of the Tarot. With any critic who has made no special study of the Occult Sciences, I must with the learned Postel, plead: "Lector, quisquis es, aut perlege et si potes perpende et intellige, aut abstine a censura."
+
+I enter with extreme diffidence upon any representation of the opinions of the late Alphonse Louis Constant, better known as Eliphas Levi; but give a short resume of his own words, and point out the special character of the diagram he supplies. He was a philosopher entirely sui generis, nature has made such minds but rarely, and doubtless years must pass away before we see his like again.
+
+His deep and earnest grasp of Kabbalistic lore, almost of itself puts him beyond any ordinary criticism, while his heartfelt enthusiasm for the Higher Magic carries conviction to the minds of readers, even when our ordinary natures pause on the limits of exoteric teaching, and hesitate to plunge into the paths of the Unknown. To any person who has not grasped, I do not say--has not read, the "Dogme et Rituel," no explanation
+
+[p. 17]
+
+
+Click to enlarge
+The Diagram of Eliphaz Levi
+
+
+
+Click to enlarge
+Westcott's Diagram from the Views of Kircher
+
+
+of his opinions would be comprehensible; to those who have grasped the Occultism of Levi, his view of the Tablet is an Unveiling of its Secret, and the Tablet becomes a Pantacle. It is matter of satisfaction that his works are still procurable in the Original, because the only English version, that of Mr. Arthur Edward Waite, although a judicious and skilful translation, is sadly marred by a re-arrangement of the chapters, and even of the paragraphs, which changes have in many instances reveiled even those secrets which Levi had illumined by his wisdom, and initiates will be apt to conceive that the translator, although able, was himself outside the veil--an uninitiate.
+
+In the "Histoire de la Magie," Levi wrote:--"The most curious, and at the same time the most complete key to the Tarot, or modern version of the famous Book of Thoth, is found in the Isiac Tablet of Cardinal Bembo, which has been represented by Kircher in his work on Egypt: this learned Jesuit has divined, without being able to establish complete proof, that this Tablet contained a key in hieroglyphics to the sacred alphabet. It presents to us three groups of designs, above the twelve celestial mansions, and below the twelve laborious periods of the year, and in its central portion the twenty-one sacred signs, which correspond to the letters of the Hebrew alphabet. In the middle of the central portion is seated the Image of the Pantomorphous IYNX, an emblem of Universal Existence, corresponding to the Hebrew letter Jod or I. Around the central Iynx are placed the Ophionian, or Serpentine triad; these three forms refer to the Three Mother Letters, A, M, and S of the Hebrew and Egyptian Alphabets. On the right side of the Iynx are placed the Ibimorphous and Serapean triads, and on the left those of Nephta, and of Hecate; symbols respectively of:--
+
+         	The Active
+
+      	and
+
+      	the Passive.
+
+     
+     	The Volatile
+
+      	and
+
+      	the Fixed.
+
+     
+     	The Fecundating Fire
+
+      	and
+
+      	the Generative Water.
+
+     
+   Each pair of triads in conjunction with the Iynx form a Septenary, the centre itself contains a Septenary. Titus the three Septenaries present us with the absolute number of the Three Worlds, and the complete number of Primitive Letters; to which is added a complementary sign, just as to the nine numerals is added a Zero. The ten numerals added to the twenty-two ancient letters form the Thirty-two Ways or Paths of Kabbalistic doctrine."
+
+This is all that Eliphas Levi writes directly about our Tablet; but he adds a diagram, or plan of the whole Table, except the Limbus or Border, and this diagram tells a more occult tale to the attentive student, it presents an even more esoteric view of the matter, which he has not thought fit to explain in words. Doubtless he considered that to the wise the diagram would speak sufficiently plain, and to the profane no explanation could carry instruction; hence I feel much hesitation in lifting the veil he has thought fit to leave over the subject; but at the request of the Editor of the series of Bath Occult Reprints, I proceed to give a glimpse within the Veil of the Saitic Isis.
+
+The diagram of Levi, by which he explains the mystery of the Tablet, shows the Upper Region divided into the four seasons of the year, each with three signs of the Zodiac, and he has added the four-lettered sacred name, the Tetragrammaton, assigning Jod to Aquarius, that is Canopus, He to Taurus, that is Apis, Vau to Leo, that is Momphta, and He final to Typhon. Note the Cherubic parallel--Man, Bull. Lion, and Eagle. The fourth form is found either as Scorpion or Eagle depending upon the Occult good or evil intention: in the Demotic Zodiac, the Snake replaces the Scorpion.
+
+The Lower Region he ascribes to the twelve simple Hebrew letters, associating them with the four quarters of the horizon, compare the Sepher Yetzirah, cap. v., sec. 1.
+
+The Central Region he ascribes to the Solar powers and the Planetary. In the middle we see above, the Sun, marked Ops, and below it is a Solomon's Seal, above a cross; a double triangle Hexapla, one light and one dark triangle superposed, the whole forming a sort of complex symbol of Venus. To the Ibimorphos he gives the three dark planets, Venus, Mercury,
+
+_________________
+
+BARON SWEDENBORG says:--"The ancients who were versed in the science of correspondences made themselves images which corresponded with things celestial and were greatly delighted therewith by reason of their signification, and that they could discern in them what related to Heaven and the Church, and therefore they placed those images both in their temples and also in their houses, not with any intention to worship them, but to serve as a means of recollecting the celestial things signified by them."
+
+"Hence in Egypt and in other places they made images of calves, oxen, serpents, and also of children, old men, and virgins; because calves and oxen signified the affections and powers of the natural man; serpents, the prudence and likewise cunning of the sensual man; children, innocence; old men, wisdom; and virgins, the affections of truth, &amp;c."
+
+"Succeeding ages, when the science of correspondences was obliterated, began to adore as holy, and at length to worship as deities, the images and pictures set up by their forefathers because they found them in and about their temples."--"An Hieroglyphic Key to Natural and Spiritual Mysteries," 1792. Editor.
+
+[p. 18]
+
+and Mars placed around a dark triangle erect, denoting Fire. To the Nephthaean triad he gives three light planets, Saturn, Luna, and Jupiter, around a light inverted triangle which denotes Water. There is a necessary connection between water, female power, passive principle, Binah, and Sephirotic Mother, and Bride. (See the Kabbalah by S.L.M. Mathers.) Note the ancient signs for the planets were all composed of a Cross, Solar Disc and Crescent: Venus is a cross below a Sun disc, Mercury, a disc with a crescent above and cross below, Saturn is a Cross whose lowest point touches the apex of the crescent, Jupiter is a Crescent whose lowest point touches the left hand end of a cross: all these are deep mysteries. Note that Levi in his original plate transposed Serapis and Hecate, but not the Apis noir and Apis blanc, perhaps because of the head of Bes being associated by him with Hecate. Note that having referred the 12 simple letters to the lower, the 7 double must correspond to the central region of the planets, and then the great triad A.M.S. the mother letters representing Air, Water, and Fire remain to be pictured, around S the Central Iynx, or Yod, by the Ophionian Triad the two Serpents and the Leonine Sphynx. Levi's word OPS in the centre is the Latin Ops, Terra, genius of the Earth; and the Greek Ops, Rhea, or Kubele (Cybele) often drawn as a goddess seated in a chariot drawn by lions, she is. crowned with turrets, and holds a Key; see frontispiece to "Asclepios," Bath Occult Reprint.
+
+The Apis Bull was the image of the Sun, on earth, and Serapis was the Solar Bull deified after death; Serapis is a shortened form of Osiri-apis.
+
+The Isiac Tablet, writes Levi, is a Key to the Ancient Book of Thoth, which has survived to some extent the lapse of centuries and is pictured to us in the still comparatively ancient set of Tarocchi Cards. To him the Book of Thoth was a resume of the esoteric learning of the Egyptians, after the decadence of their civilization, this lore became crystallized in an hieroglyphic form as the Tarot; this Tarot having become partially or entirely forgotten or misunderstood, its pictured symbols fell into the hands of the sham diviners, and of the providers of the public amusement by games of Cards. The modern Tarot, or Tarocchi pack of cards consists of 78 cards, of which 22 form a special group of trumps, of pictorial design: the remaining 56 are composed of four suits of 10 numerals and four court cards, King, Queen, Knight, and Knave or Valet; the suits are Swords (Militaryism), Cups (Sacerdocy), Clubs or Wands (Agriculture), and Shekels or Coins (Commerce), answering respectively to our Spades, Hearts, Clubs and Diamonds. Our purpose is with the 22 trumps, these form the special characteristic of the pack and. are the lineal descendants of the Hieroglyphics of the Tarot. These 22 correspond to the letters of the Hebrew and other sacred alphabets, which fall naturally into three classes of a Trio of mothers, a Heptad of doubles, and a Duodecad of simple letters. They are also considered as a triad of Heptads and one apart, a system of Initiation and an Uninitiate. These Tarots are named:--
+
+         	1. The Magus.
+
+      	11. Fortitude, Power.
+
+     
+     	2. The Hierophantess, Pope
+
+      	12. The Hanged Man, Judas, Joan. Prometheus, the Adept.
+
+     
+     	3. The Queen, or Empress, Juno.
+
+      	13. Death.
+
+     
+     	4. The King, Jupiter.
+
+      	14. Temperance.
+
+     
+     	5. The Hierophant, Pope.
+
+      	15. The Devil, Baphomet.
+
+     
+     	6. Marriage, the Lovers.
+
+      	10. House of Plutus, Babel.
+
+     
+     	7 The Conqueror in a Chariot, Osiris 
+
+      	17. The Dog Star, Blazing Star.
+
+     
+     	8. Justice, with Sword &amp; Balance.
+
+      	18. The Moon.
+
+     
+     	9. The Hermit, Philosopher, Sage
+
+      	19. The Sun.
+
+     
+     	10. The Wheel of Fate.
+
+      	20. The Last Judgment.
+
+     
+     	21. The World, the Crown, Kether   with the Cherubim.
+
+     
+     	0. The Uninitiate. The Fool. Le   Mat.
+
+     
+   These are the Names of the Tarots, I now add some hints of their significance:--
+
+         	1. Aleph. Man. Unique God.
+
+      	11. Kaph. Triple Chain.
+
+     
+     	2. Beth. Woman. Sanctuary.
+
+      	12. Lamed, the Great Work, Crux.
+
+     
+     	3. Ghimel. Isis. Urania. Nature
+
+      	13. Mem. Death, Renewal.
+
+     
+     	4. Daleth. The Cubic Stone.
+
+      	11. Nun. The Seasons, Climate, mutation
+
+     
+     	5. He. Religion. Inspiration.
+
+      	15. Samech. Evil Magic, Sabbat.
+
+     
+     	6. Vau. The Two Ways. Trial.
+
+      	16. Oin. The Lightning, failure.
+
+     
+     	7. Zain. Victory.
+
+      	17. Pe. Canopus. Sirius, Astrology
+
+     
+     	8. Cheth .Equilibrium. Themis.
+
+      	18. Tzaddi Magnetism. Light.
+
+     
+     	9. Teth. Wisdom. The Veiled  Lamp.
+
+      	19. Soph. The Stone. Gold.
+
+     
+     	10. Yod. Key of Occultism, Virility.
+
+      	20. Resh. Vegetables. Medicine.
+
+     
+     	21. Shin. Sensitive life. Animals.
+
+      	0. Tau. The Microcosm. Pan.
+
+     
+   Certain other cards of the Tarot Pack have also borne special Names:--The 3 of Coins was Osiris; the 3 of Cups, Isis; the
+
+[p. 19]
+
+[paragraph continues] 2 of Cups, Apis; the 9 of Coins, Hermes; the 1 of Wands, the Serpent, Apophis; the 1 of Coins, the Sun, Apollo.
+
+It is necessary to see and study a set of the most ancient Tarots to appreciate the essentially Egyptian character of their symbolism.
+
+The dogmas of the Sepher Yetzirah also form a perfect Tarot. The Three Mothers, which are:--1. Aleph, Air, the Firmament, the Holy Spirit. The Human Respiration, the Chest. 13. Mem, Water, the Earth, the Belly, the Womb. 21. Shin, Fire, the Heavens of Stars and Suns, the Brain, the Head. These are represented by the Centre of the Isiac Tablet. The seven doubles which correspond to the planets, and the median part of the Isiac Tablet:--2, Beth, Luna, Nature; 3, Ghimel, Mars, Force; 4, Daleth, Sun, Fertility; 11, Kaph, Venus, Generation; 17, Pe, Mercury, Wisdom; 20, Resh, Saturn, Peace; 22, or O, Tau, Jupiter, Beauty, and the Twelve Single, corresponding to the Zodiacal signs, and the Upper Region of the Isiac Tablet
+
+         	5. He. Aries. Voice.
+
+      	6. Vau. Taurus. Mind.
+
+     
+     	7. Zain. Gemini. Motion.
+
+      	8. Cheth. Cancer. Sight.
+
+     
+     	9. Teth. Leo. Rearing.
+
+      	10. Yod. Virgo. Work. Duty.
+
+     
+     	12. Lamed. Libra. Sexual desire.
+
+      	14. Nun. Scorpio. Smell.
+
+     
+     	15. Samech. Sagittarius. Sleep.
+
+      	16. Oin. Capricornus. Fury.
+
+     
+     	18. Tzaddi. Aquarius. Taste.
+
+      	19. Soph. Pisces. Mirth.
+
+     
+   I can strongly recommend a study of the Sepher Yetzirah, or Book of Formation, as one of the most ancient philosophic schemes of Theosophy known to us. It is far older than the Kabbalistic Zohar.
+
+The Symbolism of the Tarot scheme is further continued into the 56 cards of the Four Suits: these suits are associated with many most important quaternaries: and first with the letters of the Sacred Name we call Jehovah or Yehveh, IHUH; next with four cherubic figures Lion, Man, Eagle and Bull; then to the Four Elementary States, Fire, Air, Water and Earth; further with the mystical letters of the inscription of the Cross, INRI; with the letters of the Hebrew word TORA the Law; with the occult significance of the ROTA or Wheel of the learned Postel: and lastly with sexual design and its emblems, Creator, Phallus, Masculine, Aaron's Rod; Great Mother, Yoni, Cteis, Female, Womb; thirdly with the Lingam, Conjunction, or with the Sun; and lastly Female, Circle, Shekel, Pantacle, Vesica Piscis, Image of the World, Malkuth, Kingdom.
+
+Club or Wand,--I, Yod, Male, Phallus, Lion head, Fire. Mind.
+
+Heart or Cup,--H, He, Female, Yoni, Human head, Air. Soul.
+
+Spade or Sword,--U, Vau, Male, Lingam, Eagle head, Water. Spirit.
+
+Diamond or Coin,--H. He, Female, Vesica Piscis, Bull head, Earth. Body.
+
+The four suits are named in France, Trefles, Piques, Coeurs and Carreaux.
+
+Then lastly the four sets of ten numeral cards, represent the Ten Sephiroth multiplied by the letters of the Tetragrammaton, or in the four Worlds of Aziluth, Briah, Yetzirah and Assiah: thus the four Aces become the fourfold Kether, the four Twos the fourfold Chocmah, and so on to the four Tens which typify Malkuth.
+
+From a study of these analogies and correspondences, and the symbolic associations, it will be obvious how a system of Divination arose, because each card of the whole series of 78 had a meaning direct or symbolical; for example the 7 of Cups (hearts) would mean the Netzah of He or the Victory of the Woman, and the 3 of Clubs the Binah of Yod the Understanding of the Creator.
+
+Another curious mystery may be casually mentioned here:--How comes it that some of the Court Cards are invariably drawn with the faces in profile and others of full front faces; the profile are the King of Diamonds or Coins the left, the Knave of Hearts, Cups the left, and the Knave of Spades Swords the right profile. Number 4 of the Tarots, the King, is a profile--we trench here upon one of the most hidden dogmas of the Kabbalah, for Macroprosopus is always designed as a Right Profile, while Microprosopus is drawn of full face, he is the Vau of the Tetragrammaton. The figure of the Hindoo Addha Nari is usually drawn holding in the two hands the four emblems of the Tarot pack, wand and cup in the right hand, sword and circle in the left--but enough of the Tarot.
+
+In conclusion, I cannot refrain from quoting the words of Hermes Trismegistus, to be found in his Dialogue of Asclepios (see "Bath Occult Reprint"):--
+
+
+	"O Aegypte, Aegypte, religionum tuarum supererunt
+	  fabulae, eaeque incredibiles posteris tuis."
+	
+	"O Egypt, Egypt, there will remain of thy religions,
+	 only vague legends which posterity will refuse to believe."
+
+Quod Scis, Nescis.
+
+
+    
+The Isiac Tablet of Cardinal Bembo, by W. Wynn Westcott, [1887], at sacred-texts.com
+
+
+
+The following advertisements appeared at the end of this work, published in 1887. They are included for completeness--JBH
+
+[p. 20]
+
+  
+
+REMAINDER LIST OF THE "BATH OCCULT REPRINTS"
+
+"The Divine Pymander," by Hermes Mercurius Trismegistus, (only 12 Copies left), uniquely printed in Old Faced Type, on Antique Hand-made Whatman Paper, post quarto, from the Text of Dr. Everard, Ed. 1650. In Seventeen Chapters, with a choice Symbolical Cabbalistical Frontispiece, Title-Page in two colours, and a fac-simile of the Smaragdine Table; also a specially written introductory Essay, by Hargrave Jennings, author of the "Rosicrucians," "Phallicism," etc.
+
+The above small Remainder can .now only be had, bound with the Companion Work, "The Virgin of the World," and the rare Alchemical Tract, "Aureus," in one splendidly illustrated volume; including an additional whole page Tableau des Lames du Livre de Thot, qui etait Place dans le Memphis. Price on application.
+
+Tableau des Lames du Livre de Thot, qui etait Place Dans le Memphis. This artistic embodiment of the complete Tarot Pack is indispensable to students of the "Isiac Tablet," and can be supplied separately from the above, for framing or binding, at 10/6. Post Free.
+
+"Aureus." "The Golden Treatise on the Divine Art of Making Gold and Silver." Concerning the Physical Secret of the Philosopher's Stone, in Seven Sections, and esteemed one of the best and oldest pieces of Alchemical Philosophy extant. From "A suggestive Inquiry into the Hermetic Mystery," 1850. Illustrated with a Composite Frontispiece of the plates from the Work of "Nicholas Flammel," and prefaced with an Introductory Essay on "Alchemy and the Alchemists," by Jno. Yarker, Esq. Price 5/6,. Post Free, including an illustrated Key, descriptive of the principle plates in the above Hermetic volume. Those who consider the Eleusinian Mysteries to have been phallic will find a confirmation of their theory in this Key, which relates the means taken by Baubo to gladden the mournful Demeter.
+
+"Sub-Mundanes," or "The Count of Gabalis." From the 1680 Edition, (Illustrated.) A Rosicrucian Book. Being The History of Spirits, from the Text of the Abbe Villars, with Appendix from the Suppressed Occult Physiological Work of the Very Rev. Father Sinistrari, of Ameno, on Demoniality, or "Incubi and Succubi," and is one of the most celebrated works on the Occult Sciences, dealing especially with the sexual questions elucidated by Mr Hargrave Jennings in the "Rosicrucians," and "Phallicism," (showing the real nature of the Adamic Apple, &amp;c.) Post Free, 10/6. Only a few left.
+
+This is the great tabooed Work which, on account of the peculiar subject and its free treatment, is almost virtually "boycotted," except when supplied direct from this house.
+
+"Mental Magic," by the late THOS. WELTON, F.S.A. (Illustrated.) The A. B. C. of Elementary Experimental Occultism, and now complete with an additional page of Supplementary Notes, &amp;c., ad cleram, illustrating the (?) "Ritual" of the "Phallic" personae Machinery and Ceremonial so graphically related therein. Being the Author's most recent experimental investigations, enlarged with an Esoteric Appendix, entitled the "History and Mystery of the Magic Mirror," being the concluding part of the Editor's Brochure, the "History and Mystery of the Magic Crystal," including the chapter "Miroirs Magiques," viz.: Miroirs Theurgiques, Miroirs des Sorciers, Miroir de Cagliostro, Miroir du Potet, Miroir Swedenborgian, Miroir Magnetique, Miroir Narcotique, Miroir Galvanique, etc., specially and for the first time Translated from the French "Magic Magnetique," of L. A. Cahagnet for this Work. Also, with Col. Fraser's suggestive narrative of the mysterious sexive Mirror Dance of India: Making of the Bhatt--the two brides--the grooms; the Colonel and the Sheikh; The Hills of Mahadoe; The tripod and the test; The Mystic Dance--"O Sahib, it is only Lust and Hatred that keep closed the eyes of the Soul!--In those crystals we can see what takes place on earth, and in other worlds than this!" The trial and the test--extraordinary--a British Skeptic sees what takes place 12,000 miles away!--Its demonstration. Mundt, Lowry, Palgrave, Morier, Lane and Jennings all confirm the Mirror facts, the higher uses of a good Mirror, etc., etc Nearly 200 pages, quarto. 10/-, Post Free. Only a few left.
+
+This Work contains a clue to the "Ansairetic Secret," for which complete "Secret" many have paid 100 dollars.
+
+"Sepher Yetzirah." Translated out of the original Hebrew by the author of the Monograph on the "Isiac Tablet." immediate Orders for this Kabbalistic Masterpiece filled in at 5/6 per Copy, Post Free.
+
+Romano (Giulio) Situations Gratieuses Humains, a set of 20 designs to illustrate "The Worship of Priapus" (see Note on page 25 of Mr. Redway's London reprint.) Figures Libres imported only to order, for Subscribers.
+
+"The Mount of Initiation." Cabinet Photos, direct from this beautiful Symbolical Work of "Ancient Art," 5/- each.
+
+Tarot Packs, 78 leaves, Hand Coloured, supplied to order.
+
+Robert H. Fryar, Bath.</p></body>

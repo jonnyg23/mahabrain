@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc033.htm">Previous</a> 
+ <a href="agjc035.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 31</h4> <i>
+ </i><p>Brahmic priests are enraged because of Jesus' teaching and resolve to drive him from India. Lamaas pleads for him. Priests employ a murderer to kill him. Lamaas warns him and he flees to Nepel.<br> <br> <b>1. </b>The words and works of Jesus caused unrest through all the land.<br> <b>2. </b>The common people were his friends, believed in him and followed him in thongs.<br> <b>3. </b>The priests and rulers were afraid of him, his very name sent terror to their hearts.<br> <b>4. </b>He preached the brotherhood of life, the righteousness of equal rights, and taught the uselessness of priests, and sacrificial rites.<br> <b>5. </b>He shook the very sand on which the Brahmic system stood; he made the Brahmic idols seem so small, and sacrifice so fraught with sin, that shrines and wheels of prayer were all forgot.<br> <b>6. </b>The priests declared that if this Jewish boy should tarry longer in the land a revolution would occur; the common people would arise and kill the priests, and tear the temples down.<br> <b>7. </b>And so they sent a call abroad, and priests from every province came. Benares was on fire with Brahmic zeal.<br> <b>8. </b>Lamaas from the temple Jagannath, who knew the inner life of Jesus well, was in their midst, and heard the rantings of the priests,<br> <b>9. </b>And he stood forth and said, My brother priests, take heed, be careful what you do; this is a record-making day.<br> <b>10. </b>The world is looking on; the very life of Brahmic thought is now on trial.<br> <b>11. </b>If we are reason-blind; if prejudice be king to-day; if we resort to beastly force, and dye our hands in blood that may, in sight of Brahm, be innocent and pure,<br> <b>12. </b>His vengeance may fall down on us; the very rock on which we stand may burst beneath our feet; and our beloved priesthood, and our laws and shrines will go into decay.<br> <b>13. </b>But they would let him speak no more. The wrathful priests rushed up and beat him, spit upon him, called him traitor, threw him, bleeding, to the street.<br> <b>14. </b>And then confusion reigned; the priests became a mob; the sight of human blood led on to fiendish acts and called for more.<br> <b>15. </b>The rulers, fearing war, sought Jesus, and they found him calmly teaching in the market place.<br> <b>16. </b>They urged him to depart, that he might save his life; but he refused to go.<br> <b>17. </b>And then the priests sought cause for his arrest; but he had done no crime.<br> <b>18. </b>And then false charges were preferred; but when the soldiers went to bring him to the judgement hall they were afraid, because the people stood in his defence.<br> <b>19. </b>The priests were baffled, and they resolved to take his life by stealth.<br> <b>20. </b>They found a man who was a murderer by trade, and sent him out by night to slay the object of their wrath.<br> <b>21. </b>Lamaas heard about their plotting and their plans, and sent a messenger to warn his friend; and Jesus hastened to depart.<br> <b>22. </b>By night he left Benares, and with haste he journeyed to the north; and everywhere, the farmers, merchants and sudras helped him on his way.<br> <b>23. </b>And after many days he reached the mighty Himalayas, and in the city of Kapivastu he abode.<br> <b>24. </b>The priests of Buddha opened wide their temple doors for him.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc035.htm">Next: Chapter 32</a></center>
+ </div>
+ </center></body>

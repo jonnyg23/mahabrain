@@ -1,0 +1,132 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Legends and Sagas</a> 
+ <a href="../ice/index.htm">Iceland</a> 
+ <a href="index.htm">Index</a> 
+ <a href="poe23.htm">Previous</a> 
+ <a href="poe25.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0024NLGNQ/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Poetic Edda</i>, by Henry Adams Bellows, [1936], at sacred-texts.com</font></p><hr> 
+ <p><a name="page_370"><font size="1" color="green">p. 370</font></a></p> <h1 align="CENTER">FAFNISMOL</h1> <h3 align="CENTER">The Ballad of Fafnir</h3> <h5 align="CENTER">INTRODUCTORY NOTE</h5> 
+ <p>The so-called <i>Fafnismol</i>, contained in full in the <i>Codex Regius</i>, where it immediately follows the <i>Reginsmol</i> without any indication of a break, is quoted by Snorri in the <i>Gylfaginning</i> (stanza 13) and the <i>Skaldskaparmal</i> (stanzas 32 and 33), and stanzas 6, 3, and 4 appear in the <i>Sverrissaga</i>. Although the <i>Volsungasaga</i> does not actually quote any of the stanzas, it gives a very close prose parallel to the whole poem in chapters 18 and 19.</p> 
+ <p>The general character of the <i>Fafnismol</i>, and its probable relation to the <i>Reginsmol</i> and the <i>Sigrdrifumol</i>, have been discussed in the introductory note to the <i>Reginsmol</i>. While it is far more nearly a unit than the <i>Reginsmol</i>, it shows many of the same characteristics. It has the same mixture of stanza forms, although in this case only nine stanzas (32-33, 35-36 and 40-44) vary from the normal Ljothahattr measure. It shows, though to a much less marked extent, the same tendency to introduce passages from extraneous sources, such as the question-and-answer passage in stanzas 11-15. At the same time, in this instance it is quite clear that one distinct poem, including probably stanzas 1-10, 16-23, 25-31, and 34-39, underlay the compilation which we here have. This may, perhaps, have been a long poem (not, however, the "Lone' Sigurth Lay; see introductory note to <i>Brot af Sigurtharkvithu</i>) dealing with the Regin-Fafnir-Sigurth-Brynhild story, and including, besides most of the <i>Fafnismol</i>, stanzas 1-4 and 6-11 of the <i>Reginsmol</i> and part of the so-called <i>Sigrdrifumol</i>, together with much that has been lost. The original poem may, on the other hand, have confined itself to the Fafnir episode. In any case, and while the extant <i>Fafnismol</i> can be spoken of as a distinct poem far more justly than the <i>Reginsmol</i>, there is still no indication that the compiler regarded it as a poem by itself. His prose notes run on without a break, and the verses simply cover a dramatic episode in Sigurth's early life. The fact that the work of compilation has been done more intelligently than in the case of the <i>Reginsmol</i> seems to have resulted chiefly from the compiler's having been familiar with longer consecutive verse passages dealing with the Fafnir episode.</p> 
+ <p><a name="page_371"><font size="1" color="green">p. 371</font></a></p> 
+ <p>The <i>Reginsmol</i> is little more than a clumsy mosaic, but in the <i>Fafnismol</i> it is possible to distinguish between the main substance of the poem and the interpolations.</p> 
+ <p>Here, as in the <i>Reginsmol</i>, there is very little that bespeaks the German origin of the Sigurth story. Sigurth's winning of the treasure is in itself undoubtedly a part of the earlier southern legend, but the manner in which he does it is thoroughly Norse. Moreover, the concluding section, which points toward the finding of the sleeping Brynhild, relates entirely to the northern Valkyrie, the warrior-maiden punished by Othin, and not at all to the southern Brynhild the daughter of Buthli. The <i>Fafnismol</i> is, however, sharply distinguished from the <i>Reginsmol</i> by showing no clear traces of the Helgi tradition, although a part of the bird song (stanzas 40-44, in Fornyrthislag form, as distinct from the body of the poem) sounds suspiciously like the bird passage in the beginning of the <i>Helgakvitha Hjorvarthssonar</i>. Regarding the general relations of the various sets of traditions in shaping the story of Sigurth, see the introductory note to <i>Gripisspo</i>.</p> 
+ <p>The <i>Fafnismol</i>, together with a part of the <i>Sigrdrifumol</i>, has indirectly become the best known of all the Eddic poems, for the reason that Wagner used it, with remarkably little change of outline, as the basis for his "Siegfried."</p> 
+ <p align="CENTER">__________________</p> 
+ <p>Sigurth and Regin went up to the Gnitaheith, and found there the track that Fafnir made when he crawled to water. Then Sigurth made a great trench across the path, and took his place therein. When Fafnir crawled from his gold, he blew out venom, and it ran down from above on Sigurth's head. But when Fafnir crawled over the trench, then Sigurth thrust his sword into his body</p> <font size="-1" color="green">
+ <p>[<i>Prose</i>. The prose follows the concluding prose passage of the <i>Reginsmol</i> without any interruption; the heading "Of Fafnir's Death" is written in the manuscript very faintly just before stanza 1. <i>Gnitaheith</i>: cf. <i>Gripisspo</i>, ii and note. <i>Fafnir</i>: Regin's brother: cf. <i>Reginsmol</i>, prose after stanza 14. <i>Venom</i>: in the <i>Volsungasaga</i> [fp. 371] it was the blood, and not the venom, that poured down on Sigurth's head. Sigurth was much worried about this danger, and before he dug the trench asked Regin what would happen if the dragon's blood overcame him. Regin thereupon taunted him with cowardice (Sigurth refers to this taunt in stanza 30, but the stanza embodying it has disappeared). After Sigurth had dug his trench, an old man (Othin, of course) appeared and advised him to dig other trenches to carry off the blood, which he did, thereby escaping harm.]</p> </font>
+ <p><a name="page_372"><font size="1" color="green">p. 372</font></a></p> 
+ <p>to the heart. Fafnir writhed and struck out with his head and tail. Sigurth leaped from the trench, and each looked at the other. Fafnir said:</p> 
+ <p>1. "Youth, oh, youth! | of whom then, youth, art thou born?<br> Say whose son thou art,<br> Who in Fafnir's blood | thy bright blade reddened,<br> And struck thy sword to my heart."</p> 
+ <p>Sigurth concealed his name because it was believed in olden times that the word of a dying man might have great power if he cursed his foe by his name. He said:</p> 
+ <p>2. "The Noble Hart | my name, and I go<br> A motherless man abroad;<br> Father I had not, | as others have,<br> And lonely ever I live."</p> <font size="-1" color="green">
+ <p>[1. The first line in the original, as here, is unusually long, but dramatically very effective on that account.</p> 
+ <p>3. The names of the speakers do not appear in the manuscript, though they seem originally to have been indicated in the [fp. 373] margin for stanzas 3-30. The last two lines of stanza 3 are missing in the manuscript, with no gap indicated, but the <i>Volsungasaga</i> prose paraphrase indicates that something was omitted, and the lines here given are conjecturally reconstructed from this paraphrase.]</p> </font>
+ <p><a name="page_373"><font size="1" color="green">p. 373</font></a></p> <i>
+ </i><p>Fafnir spake:<br> 3. "If father thou hadst not, | as others have,<br> By what wonder wast thou born?<br> (Though thy name on the day | of my death thou hidest,<br> Thou knowest now thou dost lie.)"</p> <i>
+ </i><p>Sigurth spake:<br> 4. "My race, methinks, | is unknown to thee,<br> And so am I myself;<br> Sigurth my name, | and Sigmund's son,<br> Who smote thee thus with the sword."</p> <i>
+ </i><p>Fafnir spake:<br> 5. "Who drove thee on? | why wert thou driven<br> My life to make me lose?<br> A father brave | had the bright-eyed youth,<br> For bold in boyhood thou art."</p> <i>
+ </i><p>Sigurth spake:<br> 6. "My heart did drive me, | my hand fulfilled,<br> And my shining sword so sharp;<br> Few are keen | when old age comes,<br> Who timid in boyhood be."</p> <font size="-1" color="green">
+ <p>[4. The manuscript marks line 3 as the beginning of a stanza.</p> 
+ <p>5. Line 4, utterly obscure in the manuscript, is guesswork.]</p> </font>
+ <p><a name="page_374"><font size="1" color="green">p. 374</font></a></p> <i>
+ </i><p>Fafnir spake:<br> 7. "If thou mightest grow | thy friends among,<br> One might see thee fiercely fight;<br> But bound thou art, | and in battle taken,<br> And to fear are prisoners prone."</p> <i>
+ </i><p>Sigurth spake:<br> 8. "Thou blamest me, Fafnir, | that I see from afar<br> The wealth that my father's was;<br> Not bound am I, | though in battle taken,<br> Thou hast found that free I live."</p> <i>
+ </i><p>Fafnir spake:<br> 9. "In all I say | dost thou hatred see,<br> Yet truth alone do I tell;<br> The sounding gold, | the glow-red wealth,<br> And the rings thy bane shall be."</p> <i>
+ </i><p>Sigurth spake:<br> 10. "Some one the hoard | shall ever hold,<br> Till the destined day shall come;<br> For a time there is | when every man<br> Shall journey hence to hell."</p> <i>
+ </i><p>Fafnir spake:<br> 11. "The fate of the Norns | before the headland</p> <font size="-1" color="green">
+ <p>[7. Fafnir here refers to the fact that Hjordis, mother of the still unborn Sigurth, was captured by Alf after Sigmund's death; cf. <i>Fra Dautha Sinfjotla</i>, note.</p> 
+ <p>11. Stanzas 11-15 are probably interpolated, and come from [fp. 375] a poem similar to <i>Vafthruthnismol</i>. <i>The headland</i>: Fafnir is apparently quoting proverbs; this one seems to mean that disaster ("the fate of the Norns") awaits when one rounds the first headland (i. e., at the beginning of life's voyage, in youth). The third line is a commentary on obstinate rashness. The <i>Volsungasaga</i> paraphrases stanzas 11-15 throughout.] </p> </font>
+ <p><a name="page_375"><font size="1" color="green">p. 375</font></a></p> 
+ <p>Thou findest, and doom of a fool;<br> In the water shalt drown | if thou row 'gainst the wind,<br> All danger is near to death."</p> <i>
+ </i><p>Sigurth spake:<br> 12. "Tell me then, Fafnir, | for wise thou art famed,<br> And much thou knowest now:<br> Who are the Norns | who are helpful in need,<br> And the babe from the mother bring?"</p> <i>
+ </i><p>Fafnir spake:<br> 13. "Of many births | the Norns must be,<br> Nor one in race they were;<br> Some to gods, others | to elves are kin,<br> And Dvalin's daughters some."</p> <i>
+ </i><p>Sigurth spake:<br> 14. "Tell me then, Fafnir, | for wise thou art famed,<br> And much thou knowest now:</p> <font size="-1" color="green">
+ <p>[12. <i>Norns</i>: cf. stanza 13 and note. Sigurth has no possible interest in knowing what Norns are helpful in childbirth, but interpolations were seldom logical.</p> 
+ <p>13. Snorri quotes this stanza. There were minor Norns, or fates, in addition to the three great Norns, regarding whom cf. <i>Voluspo</i>, 20. <i>Dvalin</i>: chief of the dwarfs; cf. <i>Voluspo</i>, 14.]</p> </font>
+ <p><a name="page_376"><font size="1" color="green">p. 376</font></a></p> 
+ <p>How call they the isle | where all the gods<br> And Surt shall sword-sweat mingle?"</p> <i>
+ </i><p>Fafnir spake:<br> 15. "Oskopnir is it, | where all the gods<br> Shall seek the play of swords;<br> Bilrost breaks | when they cross the bridge,<br> And the steeds shall swim in the flood.</p> 
+ <p>16. "The fear-helm I wore | to afright mankind,<br> While guarding my gold I lay;<br> Mightier seemed I | than any man,<br> For a fiercer never I found."</p> <i>
+ </i><p>Sigurth spake:<br> 17. "The fear-helm surely | no man shields<br> When he faces a valiant foe;<br> Oft one finds, | when the foe he meets,<br> That he is not the bravest of all."</p> <i>
+ </i><p>Fafnir spake:<br> 18. "Venom I breathed | when bright I lay<br> By the hoard my father had;</p> <font size="-1" color="green">
+ <p>[14. <i>Surt</i>: ruler of the fire world; the reference is to the last great battle. <i>Sword-sweat</i>: blood.</p> 
+ <p>15. <i>Oskopnir</i> ("Not-Made"): apparently another name for Vigrith, which is named in <i>Vafthruthnismol</i>, 19, as the final battle-ground. <i>Bilrost</i> (or <i>Bifrost</i>): the rainbow bridge which breaks beneath Surt's followers; cf. <i>Grimnismol</i>, 29 and note.</p> 
+ <p>16. With this stanza Fafnir returns to the situation. <i>Fear-helm</i>: regarding the "ægis-hjalmr" cf. <i>Reginsmol</i>, prose after stanza 14 and note.]</p> </font>
+ <p><a name="page_377"><font size="1" color="green">p. 377</font></a></p> 
+ <p>(There was none so mighty | as dared to meet me,<br> And weapons nor wiles I feared.)"</p> <i>
+ </i><p>Sigurth spake:<br> 19. "Glittering worm, | thy hissing was great,<br> And hard didst show thy heart;<br> But hatred more | have the sons of men<br> For him who owns the helm."</p> <i>
+ </i><p>Fafnir spake:<br> 20. "I counsel thee, Sigurth, | heed my speech,<br> And ride thou homeward hence,<br> The sounding gold, | the glow-red wealth,<br> And the rings thy bane shall be."</p> <i>
+ </i><p>Sigurth spake:<br> 21. "Thy counsel is given, | but go I shall<br> To the gold in the heather hidden;<br> And, Fafnir, thou | with death dost fight,<br> Lying where Hel shall have thee."</p> <i>
+ </i><p>Fafnir spake:<br> 22. "Regin betrayed me, | and thee will betray,<br> Us both to death will he bring;</p> <font size="-1" color="green">
+ <p>[18. Lines 3-4 do not appear in the manuscript and no gap is indicated; they are here conjecturally paraphrased from the prose passage in the <i>Volsungasaga</i>.</p> 
+ <p>20. It has been suggested that this stanza is spurious, and that stanza 21 ought to follow stanza 22. Lines 3-4, abbreviated in the manuscript, are identical with lines 3-4 of stanza 9. The <i>Volsungasaga</i> paraphrase in place of these two lines makes [fp. 378] Fafnir say: "For it often happens that he who gets a deadly wound yet avenges himself." It is quite likely that two stanzas have been lost.]</p> </font>
+ <p><a name="page_378"><font size="1" color="green">p. 378</font></a></p> 
+ <p>His life, methinks, | must Fafnir lose,<br> For the mightier man wast thou."</p> 
+ <p>Regin had gone to a distance while Sigurth fought Fafnir, and came back while Sigurth was wiping the blood from his sword. Regin said:</p> 
+ <p>23. "Hail to thee, Sigurth! | Thou victory hast,<br> And Fafnir in fight hast slain;<br> Of all the men | who tread the earth,<br> Most fearless art thou, methinks."</p> <i>
+ </i><p>Sigurth spake:<br> 24. "Unknown it is, | when all are together,<br> (The sons of the glorious gods,)<br> Who bravest born shall seem;<br> Some are valiant | who redden no sword<br> In the blood of a foeman's breast."</p> <i>
+ </i><p>Regin spake:<br> 25. "Glad art thou, Sigurth, | of battle gained,<br> As Gram with grass thou cleansest;<br> My brother fierce | in fight hast slain,<br> And somewhat I did myself."</p> <font size="-1" color="green">
+ <p>[22. The <i>Volsungasaga</i> places its paraphrase of this stanza between those of stanzas 15 and 16.</p> 
+ <p>24. Line 2 is probably spurious, but it is a phrase typical of such poems as <i>Grimnismol</i> or <i>Vafthruthnismol</i>.</p> 
+ <p>25. <i>Grain</i>: Sigurth's sword; cf. <i>Reginsmol</i>, prose after 14.]</p> </font>
+ <p><a name="page_379"><font size="1" color="green">p. 379</font></a></p> <i>
+ </i><p>Sigurth spake:<br> 26. "Afar didst thou go | while Fafnir reddened<br> With his blood my blade so keen;<br> With the might of the dragon | my strength I matched,<br> While thou in the heather didst hide."</p> <i>
+ </i><p>Regin spake:<br> 27. "Longer wouldst thou | in the heather have let<br> Yon hoary giant hide,<br> Had the weapon availed not | that once I forged,<br> The keen-edged blade thou didst bear."</p> <i>
+ </i><p>Sigurth spake:<br> 28. "Better is heart | than a mighty blade<br> For him who shall fiercely fight;<br> The brave man well | shall fight and win,<br> Though dull his blade may be.</p> 
+ <p>29. "Brave men better | than cowards be,<br> When the clash of battle comes;<br> And better the glad | than the gloomy man<br> Shall face what before him lies.</p> 
+ <p>30. "Thy rede it was | that I should ride</p> <font size="-1" color="green">
+ <p>[26. In the manuscript stanzas 26-29 stand after stanza 31, which fails to make clear sense; they are here rearranged in accordance with the <i>Volsungasaga</i> paraphrase.</p> 
+ <p>28-29. Almost certainly interpolated from some such poem as the <i>Hovamol</i>. Even the faithful <i>Volsungasaga</i> fails to paraphrase stanza 29.]</p> </font>
+ <p><a name="page_380"><font size="1" color="green">p. 380</font></a></p> 
+ <p>Hither o'er mountains high;<br> The glittering worm | would have wealth and life<br> If thou hadst not mocked at my might."</p> 
+ <p>Then Regin went up to Fafnir and cut out his heart with his sword, that was named Rithil, and then he drank blood from the wounds. Regin said:</p> 
+ <p>31. "Sit now, Sigurth, | for sleep will I,<br> Hold Fafnir's heart to the fire;<br> For all his heart | shall eaten be,<br> Since deep of blood I have drunk."</p> 
+ <p>Sigurth took Fafnir's heart and cooked it on a spit. When he thought that it was fully cooked, and the blood foamed out of the heart, then he tried it with his finger to see whether it was fully cooked. He burned his finger, and put it in his mouth. But when Fafnir's heart's-blood came on his tongue, he understood the speech of birds. He heard nut-hatches chattering in the thickets. A nut hatch said:</p> 
+ <p>32. "There sits Sigurth, | sprinkled with blood,<br> And Fafnir's heart | with fire he cooks;</p> <font size="-1" color="green">
+ <p>[30. Something has evidently been lost before this stanza. Sigurth clearly refers to Regin's reproach when he was digging the trench (cf. note on introductory prose), but the poem does not give such a passage.</p> <i>
+ </i><p>Prose. <i>Rithil</i> ("Swift-Moving"): Snorri calls the sword Refil ("Serpent").</p> 
+ <p>32. That the birds' stanzas come from more than one source [fp. 381] is fairly apparent, but whether from two or from three or more is uncertain. It is also far from clear how many birds are speaking. The manuscript numbers II, III, and IV in the margin with numerals; the <i>Volsungasaga</i> makes a different bird speak each time. There are almost as many guesses as there are editions. I suspect that in the original poem there was one bird, speaking stanzas 34 and 37. Stanza 38 is little more, than a repetition of stanza 34, and may well have been a later addition. As for the stanzas in Fornyrthislag (32-53 and 35-36), they apparently come from another poem, in which several birds speak (cf. "we sisters" in stanza 35). This may be the same poem from which stanzas 40-44 were taken, as well as some of the Fornyrthislag stanzas in the <i>Sigrdrifumol</i>.]</p> </font>
+ <p><a name="page_381"><font size="1" color="green">p. 381</font></a></p> 
+ <p>Wise were the breaker | of rings, I ween,<br> To eat the life-muscles | all so bright."</p> <i>
+ </i><p>A second spake:<br> 33. "There Regin lies, | and plans he lays<br> The youth to betray | who trusts him well;<br> Lying words | with wiles will he speak,<br> Till his brother the maker | of mischief avenges."</p> <i>
+ </i><p>A third spake:<br> 34. "Less by a head | let the chatterer hoary<br> Go from here to hell;<br> Then all of the wealth | he alone can wield,<br> The gold that Fafnir guarded."</p> <i>
+ </i><p>A fourth spake:<br> 35. "Wise would he seem | if so he would heed<br> The counsel good | we sisters give;</p> <font size="-1" color="green">
+ <p>[34. Some editions turn this speech from the third person into the second, but the manuscript is clear enough.]</p> </font>
+ <p><a name="page_382"><font size="1" color="green">p. 382</font></a></p> 
+ <p>Thought he would give, | and the ravens gladden,<br> There is ever a wolf | where his ears I spy."</p> <i>
+ </i><p>A fifth spake:<br> 36. "Less wise must be | the tree of battle<br> Than to me would seem | the leader of men,<br> If forth he lets | one brother fare,<br> When he of the other | the slayer is."</p> <i>
+ </i><p>A sixth spake:<br> 37. "Most foolish he seems | if he shall spare<br> His foe, the bane of the folk,<br> There Regin lies, | who hath wronged him so,<br> Yet falsehood knows he not."</p> <i>
+ </i><p>A seventh spake:<br> 38. "Let the head from the frost-cold | giant be hewed,<br> And let him of rings be robbed;<br> Then all the wealth | which Fafnir's was<br> Shall belong to thee alone."</p> <i>
+ </i><p>Sigurth spake:<br> 39. "Not so rich a fate | shall Regin have</p> <font size="-1" color="green">
+ <p>[35. <i>Wolf</i>, etc.: the phrase is nearly equivalent to "there must be fire where there is smoke." The proverb appears else where in Old Norse.</p> 
+ <p>36. <i>Tree of battle</i>: warrior.</p> 
+ <p>37. Here, as in stanza 34, some editions turn the speech from the third person into the second.</p> 
+ <p>38. <i>Giant</i>: Regin was certainly not a frost-giant, and the whole stanza looks like some copyist's blundering reproduction of stanza 34.]</p> </font>
+ <p><a name="page_383"><font size="1" color="green">p. 383</font></a></p> 
+ <p>As the tale of my death to tell;<br> For soon the brothers | both shall die,<br> And hence to hell shall go."</p> 
+ <p>Sigurth hewed off Regin's head, and then he ate Fafnir's heart, and drank the blood of both Regin and Fafnir. Then Sigurth heard what the nut-hatch said:</p> 
+ <p>40. "Bind, Sigurth, the golden | rings together,<br> Not kingly is it | aught to fear;<br> I know a maid, | there is none so fair,<br> Rich in gold, | if thou mightest get her.</p> 
+ <p>41. "Green the paths | that to Gjuki lead,</p> <font size="-1" color="green">
+ <p>[40. Neither the manuscript nor any of the editions suggest the existence of more than one bird in stanzas 40-44. it seems to me, however, that there are not only two birds, but two distinct stories. Stanzas 40-41 apply solely to Guthrun, and suggest that Sigurth will go straight to Gunnar's hall. Stanzas 42-44, on the other hand, apply solely to Brynhild, and indicate that Sigurth will find her before he visits the Gjukungs. The confusion which existed between these two versions of the story, and which involved a fundamental difference in the final working out of Brynhild's revenge, is commented on in the note on <i>Gripisspo</i>, 13. In the present passage it is possible that two birds are speaking, each reflecting one version of the story; it seems even more likely that one speech or the other (40-41 or 42-44) reflects the original form of the narrative, the other having been added, either later or from another poem. In the <i>Volsungasaga</i> the whole passage is condensed into a few words by one bird: "Wiser were it if he should then ride up on Hindarfjoll, where Brynhild sleeps, and there would he get much wisdom." The Guthrun-bird does not appear at all.</p> 
+ <p>41. <i>Gjuki</i>: father of Gunnar and Guthrun: cf. <i>Gripisspo</i>, 13 and note.]</p> </font>
+ <p><a name="page_384"><font size="1" color="green">p. 384</font></a></p> 
+ <p>And his fate the way | to the wanderer shows;<br> The doughty king | a daughter has,<br> That thou as a bride | mayst, Sigurth, buy."</p> <i>
+ </i><p>Another spake:<br> 42. "A hall stands high | on Hindarfjoll,<br> All with flame | is it ringed without;<br> Warriors wise | did make it once<br> Out of the flaming | light of the flood.</p> 
+ <p>43. "On the mountain sleeps | a battle-maid,<br> And about her plays | the bane of the wood;<br> Ygg with the thorn | hath smitten her thus,<br> For she felled the fighter | he fain would save.</p> 
+ <p>44. "There mayst thou behold | the maiden helmed,<br> Who forth on Vingskornir | rode from the fight;<br> The victory-bringer | her sleep shall break not,<br> Thou heroes' son, | so the Norns have set."</p> <font size="-1" color="green">
+ <p>[42. <i>Hindarfjoll</i>: "Mountain of the Hind." <i>Light of the flood</i>: gold; cf. <i>Reginsmol</i>, 1 and note.</p> 
+ <p>43. <i>Battle-maid</i>: Brynhild, here clearly defined as a Valkyrie. <i>Bane of the wood</i>: fire. <i>Ygg</i>: Othin; cf. <i>Grimnismol</i>, 53. <i>The thorn</i>: a prose note in <i>Sigrdrifumol</i> calls it "sleep-thorn." <i>The fighter</i>: the story of the reason for Brynhild's punishment is told in the prose following stanza 4 of <i>Sigrdrifumol</i>.</p> 
+ <p>44. <i>Vingskornir</i>: Brynhild's horse, not elsewhere mentioned. <i>Victory-bringer</i>: the word thus translated is in the original "sigrdrifa." The compiler of the collection, not being familiar with this word, assumed that it was a proper name, and in the prose following stanza 4 of the <i>Sigrdrifumol</i> he specifically states that this was the Valkyrie's name. Editors, until recently, [fp. 385] have followed him in this error, failing to recognize that "sigrdrifa" was simply an epithet for Brynhild. It is from this blunder that the so-called <i>Sigrdrifumol</i> takes its name. Brynhild's dual personality as a Valkyrie and as the daughter of Buthli has made plenty of trouble, but the addition of a second Valkyrie in the person of the supposed "Sigrdrifa" has made still more.]</p> </font>
+ <p><a name="page_385"><font size="1" color="green">p. 385</font></a></p> 
+ <p>Sigurth rode along Fafnir's trail to his lair, and found it open. The gate-posts were of iron, and the gates; of iron, too, were all the beams in the house, which was dug down into the earth. There Sigurth found a mighty store of gold, and he filled two chests full thereof; he took the fear-helm and a golden mail-coat and the sword Hrotti, and many other precious things, and loaded Grani with them, but the horse would not go forward until Sigurth mounted on his back.</p> <font size="-1" color="green">
+ <p>[<i>Prose</i>. There is no break in the manuscript between the end of this prose passage and the beginning of the one introducing the <i>Sigrdrifumol</i>: some editors include the entire prose passage with one poem or the other. <i>Hrotti</i>: "Thruster."]</p> </font> 
+ <p></p><hr>
+ <center>
+ <a href="poe25.htm">Next: Sigrdrifumol</a></center>
+ </body>

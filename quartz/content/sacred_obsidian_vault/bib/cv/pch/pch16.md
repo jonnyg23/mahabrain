@@ -1,0 +1,176 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">Bible Critical Views</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pch15.htm">Previous</a> 
+ <a href="pch17.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002EVPFEO/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Pagan Christs</i>, by John M. Robertson, [1911], at sacred-texts.com</font></p><hr>  <h4 align="center">§ 12.</h4>  
+ <p>It is necessary to clear up the historic problem of ancestor-worship in order to reach a sound definition of religion. And to begin with, we find the historical evidence is all against Dr. Jevonss later thesis. Not only have we the many cases in which contemporary savages, like ancient Gnostics, think of a God as an ancestor or of the first man as a God, <a name="fr_171"></a><a href="#fn_171"><font size="1">1</font></a> and the record in ancient Egypt of the process by which a deceased king became a God; <a name="fr_172"></a><a href="#fn_172"><font size="1">2</font></a> but we have the relatively late doctrine in Hesiod, <a name="fr_173"></a><a href="#fn_173"><font size="1">3</font></a> according to which the men of the first age became just and beneficent daimons, passing invisibly over the earth, dispensing rewards and retributions and good fortune.</p>  
+ <p>There is a risk of confusion over this last conception, which, with others of a similar kind, is taken by Mr. Lang as a proof that "early men, contrary to Mr. Frazer's account, suppose <i>themselves</i> to be naturally immortal." <a name="fr_174"></a><a href="#fn_174"><font size="1">4</font></a> Dr. Frazer's words were that, "lacking the idea of eternal duration, primitive man naturally supposes the gods to be mortal like himself." <a name="fr_175"></a><a href="#fn_175"><font size="1">5</font></a> Here the verbal confusion is complete. In the very act of claiming that "far from lacking the idea of eternal duration of life, 'primitive man' has no other idea," Mr. Lang admits: "Not that he formulates his ideas in such a term as 'eternal.'" <a name="fr_176"></a><a href="#fn_176"><font size="1">6</font></a> But neither does he formulate it in such a phrase as "naturally immortal"; he has, in fact, no clear idea to formulate; <a name="fr_177"></a><a href="#fn_177"><font size="1">7</font></a> and Dr. Frazer of all men should have remembered as</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_48"><font size="1" color="green">p. 48</font></a></p>  
+ <p>much. As we have seen, <a name="fr_178"></a><a href="#fn_178"><font size="1">1</font></a> the savage commonly believes that he would never die save for the acts of hostile spirits, sorcerers, or enemies; yet he knows that all his race die.</p>  
+ <p>What has happened is that men at a certain stage became capable of conceptually noting at once death and the apparent survival (in dreams) of men in some different fashion after death, without framing any theory. But chronic crises in their political or tribal history had the effect of singling out from the vague crowd of ancestral memories those of a particular group or generation who made or led some migration or conquest; and these became for a time "the" ancestors <i>par excellence</i>, early man being unable to construct the human past save by way of some definite beginning. At some point in the long vista he needed a "first man," or beast, or plant, or stone, or pair; and he had to make such out of some of his ancestral material, with whatever fanciful embellishments. In virtue of the same state of mind, we find tribes and even nations convinced of their special descent from one later man, who at one stage definitely ranks as a God, <a name="fr_179"></a><a href="#fn_179"><font size="1">2</font></a> though another religious concept may ultimately undeify him, as in the cases of Abraham and Jacob.</p>  
+ <p>As a result of all these tendencies, at a stage in which the primordial belief in the "spiritual" or occult survival of ancestors in general has begun to be definitely contradicted <a name="fr_180"></a><a href="#fn_180"><font size="1">3</font></a> by the conceptual recognition of death, and by disbelief in the land beyond the grave, there emerges a vague compromise in the notion that either the first pair or the men of the first age were of a different order as regarded their liability to death; and this belief holds the ground until haply a general doctrine of resurrection or ghostly immortality pushes it in turn to the background. But though the notion of the survival of ancestors has thus in a succession of forms subsisted from a very remote period, it clearly does not follow that early men conceived <i>themselves</i> to be immortal in the sense in which they were later held to be so by their descendants. The definite or conceptual belief is retrospective. It is, however, sufficiently general to dispose of Mr. Lang's argument that among the Australians Gods cannot be developed from ancestors. "No ghost of a man," he insists, "can grow into a god if his <i>name</i> is tabooed and <i>therefore forgotten</i>." <a name="fr_181"></a><a href="#fn_181"><font size="1">4</font></a> And again: "In Australia, where even the recent ghosts are unadored is it likely that some remote ghost is remembered as</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_49"><font size="1" color="green">p. 49</font></a></p>  
+ <p>founder of the ancient mysteries?" <a name="fr_182"></a><a href="#fn_182"><font size="1">1</font></a> It is after this contention that, apparently without realising the bearing of the statement upon the argument under notice, Mr. Lang triumphantly tells us that there is <i>Australian</i> as well as other evidence of the nearly universal vogue of the belief that the first men<i>i.e.</i>, ancestorswere deathless.</p>  
+ <p>Obviously the very habit of tabooing proper names might conduce to the deifying of ancestors under special epithets, since that resort is always open under tabooism. <a name="fr_183"></a><a href="#fn_183"><font size="1">2</font></a> The tabooing of ancestors names, which is one of the most widespread of savage practices, <a name="fr_184"></a><a href="#fn_184"><font size="1">3</font></a> can no more destroy the notion that those ancestors have existed than the tabooing of God-names among Egyptians, Babylonians, Hebrews, and Romans put the Gods in question out of recollection. <a name="fr_185"></a><a href="#fn_185"><font size="1">4</font></a> Was not Yahweh scrupulously specified in many Hebrew rituals as Adonai, <i>the Lord</i>, and by Samaritans as Shema, <i>the Name?</i> <a name="fr_186"></a><a href="#fn_186"><font size="1">5</font></a> It is well to ask <i>why</i> savages taboo the names of the dead before we deduce views as to the consequences. The reasons doubtless vary, but some instances may illuminate the practice. Among the Battaks, where a man on becoming a father of a boy, N.N., is henceforth known only as "father of N.N.," children must not utter the names of their parents, and spouses call each other "father of N.N." and "daughter of the ," naming her family. Here the idea is that to know a man's name is to have some power over his various souls. <a name="fr_187"></a><a href="#fn_187"><font size="1">6</font></a> Among the Narrinyeri of South Australia "the name of the dead must not be mentioned <i>until his body has decayed</i>, lest a want of sorrow should seem to be indicated by a common and flippant use of his name. A native would have the</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_50"><font size="1" color="green">p. 50</font></a></p>  
+ <p>deceased believe that he cannot hear or speak his name without weeping." <a name="fr_188"></a><a href="#fn_188"><font size="1">1</font></a> There is no tendency to oblivion here. In other cases, again, it is clear that when at death a man's name is "buried" he is simply re-named. Among the Masai, "should there be <i>anything</i> which is called by that [the deceased's] name, it is given another name which is not like that of the deceased. For instance, if an unimportant person called <i>Ol-onana</i> (he who is soft or weak or gentle) were to die, gentleness would not be called on-nanai in that kraal, as it is the name of a corpse, but it would be called by another name, such as <i>epolpol</i> (it is smooth)." <a name="fr_189"></a><a href="#fn_189"><font size="1">2</font></a> If then Ol-onana were an important person, is it to be supposed that his personality would be forgotten? Would not he too be re-labelled? <a name="fr_190"></a><a href="#fn_190"><font size="1">3</font></a> <i>All</i> dead men's names are tabooed: is it to be supposed that the personalities, or even the old names, of <i>all</i> are forgotten? Re-naming would be a necessity, for men as for things. Among the Narrinyeri, apparently, this would be only temporary, the original name being reverted to after the decay of the body; and even if it were not, the reminiscence would be unbroken, so that a notable man could as well be deified among name-tabooers as among tribes who had not the practice. Nor is there any force in the argument from recent disuse of such deification. Even if we admit the probability that Australian tribes have latterly <a name="fr_191"></a><a href="#fn_191"><font size="1">4</font></a> ceased to deify ancestors, the fact remains that, as Mr. Lang admits, they think of remote ancestors as undying, even as they do of Gods.</p>  
+ <p>Recognising, however, that the definite conception of ancestors as abnormal in point of deathlessness is retrospective, we must not on the other hand fall into the error of supposing that only in late ages, and by way of poetic retrospect, did men conceive of their deceased predecessors as exercising powers of the kind credited to whatever beings for the time answered to our general notion of "Gods." <a name="fr_192"></a><a href="#fn_192"><font size="1">5</font></a> The true solution is that in men's vague ideas the early "Gods" approximated much more to themselves; and that gradually</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_51"><font size="1" color="green">p. 51</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> "the Gods" as such were relatively raised, the change proceeding for ages without involving the absolute negation of ancestral spirits, <a name="fr_193"></a><a href="#fn_193"><font size="1">1</font></a> and, à fortiori, without necessarily removing from the order of fully-established Gods all who might have been ancestors to start with.</p>  
+ <p>Indeed, there is evidence, as we have seen, that in early stages of religion the Gods were actually conceived as destructible; <a name="fr_194"></a><a href="#fn_194"><font size="1">2</font></a>' and in the Vedas and Brâhmanas the Gods actually <i>acquire</i> immortality in different waysby the help of Agni, by drinking the Soma, by continence and austerity, thus gradually raising themselves above the Asuras, with whom they were originally equal. <a name="fr_195"></a><a href="#fn_195"><font size="1">3</font></a> So in the Babylonian deluge epic Parnapishtim <a name="fr_196"></a><a href="#fn_196"><font size="1">4</font></a> and his wife, who had been mortal, are raised to immortality. <a name="fr_197"></a><a href="#fn_197"><font size="1">5</font></a> This conception may be a reflex of the same doctrine as first framed for mortals; but there the fact stands that the Gods were not definitely conceived as "necessarily immortal" to start with.</p>  
+ <p>To see in the Hesiodic or modern-savage theory only a late or "eventual" raising of ancestors to a divine status would be to do violence to all anthropology. Rather it stands for a theological process of discrimination, by which the priesthoods of the Gods carefully reduced deified ancestors as such to a lower level of divinity, while still recognising their immortality and supernatural power. Such a process had demonstrably occurred in the Hebrew system, where the patriarchs and heroes of the Sacred Books have been actually identified as ancient Semitic deities; <a name="fr_198"></a><a href="#fn_198"><font size="1">6</font></a> and it was just as likely to occur in those other developments of Semitic theology which can be shown to underlie the cosmology of Homer and Hesiod. <a name="fr_199"></a><a href="#fn_199"><font size="1">7</font></a> Reasoning à priori, again, we have not the faintest ground for supposing that primeval man discriminated between orders of spirits to the extent of conceiving his ancestors as dispensing supernatural favours and yet at the same time ranking far below Gods who did the same thing. How should men conceivably begin to deify confessed mortals as beside "great" Gods,</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_52"><font size="1" color="green">p. 52</font></a></p>  
+ <p>having never ventured to deify them before the Gods had been so magnified? On that line there is no solution. In the words of Professor Robertson Smith, the origins of all religion "go back to a stage of human thought in which the question of the nature of the Gods, as distinguished from other beings, did not even arise in any precise form, because no one series of existences was strictly differentiated from another." <a name="fr_200"></a><a href="#fn_200"><font size="1">1</font></a> In the light of all the facts, in fine, we realise that the common process, seen among the historic Greeks, <a name="fr_201"></a><a href="#fn_201"><font size="1">2</font></a> of demi-deifying a hero, was merely prevented by the presence of fully-established cults from developing just as those cults had done earlier. It of course does not follow that they had all originated in that fashion; but that the ancestor cults as it were played into the solar and vegetal cults from time immemorial is on all grounds probable.</p>  
+ <p>On the other line of reasoning under notice we end in a mere counter-sense as to the definition of "ancestor." You cannot have ancestor-worship, says Dr. Jevons at one point, till you have the family. Yet he himself has just been describing the totem of the early community as an "ancestor" worshipped as a God before the family was recognised. We seem to be left with the puzzle: "When is an ancestor not an ancestor?" as the sole fruit of a chapter of investigation. If by a sudden <i>petitio principii</i> ancestor-worship is to be defined as strictly a private or family-cult of the kind seen in historic times, then indeed the denial of the priority of ancestor-worship is justified; and it is justified again if it be meant that hostile Gods preceded friendly ones. But in terms of Dr. Jevonss own theory of the totemistic sacrament, the ancestor-God is the type of the first friendly-God, who on this view is later than the unfriendly Gods; and the friendly-God is ancestral precisely because friendliness was apt to be associated with ancestors, <a name="fr_202"></a><a href="#fn_202"><font size="1">3</font></a> who were certainly regarded as were "spirits."</p>  
+ <p>The warranted inference, however, is merely that the ancestor-spirit was <i>one of</i> the types of friendly-God. Just as myths so-called can be seen, on a fair induction, to have originated in a dozen different modes of natural fallacyinference from phenomena, misinterpretation of names and objects of art, constructions from analogy, misinterpretation of ritual, conjunctions of worships, and so forth <a name="fr_203"></a><a href="#fn_203"><font size="1">4</font></a>so other religious beliefs so-called are to be inferred as</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_53"><font size="1" color="green">p. 53</font></a></p>  
+ <p>originating in many lines of the animistic and explanatory instinct. The God-idea is simply the most typical myth. Adapting the popular rhyme, we may reasonably say that "there are nine-and-twenty modes of making tribal Gods, and every single one of them is"natural.</p>  
+ <p>There is really no conceptual limit to the primeval faculty of God-making. The Roman pantheon alone, wherein are Gods of diseases, of drains, of sneezing, of every bodily act, and of a hundred verbal abstractions, might have warned any theorist against denying that early man might deify his ancestors; and the record of the fortunes of many cults might equally warn us against denying that any one deity might attain the highest status. Osiris, on one theory, is like Hades a God made out of the abstraction of the <i>abode</i> of the departed; <a name="fr_204"></a><a href="#fn_204"><font size="1">1</font></a> Dionysos, like Soma, is plausibly held to be the deified abstraction of mere wine, <a name="fr_205"></a><a href="#fn_205"><font size="1">2</font></a> sacramentally regarded, as Agni is certainly the deified abstraction of the sacrificial fire; and Hathor, who ran Isis hard in divine honours in Egypt, is in origin simply Hat-Hor, the dwelling of Horus, to wit, the Dawn and the Sunset; <a name="fr_206"></a><a href="#fn_206"><font size="1">3</font></a> as Venus is possibly a Roman deification of the term Benoth in the Carthaginian phrase Succoth Benoth, <a name="fr_207"></a><a href="#fn_207"><font size="1">4</font></a> the tents of prostitution. The Gods and Goddesses, in fact, are made out of man's needs and passions, his fancies and his blunders, his fears and his hopes; and it would be strange if he never made them, even the highest of them, from the nucleus of his reverent and affectionate retrospect on his own kind. Round his elders and his ancestors were formed his first and fundamental notions of right and duty and obedience. How then should he fail to bring at times his religious and his primary ethical ideals into combination?</p>  
+ <p>Von Ihering indeed has argued that the offerings at the graves of the deadat least among Aryansare the products not of love, as commonly supposed, but of fear. <a name="fr_208"></a><a href="#fn_208"><font size="1">5</font></a> It is characteristic of the mode of progression of the sciences that nobody appears to suppose they might be both, some people fearing the dead, some loving them. <a name="fr_209"></a><a href="#fn_209"><font size="1">6</font></a></p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_54"><font size="1" color="green">p. 54</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> But even supposing them to have originated in fear of the importunities of the neglected ghost, it would not be unnatural that from the propitiated ghost there should be expected special favour. Doubtless the principle operated differently in different stages. The thesis of Fustel de Coulanges, that "what unites the members of the ancient family is the religion of the hearth and of ancestors," and that "the ancient family......is a religious rather than a natural association," <a name="fr_210"></a><a href="#fn_210"><font size="1">1</font></a> may be perfectly true (under his own reservation that religion of course did not <i>create</i> the family); and it would follow that ancestor-worship took on special features from the time that the family dwelt by or over the family tomb. But this does not dispose of the problem as to the religion of the nomads who have no fixed hearth and tomb, <a name="fr_211"></a><a href="#fn_211"><font size="1">2</font></a> and of the peoples who either burned or exposed their dead.</p>  
+ <p>Taking the nomadic period in general, and assuming <a name="fr_212"></a><a href="#fn_212"><font size="1">3</font></a> that the horde preceded the family in order of evolution, we must admit that there were ideas of "ghosts" and other quasi-human "spirits" before the strict family-ancestor was evolved. But there is nothing to show that the idea of a general ancestor or ancestors was not elaborated in the horde-period, out of the normal idea of the ancestor-ghost as well as out of the idea of the non-ancestral spirit, those ideas being easily able to coalesce. A horde was likely to have a horde-ancestor-God; else why should the Greeks be found speaking of their family Gods, Gods of their blood, paternal Gods, gentile Gods? <a name="fr_213"></a><a href="#fn_213"><font size="1">4</font></a> If the <i>theos</i> were previously conceived solely as a stupendous cosmocrator, how (once more) came men to make <i>theoi</i> of the household? If on the other hand the family and the tribe were roughly coeval, and the notion of a family-ancestor be about as old as the notion of a tribe-ancestor or First Man, we are still left facing ancestor-worship as one of the norms of the cult of a friendly-God. Even in the Aryan horde elders would make themselves respected, and lost fathers and mothers would be missed; and there was no way in which early man could conceive of a providential or punitive deity save in terms of the punitive and providential practices of elders towards juniors, or of chiefs or patriarchs towards groups; or in terms of the action of hostile groups or persons.</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_55"><font size="1" color="green">p. 55</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> That the abstraction of divine judges and lawgivers and avengers, thus reached, should be employed to sanction the codes or customs of the seniors or the patriarchs, was psychologically a matter of course; but that does not affect the fact of the à posteriori origination.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_171"></a><a href="pch16.htm#fr_171">47:1</a> See Kranz, <i>Natur- and Kulturleben der Zulus</i>, 1880, pp. 109-110; Paul Wurm, <i>Handbuch der Religionsgeschichte</i>, 1908, p. 41; Tylor, <i>Primitive Culture</i>, 3rd ed. ii, 311-15; Turner, <i>Samoa a Hundred Years Ago</i>, 1884, pp. 288-9, 318, 345; and J. G. Müller, <i>Amerikanische Urreligionen</i>, 2te Aufl. pp. 133-136. Cp., however, p. 73. And see above, pp. <a href="pch15.htm#page_40">40</a>-1, and below, p. <a href="#page_48">48</a>.</p>
+ <p><a name="fn_172"></a><a href="pch16.htm#fr_172">47:2</a> The argument does not require specification of such a process, but reference may be made to an ancient form of the Book of the Dead (cit. by Budge, Introd. p. cxiv, from the text of Unas; cp. Wiedemann, <i>Religion of the Ancient Egyptians</i>, Eng. trans. 1897, p. 303; Erman, <i>Handbook of Egyptian Religion</i>, Eng. trans. pp. 90-91), where it is told how the deceased king Unas as a soul in the form of a god devours his fathers and mothers and mankind generally <i>and gods</i>. He hunts and entraps the gods in the plains of the next world," and kills, cooks, and eats them. "He eats the hearts carefully so that he may absorb the vital powers of the gods," etc. Wiedemann puts a certain strain on our ideas of definition, as well as on our sense of humour, in calling such conceptions "these Pantheistic views," This text, which dates from B.C. 3333, chances to preserve for us a much earlier conception of deification. But Dr. Frazer notes further that an ancient king often was as such ranked as an actual God, as are many savage kings in our own day. (<i>Golden Bough</i>, i, 8, 130, 141, 145, etc.) So also with the early Hebrew judges.</p>
+ <p><a name="fn_173"></a><a href="pch16.htm#fr_173">47:3</a> <i>Works and Days</i>, 121, 299. See Mariner, <i>Tonga Islands</i>, 3rd ed. ii, 103-4, 108-9; and compare the similar doctrine among the Khonds, given in Macpherson's <i>Memorials of Service in India</i>, p. 86; and cit. in note on p. 90 as to ancestral Gods in New Zealand. Among the early Aryan Hindus "the Fathers" were separately created, and are thus distinct from men; but are of different degrees of divinity. Muir, <i>Sanskrit Texts</i>, v, 287, 310.</p>
+ <p><a name="fn_174"></a><a href="pch16.htm#fr_174">47:4</a> <i>Magic and Religion</i>, p. 85.</p>
+ <p><a name="fn_175"></a><a href="pch16.htm#fr_175">47:5</a> <i>G. B.</i> ii, 1.</p>
+ <p><a name="fn_176"></a><a href="pch16.htm#fr_176">47:6</a> Last cit. p. 86.</p>
+ <p><a name="fn_177"></a><a href="pch16.htm#fr_177">47:7</a> Thus in Gen. ii, 17, it is vaguely implied that man was "naturally immortal," and the whole myth is an attempt to account for the origin of death; yet in iii, 22, it is implied that only by eating of the tree of life could man live for ever."</p>
+ <p><a name="fn_178"></a><a href="pch16.htm#fr_178">48:1</a> Above, pp. 1-2.</p>
+ <p><a name="fn_179"></a><a href="pch16.htm#fr_179">48:2</a> Cp. Waitz, <i>Anthropologie der Naturvölker</i>, iii, 183; Dobrizhoffer, <i>Account of the Abipones</i>, Eng. tr. 1821, ii, 64, 89; above, pp. 40-41.</p>
+ <p><a name="fn_180"></a><a href="pch16.htm#fr_180">48:3</a> The contradictory beliefs, it must be remembered survive side by side or at different levels of culture for an indefinite time.</p>
+ <p><a name="fn_181"></a><a href="pch16.htm#fr_181">48:4</a> <i>Magic and Religion</i>, p. 70.</p>
+ <p><a name="fn_182"></a><a href="pch16.htm#fr_182">49:1</a> <i>Id</i>. p. 31.</p>
+ <p><a name="fn_183"></a><a href="pch16.htm#fr_183">49:2</a> Cp. Clodd, <i>Tom Tit Tot</i>, p. 125 <i>sq</i>., and Frazer, <i>G. B.</i> i, 403-447, for a full view of taboos of names, which often apply to the living as well as to the dead, and therefore do not mean oblivion. "The Abipones think it a sin to utter <i>their own names</i>" (Dobrizhoffer, <i>Account of the Abipones</i>, as cited, ii, p. 444). Mr. Lang (<i>Magic and Religion</i>, p. 56) overlooks this, taking it for granted that when a dead man's proper name is tabooed he is forgotten. Among the Native Americans, the slayer of the victim in certain human sacrifices received a new name by way of honour. Lafitau, <i>Early History of Mankind</i>, 1724, ii, 303-4. Similar usages were noted by Dobrizhoffer among the Abipones (work cited, ii, p. 445). Other motives than "honour," of course, may have operated in such cases. Among the Abipones all the friends and relatives of the deceased change their names (Dobrizhoffer, ii, D. 274). Among the Bataks a father changes his name when a son is born to him, and becomes henceforth "father of N.N." (Warneck, <i>Die Religion der Batak</i>, 1909, p. 124).</p>
+ <p><a name="fn_184"></a><a href="pch16.htm#fr_184">49:3</a> Cp. Waitz, <i>Anthropologie der Naturvölker</i>, iii, 334; Tylor, <i>Early History of Mankind</i>, 1865, 139-143; Lafitau, <i>Murs des sauvages ameriquains</i>, as cited, ii, 434; Dobrizhoffer, <i>Account of the Abipones</i>, as cited, ii, 273, 444-5; A. C. Hollis, <i>The Masai</i>, 1905, pp. 304-5; A. F. Calvert, <i>The Aborigines of Western Australia</i>, 1894, p. 20; Sir H. Johnston, <i>The Uganda Protectorate</i>, 1902, ii, 826; Cunningham, <i>Uganda and its Peoples</i>, 1905, p. 14, F. W. Christian, <i>The Caroline Islands</i>, 1899, p. 74; Warneck, as cited; Clodd, <i>Tom Tit Tot</i>, p. 164 <i>sq</i>.</p>
+ <p><a name="fn_185"></a><a href="pch16.htm#fr_185">49:4</a> Cp. Clodd, <i>Tom Tit Tot</i>, p. 173 <i>sq</i>.</p>
+ <p><a name="fn_186"></a><a href="pch16.htm#fr_186">49:5</a> Originally the Jews also read "ha-Shem" (J. W. Nutt, <i>Fragments of a Samaritan Targum</i>, 1874, Introd. pp. 38-39, ref. to Geiger, <i>Urschrift</i>, 262; Nicolas, <i>Des Doctrines Samaritan religieuses des Juifs</i>, 1860, p. 167). It is possible that the Jews dropped the word Shem because that was known to be the name of a distinct God, once worshipped in Samaria. where however the Yahwists retained it for purposes of syncretism.</p>
+ <p><a name="fn_187"></a><a href="pch16.htm#fr_187">49:6</a> Warneck, <i>Die Religion der Batak</i>, 1909, p. 124. Cp. Clodd, as before cited.</p>
+ <p><a name="fn_188"></a><a href="pch16.htm#fr_188">50:1</a> The <i>Narrinyeri: An Account of the tribes of South Australian Aborigines</i>, by the Rev. George Taplin, 2nd ed. Adelaide, 1878, p. 19.</p>
+ <p><a name="fn_189"></a><a href="pch16.htm#fr_189">50:2</a> Hollis, <i>The Masai</i>, 1905, pp. 304-5. Among the Samoans, similarly, objects with names resembling those of Gods were often re-named. Turner, <i>Samoa a Hundred Years Ago</i>, 1884, pp. 33, 60.</p>
+ <p><a name="fn_190"></a><a href="pch16.htm#fr_190">50:3</a> It is told of the Malagasy that they hold it a crime to mention the dead "by the names they had when living." Spencer, <i>Principles of Sociology</i>, i, 274 (1 144), citing Drury. This leaves open a fresh naming.</p>
+ <p><a name="fn_191"></a><a href="pch16.htm#fr_191">50:4</a> Mr. Lang supposes (<i>Magic and Religion</i>, p. 227) that "the Zulus once had an idea of a creative being; that they reduced him......to a first man; that they neglected him in favour of serviceable ghosts; and that they now think him extinct; like the ghosts themselves when they cease to be serviceable."</p>
+ <p><a name="fn_192"></a><a href="pch16.htm#fr_192">50:5</a> M. Girard, anticipating Dr. Jevons, speaks of the Hesiodic doctrine as "a sort of apotheosis which <i>raises</i> the first men to the rank of intermediaries between the earth and the Supreme God" (<i>Le sentiment religieux en Grèce</i>, 1869, p. 222). If it be implied that never before were men conceived as beneficent daimons, the assumption is illicit. Even if that doctrine came as a novelty to some recipients, the greater antiquity of the notion is anthropologically certain.</p>
+ <p><a name="fn_193"></a><a href="pch16.htm#fr_193">51:1</a> Compare the universal worship of ancestors in China, and the Roman worship of Lares and Manes.</p>
+ <p><a name="fn_194"></a><a href="pch16.htm#fr_194">51:2</a> "Dem ältesten glauben [of the Greeks] ist die Anschauung, dass die Götter sterben, ganz geläufig (E. Meyer, <i>Geschichte des Alterthums</i>, ii, 100).</p>
+ <p><a name="fn_195"></a><a href="pch16.htm#fr_195">51:3</a> Muir, <i>Sanskrit Texts</i>, 3rd ed. v, 14-15, 266, 316, etc.</p>
+ <p><a name="fn_196"></a><a href="pch16.htm#fr_196">51:4</a> "Offspring of life." The name is otherwise read <i>Sitnapishtim</i>, and again <i>Shamsnapishta</i>, "The sun of life, and <i>um napishtum</i>, "the day of life."</p>
+ <p><a name="fn_197"></a><a href="pch16.htm#fr_197">51:5</a> Jastrow, p. 505.</p>
+ <p><a name="fn_198"></a><a href="pch16.htm#fr_198">51:6</a> See <i>Christianity and Mythology</i>, 2nd ed. pp. 99-102, 107-8, 306, 309, 325, 370. Cp. Jer. ii 27, where the Jews are described as calling their idols their ancestors. And see Winckler <i>Geschichte Israels</i>, ii, 20-49, 56-60, 70, 75-77, as to the originally divine status of Abraham and Isaac, Jacob and Joseph.</p>
+ <p><a name="fn_199"></a><a href="pch16.htm#fr_199">51:7</a> Cp. Sayce, Hibbert Lectures, pp. 371-391; <i>Ancient Empires of the East</i>, pp. 157-8; <i>Die Griechische Culte and Mythen</i>, 1887, pp. 165, 577, 587, 589, 593; F. A. Paley, <i>The Epics of Hesiod</i>, 1883, Introd. pp. xvi-xvii; W. Christ, <i>Gesch. der griech. Literatur</i>, 1889, p. 94 and notes; E. Meyer, <i>Geschichte de Alterthums</i>, ii, § 117.</p>
+ <p><a name="fn_200"></a><a href="pch16.htm#fr_200">52:1</a> <i>Religion of the Semites</i>, p. 88. Cp. Frazer, <i>G. B.</i> i, 129-130, etc.; Tylor, <i>Primitive Culture</i>, 3rd ed. i, 428-436; Spencer, <i>Principles of Sociology</i>, vol. i, chs. viii, xvi.</p>
+ <p><a name="fn_201"></a><a href="pch16.htm#fr_201">52:2</a> Cp. Girard, <i>Le Sentiment religieux en Grèce, dHomère à Éschyle</i>, 1869, pp. 227-240.</p>
+ <p><a name="fn_202"></a><a href="pch16.htm#fr_202">52:3</a> There is, however, abundant evidence as to fear of ancestral spirits among savage,;.</p>
+ <p><a name="fn_203"></a><a href="pch16.htm#fr_203">52:4</a> See <i>Christianity and Mythology</i>, pp. 21, 28 <i>sq</i>., 32 <i>sq</i>., 68, 79 <i>sq</i>., 107. 121-2, 126, 136, and Part III, <i>passim</i>.</p>
+ <p><a name="fn_204"></a><a href="pch16.htm#fr_204">53:1</a> Lang, <i>Myth, Ritual, and Religion</i>, 2nd. ed. ii. 146, citing Lefébure, <i>Osiris</i>, p. 129.</p>
+ <p><a name="fn_205"></a><a href="pch16.htm#fr_205">53:2</a> Spencer, <i>Principles of Sociology</i>, vol. i, ch. xxxii, on plant-worship; Muir, <i>Sanskrit Texts</i>, v, sect. xvi. But cp. Lang, as last cited, ii, 242. Latterly, Miss Harrison has convincingly shown that Dionysos is primarily a beer-God, four of his most obscure epithets being soluble as names of kinds of grain from which beer is made. The wine-idea is later. <i>Proleg. to Greek Relig.</i>, 2nd. ed. pp. 413-425.</p>
+ <p><a name="fn_206"></a><a href="pch16.htm#fr_206">53:3</a> Le Page Renouf, Hibbert Lectures, pref. p. ix, 2nd ed.</p>
+ <p><a name="fn_207"></a><a href="pch16.htm#fr_207">53:4</a> Selden, <i>De Diis Syris</i>, Syntag. ii c. 7. Cp. Preller, <i>Römishe Mythologie</i>, pp. 382-5 as to the Phnician connections of the cult.</p>
+ <p><a name="fn_208"></a><a href="pch16.htm#fr_208">53:5</a> <i>Evolution of the Aryan</i>Eng. trans. of <i>Vorgeschichte der Europäer</i>p. 38.</p>
+ <p><a name="fn_209"></a><a href="pch16.htm#fr_209">53:6</a> Von Ihering (p. 36) has a doctrine, inconsistent with his general principles of racial determination (pp, 70-73), that early Aryans were devoid of all save conjugal family and that (<i>teste</i> the Fifth Commandment) Semites were particularly filial (p. 34). The latter view is no doubt broadly true; but Roman law is tolerably strong on the <i>patria potestas</i>, and rebellions of sons against fathers have always been familiar in the Semitic <a name="page_54"><font size="1" color="green">p. 54</font></a> States, despite the standing precept. On the other hand, female infanticide, which Von Ihering seems to hold specially Aryan, was prevalent among the Arabs before Mohammed. The myth of the dethronement of Uranus, again, which Von Ihering cites against the Aryans (p. 33), is probably Semitic in origin. Finally, it is clear that the highly filial Chinese originally sacrificed abundantly at their parents graves. Was <i>that</i> from love or from fear?</p>
+ <p><a name="fn_210"></a><a href="pch16.htm#fr_210">54:1</a> <i>La Cité Antique</i>, pp. 40-41 (éd. Sième).</p>
+ <p><a name="fn_211"></a><a href="pch16.htm#fr_211">54:2</a> Fustel de Coulanges of course recognised that there were such nomads (pp. 62, 66), though Von Ihering (p. 47) seems to suppose that he did not.</p>
+ <p><a name="fn_212"></a><a href="pch16.htm#fr_212">54:3</a> This is not asserted as an established fact.</p>
+ <p><a name="fn_213"></a><a href="pch16.htm#fr_213">54:4</a> Refs. in Fustel de Coulanges, p. 37.</p>
+ <p></p><hr>
+ <center>
+ <a href="pch17.htm">Next: § 13. The Authoritarian Element a Mark of Religion</a></center>
+ </body>

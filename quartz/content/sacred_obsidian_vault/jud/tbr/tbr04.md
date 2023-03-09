@@ -1,0 +1,31 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Judaism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="tbr03.htm">Previous</a> 
+ <a href="tbr05.htm">Next</a> 
+ </center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Tractate Berakoth</i>, by , by A. Lukyn Williams, [1921], at sacred-texts.com</font></p><hr>  <h3 align="center">2. ITS RELATION TO THE TEACHING OF THE NEW TESTAMENT</h3>  
+ <p>The value of the Mishna then is to be found chiefly in two directions. It throws light upon the history of Judaism as it is to-day, presenting a very definite advance upon the religion of the O.<i>T</i>.—whether for good or for evil we need not now discuss—and it also helps us to understand the environment in which our Lord and His disciples, throughout the first century, lived and taught. True, it does not supply information about the whole of that environment. Other influences—very strong and very different (<i>e.g.</i> reactionary Apocalyptic teaching and the pressure of heathenism)—were also at work. Neither can its information about the Judaism of the first century be always accepted at its face value. Much had happened to the Jews between, say, 50 and 200 A.D.</p>  
+ <p><a name="page_xii"><font size="1" color="GREEN">p. xii</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> The city and the temple, the priests and the Sadducees, had gone, and with them also the ordinary life of the provincial towns and the villages. It cannot but be that writings, composed in their present form not earlier than the very end of the second century, by persons who knew the old times only by hearsay, contain many details which do not correspond to the facts. In respect of age therefore it is <i>primâ facie</i> probable that when the Mishna differs from authorities so much earlier, as Josephus and the N.<i>T</i>., these are more accurate than that. Unfortunately however Josephus was biased by his desire to please his Roman masters, and it is asserted that the writers of the N.<i>T</i>. were biased by their opposition to Judaism. It is not easy to prove this latter assertion, but it must not be altogether set aside by genuine lovers of truth. The Christian student welcomes every inquiry. <a name="fr_0"></a><a href="#fn_0"><font size="1">1</font></a></p>  
+ <p>Taking then the Mishna as we find it, and for our immediate purpose we may add the Tosephta, what light is thrown by this treatise of <i>Berakoth</i> upon the religion of the Jews in the first century, and upon the meaning of facts or phrases which are to be found in the N.<i>T</i>.?</p>  
+ <p>First, the N.<i>T</i>. representation in general of the Jewish religion of the day is abundantly confirmed. It is a legal religion. Every detail of life, often considered of no importance in these days, has its</p>  
+ <p>
+ </p>  
+ <p><a name="page_xiii"><font size="1" color="GREEN">p. xiii</font></a></p>  
+ <p>own regulation which must be observed. <i>Berakoth</i> implies this throughout.</p>  
+ <p>Secondly, the religion underlying <i>Berakoth</i> is not merely formal. Both Mishna and Tosephta insist strongly on the truth that the mind and heart must be occupied with religion (see below, pp. <a href="tbr14.htm#page_14">14</a> <i>sq</i>., <a href="tbr32.htm#page_35">35</a>, <a href="tbr33.htm#page_37">37</a> <i>sq</i>., <a href="tbr60.htm#page_85">85</a>). At first sight this would appear to be contrary to the representation of Judaism in the N.<i>T</i>. There is much in the Gospels against hypocrisy, as though Judaism insisted on action only, disregarding the inner life. But such is not St. Paul's record of his own experience, nor what we may gather from the little we know of Zacharias and Elisabeth, Simeon and Anna, Nicodemus and Joseph of Arimathæa, or indeed from our information about the antecedent and character of the Twelve Apostles. There must have been much devout and pre—existing earnestness to supply the <i>point d’appui</i> necessary for the effect of our Lord's teaching. The Judaism of His time was indeed imperfect, often very self—satisfied, often very ignorant of the true meaning of Law and Prophets and Holy Writings, but, taking it as a whole, it was concerned not with externals only, but also with inner realities. Hypocrites in the worst sense of the word even the bulk of the Pharisees were not—superficial and shallow they often were. For their religion was poor indeed compared with the spiritual wealth which the Lord Jesus came to impart, and has imparted in Christianity.</p>  
+ <p><a name="page_xiv"><font size="1" color="GREEN">p. xiv</font></a></p>  
+ <p>Thirdly, <i>Berakoth</i> fully confirms the N.<i>T</i>. methods of using the Old Testament. The logical and contextual meaning of a passage is often of comparatively little importance. If the phraseology neatly describes a truth—however far that truth may have been from the mind of the Old Testament—it may fairly be used to strengthen the argument, and may be quoted as the utterance, the Divine utterance, of Scripture in favour of it. Examples may be found on almost every one of the following pages. See, for example, pp. <a href="tbr14.htm#page_13">13</a> <i>sq</i>., <a href="tbr60.htm#page_85">85</a>, <a href="tbr63.htm#page_88">88</a>, <a href="tbr64.htm#page_90">90</a>.</p>  
+ <p>Fourthly, several terms and phrases in the N.<i>T</i>. receive illumination from <i>Berakoth</i>, <i>e.g.</i> pp. <a href="tbr38.htm#page_45">45</a>, <a href="tbr40.htm#page_50">50</a>, <a href="tbr47.htm#page_66">66</a>, <a href="tbr62.htm#page_86">86</a>.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_0"></a><a href="tbr04.htm#fr_0">xii:1</a> On the general subject of the trustworthiness of the links in the traditions see Bacher, <i>Tradition u. Tradenten</i>, 1914.</p>
+ <p></p><hr>
+ <center>
+ <a href="tbr05.htm">Next: 3. The Relation of the Mishna and the Tosephta</a></center>
+ </body>

@@ -1,0 +1,41 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Egypt</a> 
+ <a href="../ehh.htm">EHH Index</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ehh24.htm">Previous</a> 
+ <a href="ehh26.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <p><a name="page_182"><font size="1" color="GREEN">p. 182</font></a></p>
+ <h1 align="CENTER">CHAPTER XIII.</h1>
+ <h3 align="CENTER">NINTH DIVISION OF THE TUAT.</h3>
+ <h3 align="CENTER">II. KINGDOM OF TEMU-KHEPERA-RA ACCORDING TO THE BOOK OF GATES.</h3>
+ <p>THE NINTH, TENTH and ELEVENTH DIVISIONS of the BOOK OF GATES contain series of pictures and texts which are very hard to explain satisfactorily, and the difficulty is further increased by the fact that only one copy of them is known, i.e., that on the sarcophagus of Seti I. It is quite certain that they cannot refer to the Kingdom of Osiris, and we are driven to conclude that they are intended to illustrate and describe the region of AKERT, which, as has already been said, formed the Tuat to which the worshippers of the Sun-god of Heliopolis relegated the spirits of their dead. The FIRST DIVISION of this remarkable region, i.e., the NINTH in the BOOK OF GATES, is entered by the Gate called AAT-SHEFSHEFT, which is guarded by the monster serpent AB-TA; a company of gods keep watch outside, and the corridor is swept by flames of fire, and a warder in mummied form stands on guard at each end of it.</p>
+ <p>When AFU-Ra has passed through, and the Gate is closed, the gods outside set up a wail, for they must abide in darkness until he re-appears. So soon as the god has entered the DIVISION four gods of the</p>
+ <p><a name="page_183"><font size="1" color="GREEN">p. 183</font></a></p>
+ <p><font size="-2" color="GREEN">[paragraph continues]</font> Tuat appear and take hold of the tow-line, but they cannot advance until a path is cleared for them. The obstacles in their way take the forms of the huge serpent APEP, and a great crocodile, the tail of which is in the form of a serpent's head and neck; the name of the latter monster is given both as SESHSESH and SESSI (vol. ii., pp. 242, 244). These have taken up their positions at the end of the DIVISION, in that portion of the Tuat which is not very far from the place of sunrise, and a company of beings appear on behalf of AFU-RA, and proceed to remove the monsters by means of words of power and magical ceremonies.</p>
+ <p>The company consists of six men, four apes, and four goddesses; in front of these are three men armed with harpoons, and grasping a rope, which passes over the prostrate body and head of the god AAI, its end being held fast in his two hands. AAI has on his head a small disk, which is set between two objects that resemble the ears of an ass, and these suggest that the figure is intended to represent a form of the Sun-god. The ass is well known as a type of the Sun-god, and "Eater of the Ass" is equally well known as a name for SET or APEP. In an illustration from the Book of the Dead (Chapter XL.; see above, p. 113), the "Eater of the Ass" is seen biting into the back of an ass, which is being delivered by the scribe Nekht in his character of Osiris. That AAI is a solar being, and that he opposes APEP on behalf of Ra, is obvious. It seems, however, that he is in need of the help of the men with harpoons, and of</p>
+ <p><a name="page_184"><font size="1" color="GREEN">p. 184</font></a></p>
+ <p>their companions behind them, each of whom holds the ends of a pole or rope (of a net), which is bent in the shape of a bow over his or her head. The men are called HERU-METU-HEKAIU, i.e., "those who are over the words (which have) magical power"; the apes are called SAIU, i.e., producers of magical effects by making knots in ropes, over which they whisper incantations; and the women are called SAIT, and work the same kind of magic as the apes. The object which each member of these three groups holds with both hands above his, or her, head is probably a net and, as M. Lefébure has pointed out, it is actually so represented in the tomb of Rameses VI. (?). In the Babylonian legend of the fight between Marduk and Tiamat, the great she-monster of the deep, the god is made to provide himself with a net with which to entangle her feet. In the Book of the Dead (Chapter cliii. B.) we read of the net ANQET, and in the vignette we see three apes working it, and securing the fish which are caught inside it. As Apep was a monster of the deep, to make use of nets in his capture was a wise decision on the part of the friends of AFU-RA.</p>
+ <p> </p>
+ <p align="CENTER"><a name="img_18400"></a>
+ <a href="img/18400.jpg"><img src="tn/generic.jpg"><br><font size="-3">Click to view</font></a><br>
+ <font face="Times Roman,Times New Roman" size="1">The Apes working the net</font><font face="Times Roman,Times New Roman">.</font></p>
+ <p> </p>
+ <p>Having taken up their positions for attacking Apep the men with the harpoons work the rope which is attached to AM, the goddesses and the apes shake out</p>
+ <p><a name="page_185"><font size="1" color="GREEN">p. 185</font></a></p>
+ <p>their rope nets over their heads, and recite their spells, and the men who know the proper words of power shake out their nets and recite the formulae which shall have the effect of throwing APEP and SESSI into the state of stupefaction wherein it will be easy to slay them. The spells and words of power have their proper effect, the monsters are fascinated and slain, and the path of AFU-RA is clear.</p>
+ <p>On the right of the Boat of AFU-RA is the huge serpent KHEPRI, with a head and a pair of human legs at each end of his body; one head faces north (<i>or</i>, west), and the other south (<i>or</i>, east). Behind each head is a uraeus, and between the uraei stands "HORUS OF THE TUAT," wearing the crowns of the South and North (vol. ii., p. 257). A rope passes under KHEPRI, and on one side is hauled by Eight Powers (SEKHEMIU), and on the other by the "Souls of Ament," who are man-headed; by the "Followers of Thoth," who are ibis-headed; by the "Followers of Horus," who are hawk-headed; and by the "Followers of RA," who are ram-headed (vol. ii., pp. 255, 256, 258). It will be noted that the two pairs of legs of KHEPRI face in opposite ways, so that in whichever direction he moves one pair must walk backwards; the Eight Powers have overcome the resistance of the sixteen gods, and the face of Horus of the Tuat is towards the rising sun.</p>
+ <p>On the left of the path of AFU-RA we see a hawk-headed lion called HERU-AM-UAA, i.e., "Horus in the Boat," wearing the Crown of the South; on his back</p>
+ <p><a name="page_186"><font size="1" color="GREEN">p. 186</font></a></p>
+ <p>stands the two-headed god HORUS-SET (vol. ii., p. 247), whose faces typify Day and Night, and Light and Darkness, and the Sun-gods of the South and North. Above the hind-quarters of the lion is the head of the god ANA (?), wearing the Crown of the South; on the one side we have four gods of the South assisting in the raising of a column surmounted by the Crown of the South, and on the other four gods of the North assisting in the raising of a column surmounted by the Crown of the North. These ceremonies appear to have some connexion with the magical rites which were performed in Egypt in primitive times in the making ready of the crowns for the Sun-god to wear on his rising. Beyond these gods are: 1. The serpent SHEMTI, with four heads at each end of his body, and his warder APU. 2. The serpent BATA, with a head at each end of his body. 3. The serpent TEPI, with four human heads and bodies at each end of his body, and his warder ABETH. These are faced by two gods who are about to attack these serpents with nets, and who assist Horus by reciting words of power for him.</p>
+ <p></p><hr>
+ <center>
+ <a href="ehh26.htm">Next: Tenth Division of the Tuat. II. Kingdom of Temu-Khepera-Ra According to the Book of Gates</a></center>
+ </body>

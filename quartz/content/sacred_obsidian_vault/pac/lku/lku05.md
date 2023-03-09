@@ -1,0 +1,28 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Pacific</a> 
+ <a href="index.htm">Index</a> 
+ <a href="lku04.htm">Previous</a> 
+ <a href="lku06.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="center">THE FOURTH ERA.</h3>  <h4 align="center">FIRST VERSE.</h4>  
+ <p>Established in the dawn of Laa's light<br> The Ape aumoa with faintest strife<br> Envied the sea that washed the land,<br> As it crept up and yet crept down<br> And brought forth creeping families<br> That crept on their backs and crept on their front,<br> With pulses that beat in front and rounding backs,<br> With faces in front and claws to feel<br> Of darkness, of darkness,<br> For Kaneaka Papanopano is born (dawn).<br> So Popanopano the man<br> And Polalowehi his wife, <a name="page_16"><font size="1" color="GREEN">p. 16</font></a><br> Man was born to increase--<br> To increase in the night by the thousands.<br> At this age there is a lull--<br> At this age take your children to the beach.<br> Children play at heaping sands.<br> They are the children born of night.<br> Night was born.</p>  <h4 align="center">SECOND VERSE.</h4>  
+ <p>Night was born of great delight,<br> Night was rolled for the pleasure of gods,<br> Night gave birth to the split-back turtle.<br> Watch in the night for the land turtle.<br> Night gave birth to the brown lobster,<br> The night of commotion for the <a href="errata.htm#0">Alii (?)</a> lobster,<br> The birth night of the lazy monster<br> Was a wet night for the rolling monster.<br> Night gave birth to clinging beings,<br> And Night loudly called for roughness.<br> Night gave birth to wailing<br> A night of drawback to oblivion,<br> Night gave birth to high noses,<br> Night dug deep for jelly fish,<br> Night gave birth to slush,<br> So the night must wait for motion.</p>  <h4 align="center">THIRD VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The earth was born and lived by the sea;<br> Guarded by the Kuhonua that grew in land (a shrub).<br> A night of flight by noises<br> Through a channel; the la-i is food, and creeps.</p>  <h4 align="center">FOURTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Wili was born and lived in the sea;<br> Guarded by the Wiliwili that grew on land (tiger's claws tree). <a name="page_17"><font size="1" color="GREEN">p. 17</font></a><br> A night of flight by noises<br> Through a channel; la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">FIFTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Aio was born and lived in the sea;<br> Guarded by the Naio that grew in the forest (mock sandalwood).<br> A night of flight by noises<br> Through a channel; la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">SIXTH VERSE.</h4>  
+ <p>Man was created by Waiololi, woman by Waiolola,<br> The Okea was born and lived in the sea;<br> Guarded by the Ahakea that grew in the forest.<br> A night of flight by noises<br> Through a channel; the la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">SEVENTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Wawa was born and lived in the sea;<br> Guarded by the Wanawana that lived in the forest.<br> A night of flight by noises<br> Through a channel, la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">EIGHTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Nene was born and lived in the sea (geese);<br> Guarded by the Manene that lived in the forest (weed).<br> A night of flight by noises<br> Through a channel; la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  
+ <p><a name="page_18"><font size="1" color="GREEN">p. 18</font></a></p>  <h4 align="center">NINTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Liko was born and lived in the sea;<br> Guarded by the Piko that grew in the forest.<br> A night of flight by noises<br> Through a channel; the la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">TENTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Okeope was born and lived in the sea;<br> Guarded by the Oheohe that grew in the forest (bamboo).<br> A night of flight by noises<br> Through a channel; la-i is food and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">ELEVENTH VERSE.</h4>  
+ <p>Man by Waiololi, woman by Waiolola,<br> The Nananana was born and lived in the sea (spider);<br> Guarded by the Nonanona that lived in the forest (ants).<br> A night of flight by noises<br> Through a channel; la-i is food, and creeps;<br> So the gods may enter, but not man.</p>  <h4 align="center">TWELFTH VERSE.</h4>  
+ <p>The dancing motion till creeping crept<br> With long and waving lengthy tail,<br> And with humpy lumpy lashes sweeps<br> And trails along in filthy places.<br> These live on dirt and mire;<br> Eat and rest, eat and throw up;<br> They exist on filth, are low-born beings,<br> Till to earth they become a burden<br> Of mud that's made,<br> Made unsafe, until one reels<br> And is unsteady.,<br> Go thou to the land of creepers,<br> Where families of creepers were born in one night.<br>                          ’Tis night.</p>  
+ <p></p><hr>
+ <center>
+ <a href="lku06.htm">Next: The Fifth Era</a></center>
+ </body>

@@ -1,0 +1,27 @@
+<body>
+ <center>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Cherokee</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sfoc06.htm">Previous</a> 
+ <a href="sfoc08.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h2 align="CENTER">THE INÂLI MANUSCRIPT.</h2>
+ <p>In the course of further inquiries in regard to the whereabouts of other manuscripts of this kind we heard a great deal about Inâ'lï, or "Black Fox," who had died a few years before at an advanced age, and who was universally admitted to have been one of their most able men and the most prominent literary character among them, for from what has been said it must be sufficiently evident that the Cherokees have their native literature and literary men. Like those already mentioned, he was a full-blood Cherokee, speaking no English, and in the course of a long lifetime he had filled almost every</p>
+ <p><a name="page_315"><font size="1" color="GREEN">p. 315</font></a></p>
+ <p>position of honor among his people, including those of councilor, keeper of the townhouse records, Sunday-school leader, conjurer, officer in the Confederate service, and Methodist preacher, at last dying, as he was born, in the ancient faith of his forefathers.</p>
+ <p>On inquiring of his daughter she stated that her father had left a great many papers, most of which were still in her possession, and on receiving from the interpreter an explanation of our purpose she readily gave permission to examine and make selections from them on condition that the matter should be kept secret from outsiders. A day was appointed for visiting her, and on arriving we found her living in a comfortable log house, built by Inâ'lï himself, with her children and an ancient female relative, a decrepit old woman, with snow-white hair and vacant countenance. This was the oldest woman of the tribe, and though now so feeble and childish, she had been a veritable savage in her young days, having carried a scalp in the scalp dance in the Creek war 75 years before.</p>
+ <p>Having placed chairs for us in the shade Inâ'lï's daughter brought out a small box filled with papers of various kinds, both Cherokee and English. The work of examining these was a tedious business, as each paper had to be opened out and enough of it read to get the general drift of the contents, after which the several classes were arranged in separate piles. While in the midst of this work she brought out another box nearly as large as a small trunk, and on setting it down there was revealed to the astonished gaze such a mass of material as it had not seemed possible could exist in the entire tribe.</p>
+ <p>In addition to papers of the sort already mentioned there were a number of letters in English from various officials and religious organizations, and addressed to "Enola," to "Rev. Black Fox," and to "Black Fox, Esq," with a large number of war letters written to him by Cherokees who had enlisted in the Confederate service. These latter are all written in the Cherokee characters, in the usual gossipy style common among friends, and several of them contain important historic material in regard to the movements of the two armies in East Tennessee. Among other things was found his certificate as a Methodist preacher, dated in 1848. "Know all men by these presents that Black Fox (Cherokee) is hereby authorized to exercise his Gifts and Graces as a local preacher in M. E. Church South. "</p>
+ <p>There was found a manuscript book in Inâ'lï's handwriting containing the records of the old council of Wolftown, of which he had been secretary for several years down to the beginning of the war. This also contains some valuable materials.</p>
+ <p>There were also a number of miscellaneous books, papers, and pictures, together with various trinkets and a number of conjuring stones.</p>
+ <p><a name="page_316"><font size="1" color="GREEN">p. 316</font></a></p>
+ <p>In fact the box was a regular curiosity shop, and it was with a feeling akin to despair that we viewed the piles of manuscript which had to be waded through and classified. There was a day's hard work ahead, and it was already past noon; but the woman was not done yet, and after rummaging about inside the house for a while longer she appeared with another armful of papers, which she emptied on top of the others. This was the last straw; and finding it impossible to examine in detail such a mass of material we contented ourselves with picking out the sacred formulas and the two manuscript books containing the town-house records and scriptural quotations and departed.</p>
+ <p>The daughter of Black Fox agreed to fetch down the other papers in a few days for further examination at our leisure; and she kept her promise, bringing with her at the same time a number of additional formulas which she had not been able to obtain before. A large number of letters and other papers were selected from the miscellaneous lot, and these, with the others obtained from her, are now deposited also with the Bureau of Ethnology. Among other things found at this house were several beads of the old shell wampum, of whose use the Cherokees have now lost even the recollection. She knew only that they were very old and different from the common beads, but she prized them as talismans, and firmly refused to part with them.</p>
+ <p></p><hr>
+ <center>
+ <a href="sfoc08.htm">Next: Other Manuscripts</a></center>
+ </body>

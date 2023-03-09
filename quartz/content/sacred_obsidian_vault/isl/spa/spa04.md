@@ -1,0 +1,38 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Islam</a> 
+ <a href="index.htm">Index</a> 
+ <a href="spa03.htm">Previous</a> 
+ <a href="spa05.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002JTWQM0/internetsacredte">Buy this Book on Kindle</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"><br></a><i>Selections from the Poetry of the Afghans</i>, by H.G. Raverty, [1868], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_1"><font size="1" color="green">p. 1</font></a></p>  <h3 align="center">ÆABD-UR-RAḤMĀN.</h3>  
+ <p><span style="font-variant:small-caps;">Mullā Æabd-ur-Raḥmān</span> is one of the most popular, and probably the best known, of all the Af<u>gh</u>ān poets. His effusions are of a religious or moral character, and chiefly on the subject of divine love, being, like the poetical compositions of all Muḥammadan poets, tinged with the mysticisms of Ṣūfi-ism, already described in the Introductory Remarks; but there is a fiery energy in his style, and a natural simplicity, which will be vainly sought for amongst the more flowery and bombastic poetry of the Persians.</p>  
+ <p>Raḥmān belonged to the <u>Gh</u>orīah <u>Kh</u>el clan or sub-division, of the Mohmand tribe of the Af<u>gh</u>āns, and dwelt in the village of Hazār-<u>Kh</u>ānī, in the <i>tapah</i> or district of the Mohmands, one of the five divisions of the province of Pe<u>sh</u>āwar. He was a man of considerable learning, but lived the life of a Darwe<u>sh</u>, absorbed in religious contemplation, and separated from the world, with which, and with its people, he held no greater intercourse than necessity and the means of subsistence demanded. He is said to have been passionately fond of hearing religious songs, accompanied by some musical instrument, which the <u>Ch</u>astī sect of Muḥammadans <a name="fr_23"></a><a href="#fn_23"><font size="1">*</font></a> appears to have a great partiality for. After a time, when the gift of poesy was bestowed upon him, he became a strict recluse,</p>  
+ <p>
+ </p>  
+ <p><a name="page_2"><font size="1" color="green">p. 2</font></a></p>  
+ <p>and was generally found by his friends in tears. Indeed, he is said to have been in the habit of weeping so much, as in course of time to have produced wounds on both his cheeks. His strict retirement, however, gave opportunity to a number of envious Mullās to belie him; and they began to circulate reports to the effect, that Raḥmān had turned atheist or heretic, since he never left his dwelling, and had even given up worshipping at the mosque along with the congregation—a matter strictly enjoined on all orthodox Muḥammadans. At length, by the advice and assistance of some of the priesthood, more liberal and less bigoted than his enemies, he contrived to escape from their hands, by agreeing, for the future, to attend the place of public worship, and to pray and perform his other religious duties, along with the members of the congregation. He thus, whether agreeable to himself or not, was obliged in some measure to mix with the world; and this, doubtless, gave rise to the ode at page <a href="spa05.htm#page_29">29</a>, to which the reader is referred.</p>  
+ <p>Raḥmān appears to have been in the habit of giving the copies of his poems, as he composed. them, from time to time, to his particular friends, which they, unknown to each other, took care to collect and preserve, for the express purpose of making a collection of them after the author's death. This they accordingly carried out, and it was not until Raḥmān's decease that these facts became known. It then appeared also, that some of these pseudo friends had, to increase the bulk of their own collection of the poet's odes, mixed up a quantity of their own trashy compositions with Raḥmān's, and had added, or rather forged, his name to them in the last couplets. In this manner two of these collections of odes were made, and were styled Raḥmān's first and second. Fortunately for his reputation, these forgeries were discovered in time, by some of the dearest of the poet's friends, who recognised or remembered the particular poems of his composition;</p>  
+ <p><a name="page_3"><font size="1" color="green">p. 3</font></a></p>  
+ <p>and they accordingly rejected the chaff, retaining the wheat only, in the shape of his Dīwān, or alphabetical collection of odes, as it has come down to the present day. Still, considerable differences exist in many copies, some odes having a line more or a line less, whilst some again contain odes that are entirely wanting in others. This caused me considerable trouble when preparing several of them for insertion in my "Selections in the Af<u>gh</u>ān Language;" but it was attended with a proportionate degree of advantage, having altogether compared some sixty different copies of the poet's works, of various dates, some of which were written shortly after Raḥmān's death, when his friends had succeeded in collecting the poems in a single volume.</p>  
+ <p>By some accounts, the poet would appear to have been a co-temporary of the warrior-poet, <u>Kh</u>u<u>sh</u>ḥāl <u>Kh</u>ān; <a name="fr_24"></a><a href="#fn_24"><font size="1">*</font></a> and it has been stated, that on two or three occasions they held poetical disputations together. This, however, cannot be true; for it seems that although Raḥmān was living towards the latter part of that brave chieftain's life, yet he was a mere youth, and was, more correctly speaking, a cotemporary of Afẓal <u>Kh</u>ān's, the grandson and successor of <u>Kh</u>u<u>sh</u>ḥāl, and the author of that rare, excellent, and extensive Af<u>gh</u>ān history, entitled, "Tārī<u>kh</u>-i-Muraṣṣaæ," and other valuable works. A proof of the incorrectness of this statement is, that the tragical end of Gul <u>Kh</u>ān and Jamal <u>Kh</u>ān, which Raḥmān and the poet Ḥamīd also have devoted a long poem to, <a name="fr_25"></a><a href="#fn_25"><font size="1">†</font></a> took place in the year of the Hijrah 1123 (<span style="font-variant:small-caps;">a.d.</span> 1711), twenty-five years after the death of <u>Kh</u>u<u>sh</u>ḥāl. Another, and still stronger proof against the statement of poetical disputations having taken place between them, is the fact of Raḥmān's retired life, and his humble position, as compared with that of <u>Kh</u>u<u>sh</u>ḥāl, the chief of a powerful tribe, and as good a poet as himself.</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_4"><font size="1" color="green">p. 4</font></a></p>  
+ <p>Some descendants of Raḥmān, on his daughter's side, dwell at present in the little hamlet of Deh-i-Bahādur (the Hamlet of the Brave), in the Mohmand district; but the descendants on the side of his only son have long been extinct.</p>  
+ <p>The poet's tomb may still be seen in the graveyard of his native village.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_23"></a><a href="spa04.htm#fr_23">1:*</a> So called from a celebrated devotee named Muæīn-ud-Dīn, who dwelt at a place named <u>Ch</u>ast, in Arabia. The sect still exists in Af<u>gh</u>ānistān and the Panjāb.</p>
+ <p><a name="fn_24"></a><a href="spa04.htm#fr_24">3:*</a> See Memoir preceding his poems.</p>
+ <p><a name="fn_25"></a><a href="spa04.htm#fr_25">3:†</a> See Ḥamīd, Poem XLI. and note.</p>
+ <p></p><hr>
+ <center>
+ <a href="spa05.htm">Next: The Poems of Æabd-ur-Raḥmān</a></center>
+ </body>

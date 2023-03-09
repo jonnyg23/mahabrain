@@ -1,0 +1,30 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Sagas &amp; Legends</a> 
+ <a href="../index.htm">England</a> 
+ <a href="index.htm">Index</a> 
+ <a href="osc24.htm">Previous</a> 
+ <a href="osc26.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h3 align="CENTER">(22) HARVEST HOME--THE KERN BABY.</h3>
+ <p>Macrobius tells us that among the ancients the farmers, when they got in their harvest, were wont to feast with their servants who had laboured with them in tilling the ground. So in later centuries when Europe had, for the most part, become christianised, the Harvest Home was a real celebration, master and servant sat at the same table, and, when the feasting was over, they spent the remainder of the night in dancing and singing. Such a custom has obviously a natural origin in the gladness of having sown and reaped, and stored the corn in the granary; there is an end of anxiety about sun, and weather, and blight, and all the ills affecting him who is at the mercy of the heavens.</p>
+ <p>Not much is left to us of the old Harvest Home. Grain growing is nowadays part and parcel of commerce; and railways and steamships have turned the channel of its romance from one of poetry into science. In England the farmer is as glad as the Roman, or the Hebrew of old, to gather in his crops under a benevolent sky, but he feels that the Harvest Home belongs to another age, and so the church has taken the festival out of his hands. The modern Harvest Thanksgiving service is about all that is left to us of one of the most natural and simple of customs--one belonging to no nation alone, but belonging to man as man.</p>
+ <p>In a few places, however, there are remnants of the old festival still left, and among others Whalton still holds the chief place. Here they still make and display the Kern Baby. A photograph of a recent baby is given in Sir Benjamin Stone's Pictures. Kern, or Cheorn, is said to come from the Icelandic Kirna--the feast of harvest home, so called because a churnful of cream formed an important part of the entertainment. Thus Scott in Marmion says:--</p>
+ <p>His rustic Kirn's loud revelry.</p>
+ <p>The Kern baby is an image dressed up with corn and carried before the reapers to the harvest home. This derivation is rather fanciful, and the most obvious explanation is that Kern is a corruption of corn. Hutchinson in his History of Northumberland is of this opinion.</p>
+ <p>"An old woman, who in a case of this nature is respectable authority, at a village in Northumberland informed me that, not half a century ago, they used everywhere to dress up something similar to the figure above described at the end of Harvest, which was called a Harvest Doll, or Kern Baby. This northern word is plainly a corruption of Corn Baby, or Image, as is the Kern Supper, which we shall presently consider, of Corn Supper. In Carew's Survey of Cornwall, p. 20 b, 'an ill kerned or saved Harvest' occurs."</p>
+ <p>Speaking of the custom itself, he adds:--"In some places, an Image apparelled in great finery, crowned with flowers, a sheaf of corn placed under her arm, a scycle in her hand, carried out of the village in the morning of the conclusive reaping day, with musick and much clamour of the reapers, into the field, where it stands fixed on a pole all day, and when the reaping is done, is brought home in like manner. This they call the Harvest Queen, and it represents the Roman Ceres."</p>
+ <p>In Kent the custom took another form, that of the Ivy Girl, "which is a figure composed of some of the best corn the field produces, and made as well as they can into a human shape; this is afterwards curiously dressed by the women, and adorned with paper trimmings, cut to resemble a cap, ruffles, handkerchief, etc. of the finest lace. It is brought home with the last load of corn from the field upon the waggon, and they suppose entitles them to a supper at the expense of their employers."</p>
+ <p>In Scotland, according to the Statistical Account (1797), the custom was to make a figure called the Maiden. In Longforgan, Perthshire, it was "till very lately, the custom to give what was called a Maiden Feast, upon the finishing of the Harvest; and to prepare for which, the last handful of Corn reaped in the field was called the Maiden. This was generally contrived to fall into the hands of one of the finest girls in the field, was dressed up with ribands, and brought home in triumph with the music of fiddles or bagpipes. A good dinner was given to the whole band, and the evening spent in joviality and dancing, while the fortunate lass who took the Maiden was the Queen of the Feast; after which this handful of Corn was dressed out generally in the form of a Cross, and hung up with the date of the year, in some conspicuous part of the house. This custom is now entirely done away, and in its room each shearer is given 6d, and a loaf of bread. However, some farmers, when all their Corns are brought in, give their servants a dinner and a jovial evening, by way of Harvest Home."</p>
+ <p>The tendencies of the Protestant Reformation were so distinctly averse to images of any description that we must look to the quarrels of religious leaders for the cause of the decay in Harvest Festivals. So far back as 1602 Newton, in his Tryall of a Man's Owne Selfe, when speaking of breaches of the Second Commandment, says:--"the adorning with garlands, or presenting unto any image of any Saint, whom thou has made speciall choise of to be thy patron and advocate, the firstlings of thy increase, as CORNE and GRAINE, and other oblations."</p>
+ <p>Puritanism, and art, and poetry, do not dwell together.</p>
+ <p></p><hr>
+ <center>
+ <a href="osc26.htm">Next: (23) Halloween</a></center>
+ </body>

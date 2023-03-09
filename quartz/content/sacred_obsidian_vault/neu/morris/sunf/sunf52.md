@@ -1,0 +1,30 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Legends and Sagas</a> 
+ <a href="../index.htm">William Morris</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sunf51.htm">Previous</a> 
+ <a href="sunf53.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Sundering Flood</i>, by William Morris, [1897], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_f50"></a></p>  
+ <p align="center">Chapter L. The Red Lad Speaks Privily with Sir Godrick</p>  
+ <p>This befel in April, and toward the latter days of it Osberne came before Sir Godrick and would talk with him apart, and Sir Godrick received him with all kindness, and spake to him privily, and asked him what he would. Said Osberne: "Lord and dear friend, thou art now become a mighty lord far greater than most kings. So busy have our two lives been with deeds that might not be set aside, that now for a long time we two have had but little converse together, such as friends desire. Yet nevertheless through it all I have felt thy love unto me, as mine unto thee, wherefore this word that I must say irks me sorely, to wit that now at last we must presently part."</p>  
+ <p>Said Sir Godrick: "If I am become a mighty ruler, thou hast become a warrior such that I well think the worlds holds none other so mighty; and true it is that I love thee no worse for all the hard and troublous days. And hard and troublous have they been forsooth; so that oft have I bethought me of that old man the king of the kine, and his welcome and his bidding, in the wide green valley by the river whereby we passed when we were wending to Longshaw that first time, though well I wot that earth has no such refuge for me. I say thou art great, and I love thee; wherefore thou hast a right to make thy choice, and least of all would I balk thee in thy desire. Belike we may meet again. Now wilt thou tell me what thou wilt do?" Said Osberne: "With a good will. For this is true, lord, that having been now five years amongst all sorts of folk, and some of them being such as might tell me some tidings of what I seek, I have had no tidings, and now needs must I say that lost is lost. But first, before I give all up, I will go to Longshaw and abide there, and hang about the Wood for one month, to give me one last chance; and then if nought befal, I shall ride straight to my folk in the Dale beside the Sundering Flood, and there shall I live and die in such content as I may. And I do thee to wit, my friend, that the picture of the grey bents and the long houses, and the sheep and beasts going to and fro, and the few folk of the stead, and the hall within its shining black timbers, all this comes before me and softens my heart. For hast thou not noted how bitter and surly I have grown in these latter days?"</p>  
+ <p>"I have seen thee sad," said Sir Godrick.</p>  
+ <p>"Nay," said Osberne, "it is worse than that; but let it be. Well now I shall tell thee another thing that hath got hold of me, and thou wilt think it wild folly belike. But this it is: When I am in my own Dale again, then the first morning when I arise I shall hie me straight to that old trysting-place, and look across the Sundering Flood; and then it may be that a miracle of God will betide, and that I shall see my maiden there in her old place, and then shall we be no more utterly disunited, as though each for each we were neither of us in the world."</p>  
+ <p>Said Sir Godrick: "This is a hope of no great things, nor is it like to come about. Were it well for this to leave thy fellows and thy friends  and all the fame of thine that shall be?"</p>  
+ <p>Osberne laughed. "Ah yes," he said, "some deal I know it now, that fame; when we draw together before the foemen, and our men cry out, 'The Red Lad! the Red Lad!' in no faltering voice, and even therewith the foeman's ranks quaver, as the trees of the wood when the wind comes up from the ground amongst them; and then I ride forward with Boardcleaver in my fist, and the arrows fly away about me for fear, and the array opens before me, and we plunge in and find nought there, and the rout goes down the green meadows. Yea, so it is, and many deem it fair. But then comes the quiet of the night, and my comrades are as though they were dead, and my praisers are voiceless, and I am alone; and then meseems it is I that have been overthrown and thwarted, and not thine enemies and mine, my friend. Nay, let me go back to my folk, and the land that I know and that endures before me when others have faded out. There will I abide whatso may come to me." Then he said: "Moreover there is this last month at Longshaw; who knows what may there betide? I shall keep my eyes and ears open I promise thee."</p>  
+ <p>"Ah!" said Sir Godrick, "but beware, Red Lad, beware! Thou knowest how much hatred thou hast drawn upon thee for thy dealings with the rascaile of the Wood. Be sure that traps will be laid for thee, and look to it that thou walk not into one! And now I will say to thee farewell! It may be many a long day ere I see thy face again; and yet methinks I shall. And now I tell thee, that hitherto I have had more than enough gain out of thee, and scarce enough of joy. Maybe in days to come it shall be otherwise."</p>  
+ <p>So they kissed and departed each from each. And Osberne made no farewells to anyone else, and said that he was for Longshaw, and should abide there a month or so. And thus he rode his ways.</p>  
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="sunf53.htm">Next: Chapter LI. Osberne is Beguiled by Felons</a></center>
+ </div>
+ </center></body>

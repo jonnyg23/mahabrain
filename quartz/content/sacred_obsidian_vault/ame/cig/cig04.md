@@ -1,0 +1,37 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Americana</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cig03.htm">Previous</a> 
+ <a href="cig05.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Coffee in the Gourd</i>, ed. J. Frank Dobie [1923], at sacred-texts.com</font></p><hr>  <h3 align="center">TEXAS LEGENDS NUMBER FOR 1924</h3>  
+ <p>    The Texas Folk-Lore Society has decided to issue next year a volume made up altogether of Texas Legends. Already dozens of Texas legends are in hand. But there are hundreds untouched. There is no reader of this page that could not dig up one legend. Therefore, ye Texas folk-lorists, dig! We are bound to have one of the most interesting volumes ever conceived of--to borrow Bully Bottom's eloquence--by the tongue of a Texas man.</p>  
+ <p>    Of buried treasure stories alone there must be as many as there ever were Mexican inhabitants in Texas. Apparently, wherever Santa Anna marched, he buried wagon loads of silver; wherever burros trod, they staggered under aparejos of silver bullion destined to be buried in flight from Indians. There are more "lost mines" in Texas by far than there are known ones. Men have gone broke and committed suicide following the legendary directions to buried treasure. There are legends of cunning lobos, of wily and beautiful mustangs like the famous "Pacing White Stallion" or like some "man killer" horse such as Philip Ashton Rollins tells of in his excellent book, The Cowboy. There are legends of daring mavericks, glimpsed only by moonlight, that lived without water, of snow white deer with "mad stones" in their stomachs, of the</p>  
+ <p>                            "sly coyote trotting here and there<br>     And the little grey hawk hanging aloof in the air."</p>  
+ <p>There are legends of "lovers' leaps," of old fords, of caves, of springs, of trees and plants. There are legends of hermits and of haunted houses. The negroes still have their legendary stories and the Mexicans have theirs. Connected with the names of places and streams, many legends yet linger no doubt, as the astounding legend of the River Brazos, for instance. Surely there will be no dearth of material.</p>  
+ <p>    Scattered here and there through Texasana are legends. The Texas Legends number should gather these stray publishings together as well as legends that have never been written down. Whoever comes across a reference to a legend can materially contribute by sending it in. Follow three such references that may serve as models: Legend of the Brazos River, Davis, M.E.M., Under the Man-Fig, pp. 1-3; Mysterious Gold Mine of El Paso County, Hunter's Frontier Magazine, Vol. I, No. 6, pp. 177-179; Legend of Eagle Lake, Texas Pioneer Magazine (The American Sketch Book), Vol. VII, No. 2, pp. 99-102. It is likely that a great many legends have been printed from time to time in the country and city newspapers. Consult editors, question old-timers.</p>  
+ <p>    It is quite likely that there will never be another organized effort to gather into one place the legends of Texas. Now is the time to go folk-loring. One restriction, though, should be remembered: that no legend should be adorned, "doctored," or changed from its usual form. It should be written as it is usually told.</p>  
+ <p>    L. W. Payne, Jr., Professor of English in the University of Texas, was the first president of the Texas Folk-Lore Society and the chief contributor to the first Publications of the Society. He has lectured on "Texas Folk-Lore" over the state and thus has become widely known aside from his authorship of various textbooks.</p>  
+ <p>    Max Sylvius Handman is a native of Rumania, though he has been in America twenty years. He has studied in Germany and Chicago, where he later taught. He is at present Professor of Sociology in the University of Texas, having been here since 1917. During the War he was a member of the Staff of Experts of the American Commission to Negotiate Peace and also on the Committee on Public Information.</p>  
+ <p>    W. H. Thomas, a native of Texas, was one of the charter members of the Texas Folk-Lore Society, and is now serving his second term as President of the Society. In 1912 the Society published a monograph of his entitled "Some Current Folk-Songs, of the Negro." Mr. Thomas is Professor of English at the Agricultural and Mechanical College of Texas.</p>  
+ <p>    Victor J. Smith, a Texan also, while teaching in the Sul Ross State Normal College at Alpine, explored at large the Big Bend Country for Indian remains. At present he is doing graduate work in the University of Chicago.</p>  
+ <p>    J. R. Craddock is a son of a pioneer Texas cowman and was born to the cow country. What he writes is not hearsay. He is a good folk-lorist because he is a better cow puncher. His home is in the Spur country, on the Plains. At present he is attending the University of Texas.</p>  
+ <p>    W. P. Webb, another Texan, has long been an active worker in Texas folk-lore. He is Adjunct Professor of History in the University of Texas, his "field" being the Texas Rangers in particular and the West in general. For the present year he is on leave of absence doing graduate work in the University of Chicago.</p>  
+ <p>    A. W. Eddins contributed to the first number of the Publications of the Texas Folk-Lore society. He is teaching in the city schools of San Antonio and is now gathering Mexican folk-lore.</p>  
+ <p>    Dorothy Scarborough, though she is now instructing in English at Columbia University, is a native Texan. For a time she was Assistant Professor of English at Baylor University and has served as President of the Texas Folk-Lore Society. She is the author of three books, The Supernatural in Modern English Fiction, From a Southern Porch, and Humorous Ghost Stories. She is at present working on a book to be entitled Negro Folk-Songs From the South, one chapter of which is to be largely made up of the material used in her article herein printed.</p>  
+ <p>    Florence Johnson Scott, Vice-President of the Texas Folk-Lore Society, is interested in journalistic work. She lives at Rio Grande City, where she is collecting folk-lore at first hand.</p>  
+ <p>    Mary A. Sutherland, one of the pioneer women of Texas, is the author of The Story of Corpus Christi, a fascinating little book of local history, interspersed with legend and other local lore. Recently she contributed to the library of the Society a rather rare old volume entitled San Antonio de Bexar by William Corner. She is a prominent member of the Daughters of the Confederacy.</p>  
+ <p>   Julia Estill, though not of German descent, is a native of the Fredericksburg country about which she writes so intimately. She is a graduate of the University of Texas and is principal of the high school of Fredericksburg.</p>  
+ <p>    J. Frank Dobie, editor of the present volume, was born and reared on a ranch in the Texas border country, and although he is now an instructor in the University of Texas, he will always belong to the range.</p>  
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="cig05.htm">Next: One Evening As I Sat Courting, by L.W. Payne. Jr.</a></center>
+ </div>
+ </center></body>

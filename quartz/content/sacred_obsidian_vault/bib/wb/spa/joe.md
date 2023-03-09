@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Spanish Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> PALABRA de Jehová que fué á Joel hijo de Pethuel.</p> 
+ <p><a name="an_1:2">1:2</a> Oid esto, viejos, y escuchad, todos los moradores de la tierra. ¿Ha acontecido esto en vuestros días, ó en los días de vuestros padres?</p> 
+ <p><a name="an_1:3">1:3</a> De esto contaréis á vuestros hijos, y vuestros hijos á sus hijos, y su hijos á la otra generación.</p> 
+ <p><a name="an_1:4">1:4</a> Lo que quedó de la oruga comió la langosta, y lo que quedó de la langosta comió el pulgón; y el revoltón comió lo que del pulgón había quedado.</p> 
+ <p><a name="an_1:5">1:5</a> Despertad, borrachos, y llorad; aullad todos los que bebéis vino, á causa del mosto, porque os es quitado de vuestra boca.</p> 
+ <p><a name="an_1:6">1:6</a> Porque gente subió á mi tierra, fuerte y sin número; sus dientes, dientes de león, y sus muelas, de león.</p> 
+ <p><a name="an_1:7">1:7</a> Asoló mi vid, y descortezó mi higuera: del todo la desnudó y derribó: sus ramas quedaron blancas.</p> 
+ <p><a name="an_1:8">1:8</a> Llora tú como moza vestida de saco por el marido de su juventud.</p> 
+ <p><a name="an_1:9">1:9</a> Pereció el presente y la libación de la casa de Jehová: los sacerdotes ministros de Jehová hicieron luto.</p> 
+ <p><a name="an_1:10">1:10</a> El campo fué destruído, enlutóse la tierra; porque el trigo fué destuído, se secó el mosto, perdióse el aceite.</p> 
+ <p><a name="an_1:11">1:11</a> Confundíos, labradores, aullad, viñeros, por el trigo y la cebada; porque se perdió la mies del campo.</p> 
+ <p><a name="an_1:12">1:12</a> Secóse la vid, y pereció la higuera, el granado también, la palma, y el manzano; secáronse todos los árboles del campo; por lo cual se secó el gozo de los hijos de los hombres.</p> 
+ <p><a name="an_1:13">1:13</a> Ceñíos y lamentad, sacerdotes; aullad, ministros del altar; venid, dormid en sacos, ministros de mi Dios: porque quitado es de la casa de vuestro Dios el presente y la libación.</p> 
+ <p><a name="an_1:14">1:14</a> Pregonad ayuno, llamad á congregación; congregad los ancianos y todos los moradores de la tierra en la casa de Jehová vuestro Dios, y clamad á Jehová.</p> 
+ <p><a name="an_1:15">1:15</a> Ay del día! porque cercano está el día de Jehová, y vendrá como destrucción por el Todopoderoso.</p> 
+ <p><a name="an_1:16">1:16</a> ¿No es quitado el mantenimiento de delante de nuestros ojos, la alegría y el placer de la casa de nuestro Dios?</p> 
+ <p><a name="an_1:17">1:17</a> El grano se pudrió debajo de sus terrones, los bastimentos fueron asolados, los alfolíes destruídos; porque se secó el trigo.</p> 
+ <p><a name="an_1:18">1:18</a> Cuánto gimieron las bestias! ­cuán turbados anduvieron los hatos de los bueyes, porque no tuvieron pastos! también fueron asolados los rebaños de las ovejas.</p> 
+ <p><a name="an_1:19">1:19</a> A ti, oh Jehová, clamaré: porque fuego consumió los pastos del desierto, y llama abrasó todos los árboles del campo.</p> 
+ <p><a name="an_1:20">1:20</a> Las bestias del campo bramarán también á ti; porque se secaron los arroyos de las aguas, y fuego consumió las praderías del desierto.</p> 
+ <p><a name="an_2:1">2:1</a> TOCAD trompeta en Sión, y pregondad en mi santo monte: tiemblen todos los moradores de la tierra; porque viene el día de Jehová, porque está cercano.</p> 
+ <p><a name="an_2:2">2:2</a> Día de tinieblas y de oscuridad, día de nube y de sombra, que sobre los montes se derrama como el alba: un pueblo grande y fuerte: nunca desde el siglo fué semejante, ni después de él será jamás en años de generación en generación.</p> 
+ <p><a name="an_2:3">2:3</a> Delante de él consumirá fuego, tras de él abrasará llama; como el huerto de Edén será la tierra delante de él, y detrás de él como desierto asolado; ni tampoco habrá quien de él escape.</p> 
+ <p><a name="an_2:4">2:4</a> Su parecer, como parecer de caballos; y como gente de á caballo correrán.</p> 
+ <p><a name="an_2:5">2:5</a> Como estruendo de carros saltarán sobre las cumbres de los montes; como sonido de llama de fuego que consume hojarascas, como fuerte pueblo aparejado para la batalla.</p> 
+ <p><a name="an_2:6">2:6</a> Delante de él temerán los pueblos, pondránse mustios todos los semblantes.</p> 
+ <p><a name="an_2:7">2:7</a> Como valientes correrán, como hombres de guerra subirán la muralla; y cada cual irá en sus caminos, y no torcerán sus sendas.</p> 
+ <p><a name="an_2:8">2:8</a> Ninguno apretará á su compañero, cada uno irá por su carrera; y aun cayendo sobre la espada no se herirán.</p> 
+ <p><a name="an_2:9">2:9</a> Irán por la ciudad, correrán por el muro, subirán por las casas, entrarán por las ventanas á manera de ladrones.</p> 
+ <p><a name="an_2:10">2:10</a> Delante de él temblará la tierra, se estremecerán los cielos: el sol y la luna se oscurecerán, y las estrellas retraerán su resplandor.</p> 
+ <p><a name="an_2:11">2:11</a> Y Jehová dará su voz delante de su ejército: porque muchos son sus reales y fuertes, que ponen en efecto su palabra: porque grande es el día de Jehová, y muy terrible; ¿y quién lo podrá sufrir?</p> 
+ <p><a name="an_2:12">2:12</a> Por eso pues ahora, dice Jehová, convertíos á mí con todo vuestro corazón, con ayuno y lloro y llanto.</p> 
+ <p><a name="an_2:13">2:13</a> Y lacerad vuestro corazón, y no vuestros vestidos; y convertíos á Jehová vuestro Dios; porque misericordioso es y clemente, tardo para la ira, y grande en misericordia, y que se arrepiente del castigo.</p> 
+ <p><a name="an_2:14">2:14</a> ¿Quién sabe si volverá, y se apiadará, y dejará bendición tras de él, presente y libación para Jehová Dios vuestro?</p> 
+ <p><a name="an_2:15">2:15</a> Tocad trompeta en Sión, pregonad ayuno, llamad á congregación.</p> 
+ <p><a name="an_2:16">2:16</a> Reunid el pueblo, santificad la reunión, juntad los viejos, congregad los niños y los que maman: salga de su cámara el novio, y de su tálamo la novia.</p> 
+ <p><a name="an_2:17">2:17</a> Entre la entrada y el altar, lloren los sacerdotes, ministros de Jehová, y digan: Perdona, oh Jehová, á tu pueblo, y no pongas en oprobio tu heredad, para que las gentes se enseñoreen de ella. ¿Por qué han de decir entre los pueblos: Dónde está su Dios?</p> 
+ <p><a name="an_2:18">2:18</a> Y Jehová celará su tierra, y perdonará su pueblo.</p> 
+ <p><a name="an_2:19">2:19</a> Y responderá Jehová, y dirá á su pueblo: He aquí yo os envío pan, y mosto, y aceite, y seréis saciados de ellos: y nunca más os pondré en oprobio entre las gentes.</p> 
+ <p><a name="an_2:20">2:20</a> Y haré alejar de vosotros al del aquilón, y echarélo en la tierra seca y desierta: su faz será hacia el mar oriental, y su fin al mar occidental, y exhalará su hedor; y subirá su pudrición, porque hizo grandes cosas.</p> 
+ <p><a name="an_2:21">2:21</a> Tierra, no temas; alégrate y gózate: porque Jehová ha de hacer grandes cosas.</p> 
+ <p><a name="an_2:22">2:22</a> Animales del campo, no temáis; porque los pastos del desierto reverdecerán, porque los árboles llevarán su fruto, la higuera y la vid darán sus frutos.</p> 
+ <p><a name="an_2:23">2:23</a> Vosotros también, hijos de Sión, alegraos y gozaos en Jehová vuestro Dios; porque os ha dado la primera lluvia arregladamente, y hará descender sobre vosotros lluvia temprana y tardía como al principio.</p> 
+ <p><a name="an_2:24">2:24</a> Y las eras se henchirán de trigo, y los lagares rebosarán de vino y aceite.</p> 
+ <p><a name="an_2:25">2:25</a> Y os restituiré los años que comió la oruga, la langosta, el pulgón, y el revoltón; mi grande ejército que envié contra vosotros.</p> 
+ <p><a name="an_2:26">2:26</a> Y comeréis hasta saciaros, y alabaréis el nombre de Jehová vuestro Dios, el cual hizo maravillas con vosotros: y nunca jamás será mi pueblo avergonzado.</p> 
+ <p><a name="an_2:27">2:27</a> Y conoceréis que en medio de Israel estoy yo, y que yo soy Jehová vuestro Dios, y no hay otro: y mi pueblo nunca jamás será avergonzado.</p> 
+ <p><a name="an_2:28">2:28</a> Y será que después de esto, derramaré mi Espíritu sobre toda carne, y profetizarán vuestros hijos y vuestras hijas; vuestros viejos soñarán sueños, y vuestros mancebos verán visiones.</p> 
+ <p><a name="an_2:29">2:29</a> Y aun también sobre los siervos y sobre las siervas derramaré mi Espíritu en aquellos días.</p> 
+ <p><a name="an_2:30">2:30</a> Y daré prodigios en el cielo y en la tierra, sangre, y fuego, y columnas de humo.</p> 
+ <p><a name="an_2:31">2:31</a> El sol se tornará en tinieblas, y la luna en sangre, antes que venga el día grande y espantoso de Jehová.</p> 
+ <p><a name="an_2:32">2:32</a> Y será que cualquiera que invocare el nombre de Jehová, será salvo: porque en el monte de Sión y en Jerusalem habrá salvación, como Jehová ha dicho, y en los que quedaren, á los cuales Jehová habrá llamado.</p> 
+ <p><a name="an_3:1">3:1</a> PORQUE he aquí que en aquellos días, y en aquel tiempo en que haré tornar la cautividad de Judá y de Jerusalem,</p> 
+ <p><a name="an_3:2">3:2</a> Juntaré todas las gentes, y harélas descender al valle de Josaphat, y allí entraré en juicio con ellos á causa de mi pueblo, y de Israel mi heredad, á los cuales esparcieron entre las naciones, y partieron mi tierra:</p> 
+ <p><a name="an_3:3">3:3</a> Y echaron suertes sobre mi pueblo, y á los niños dieron por una ramera, y vendieron las niñas por vino para beber.</p> 
+ <p><a name="an_3:4">3:4</a> Y también, ¿qué tengo yo con vosotras, Tiro y Sidón, y todos los términos de Palestina? ¿Queréis vengaros de mí? Y si de mí os vengáis, bien pronto haré yo recaer la paga sobre vuestra cabeza.</p> 
+ <p><a name="an_3:5">3:5</a> Porque habéis llevado mi plata y mi oro, y mis cosas preciosas y hermosas metisteis en vuestros templos:</p> 
+ <p><a name="an_3:6">3:6</a> Y vendisteis los hijos de Judá y los hijos de Jerusalem á los hijos de los Griegos, por alejarlos de sus términos.</p> 
+ <p><a name="an_3:7">3:7</a> He aquí los levantaré yo del lugar donde los vendisteis, y volveré vuestra paga sobre vuestra cabeza.</p> 
+ <p><a name="an_3:8">3:8</a> Y venderé vuestros hijos y vuestras hijas en la mano de los hijos de Judá, y ellos los venderán á los Sabeos, nación apartada; porque Jehová ha hablado.</p> 
+ <p><a name="an_3:9">3:9</a> Pregonad esto entre las gentes, proclamad guerra, despertad á los valientes, lléguense, vengan todos los hombres de guerra.</p> 
+ <p><a name="an_3:10">3:10</a> Haced espadas de vuestros azadones, lanzas de vuestras hoces; diga el flaco: Fuerte soy.</p> 
+ <p><a name="an_3:11">3:11</a> Juntaos y venid, gentes todas de alrededor, y congregaos: haz venir allí, oh Jehová, tus fuertes.</p> 
+ <p><a name="an_3:12">3:12</a> Las gentes se despierten, y suban al valle de Josaphat: porque allí me sentaré para juzgar todas las gentes de alrededor.</p> 
+ <p><a name="an_3:13">3:13</a> Echad la hoz, porque la mies está ya madura. Venid, descended; porque el lagar está lleno, rebosan las lagaretas: porque mucha es la maldad de ellos.</p> 
+ <p><a name="an_3:14">3:14</a> Muchos pueblos en el valle de la decisión: porque cercano está el día de Jehová en el valle de la decisión.</p> 
+ <p><a name="an_3:15">3:15</a> El sol y la luna se oscurecerán, y las estrellas retraerán su resplandor.</p> 
+ <p><a name="an_3:16">3:16</a> Y Jehová bramará desde Sión, y dará su voz desde Jerusalem, y temblarán los cielos y la tierra: mas Jehová será la esperanza de su pueblo, y la fortaleza de los hijos de Israel.</p> 
+ <p><a name="an_3:17">3:17</a> Y conoceréis que yo soy Jehová vuestro Dios, que habito en Sión, monte de mi santidad: y será Jerusalem santa, y extraños no pasarán más por ella.</p> 
+ <p><a name="an_3:18">3:18</a> Y será en aquel tiempo, que los montes destilarán mosto, y los collados fluirán leche, y por todos los arroyos de Judá correrán aguas: y saldrá una fuente de la casa de Jehová, y regará el valle de Sittim.</p> 
+ <p><a name="an_3:19">3:19</a> Egipto será destruído, y Edom será vuelto en asolado desierto, por la injuria hecha á los hijos de Judá: porque derramaron en su tierra la sangre inocente.</p> 
+ <p><a name="an_3:20">3:20</a> Mas Judá para siempre será habitada, y Jerusalem en generación y generación.</p> 
+ <p><a name="an_3:21">3:21</a> Y limpiaré la sangre de los que no limpié; y Jehová morará en Sión.</p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

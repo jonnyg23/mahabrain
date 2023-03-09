@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc113.htm">Previous</a> 
+ <a href="agjc115.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 111</h4> <i>
+ </i><p>Jesus teaches. A man requests him to compel his brother to deal justly. Jesus reveals the divine law, the power of truth and the universality of possessions. Relates the parable of the rich man and his abundant harvest.<br> <br> <b>1. </b>And Jesus taught the multitudes; and while he spoke a man stood forth and said,<br> <b>2. </b>Rabboni, hear my plea: My father died and left a large estate; my brother seized it all, and now refuses me my share.<br> <b>3. </b>I pray that you will bid him do the right, and give what is mine.<br> <b>4. </b>And Jesus said, I am not come to be a judge in such affairs; I am no henchman of the court.<br> <b>5. </b>God sent me not to force a man to do the right.<br> <b>6. </b>In every man there is a sense of right; but many men regard it not.<br> <b>7. </b>The fumes that rise from selfishness have formed a crust about their sense of right that veils their inner light, so that they cannot comprehend nor recognise the rights of other men.<br> <b>8. </b>This veil you cannot tear away by force of arms, and there is naught that can dissolve this crust but knowledge and love of God.<br> <b>9. </b>While men are in the mire, the skies seem far away; when men are on the mountain top, the skies are near, and they can almost touch the stars.<br> <b>10. </b>Then Jesus turned and to the twelve he said, Behold the many in the mire of carnal life!<br> <b>11. </b>The leaven of truth will change the miry clay to solid rock, and men can walk and find the path that leads up to the mountain top.<br> <b>12. </b>You cannot haste; but you can scatter forth this leaven with a generous hand.<br> <b>13. </b>When men have learned the truth that bears upon its face the law of right, then they will haste to every man his dues.<br> <b>14. </b>Then to the people Jesus said, Take heed, and covet not. The wealth of men does not consist in what they seem to have--in lands, in silver and in gold.<br> <b>15. </b>These things are only borrowed wealth. No man can corner up the gifts of God.<br> <b>16. </b>The things of nature are the things of God, and what is God's belongs to every man alike.<br> <b>17. </b>The wealth of soul lies in the purity of life, and in the wisdom that descends from heaven.<br> <b>18. </b>Behold, a rich man's ground brought forth abundantly; his barns were far too small to hold his grain, and to himself he said,<br> <b>19. </b>What shall I do? I must not give my grain away; I must not let it go to waste; and then he said,<br> <b>20. </b>This will I do; I will tear down these little barns and built up larger ones; there I will store away my grain and I will say,<br> <b>21. </b>My soul take now your ease; you have enough for many years; eat, drink and fill yourself and be content.<br> <b>22. </b>But God looked down and saw the man; he saw his selfish heart and said,<br> <b>23. </b>You foolish man, this night your soul will quit its house of flesh; then who will have your garnered wealth?<br> <b>24. </b>You men of Galilee, lay not up treasures in the vaults of earth; accumulated wealth will blight your soul.<br> <b>25. </b>God does not give men wealth to hoard away in secret vaults. Men are but stewards of God's wealth, and they must use it for the common good.<br> <b>26. </b>To every steward who is true to self, to other men, to every thing that is, the Lord will say, Well done.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc115.htm">Next: Chapter 112</a></center>
+ </div>
+ </center></body>

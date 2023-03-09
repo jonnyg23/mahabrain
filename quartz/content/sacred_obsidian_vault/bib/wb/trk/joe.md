@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Turkish Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> RABbin Petuel oğlu Yoele bildirdikleri.</p> 
+ <p><a name="an_1:2">1:2</a> Ey yaşlılar, dinleyin,<br>Ülkede yaşayan herkes, kulak verin:  Sizin zamanınızda ya da atalarınızın zamanında<br>Hiç böyle bir şey oldu mu?</p> 
+ <p><a name="an_1:3">1:3</a> Bunu çocuklarınıza anlatın;<br>Çocuklarınız kendi çocuklarına,  Onların çocukları da bir sonraki kuşağa anlatsınlar.</p> 
+ <p><a name="an_1:4">1:4</a> Genç çekirgeden artakalan ürünü olgunlaşmış çekirge yedi,<br>Ondan artakalanı yumurtadan yeni çıkan çekirge yedi;  Ondan artakalanı da yavru çekirgeler yedi.</p> 
+ <p><a name="an_1:5">1:5</a> Ey sarhoşlar, ayılın ve ağlayın.<br>Ey şarap düşkünleri, tatlı şarap için ağıt yakın.  Çünkü şarabınızı ağzınızdan kaptılar.</p> 
+ <p><a name="an_1:6">1:6</a> Güçlü ve sayılamayacak kadar büyük bir çekirge ordusu saldırdı ülkeme.<br>Aslan dişine benzer,  Dişi aslanın kesici dişlerine benzer dişleri var.</p> 
+ <p><a name="an_1:7">1:7</a> Asmalarımı harap ettiler,<br>İncir ağaçlarımı mahvettiler,  Kabuklarını soyup yere attılar.<br>Soyulan dallar bembeyaz.</p> 
+ <p><a name="an_1:8">1:8</a> Sözlüsünü yitirip çul kuşanan bir genç kız gibi yas tutun.</p> 
+ <p><a name="an_1:9">1:9</a> RABbin Tapınağına götürülecek<br>Tahıl ve şarap sunusu yok artık.  RABbe hizmet eden kâhinler yas tutuyorlar.</p> 
+ <p><a name="an_1:10">1:10</a> Tarlalar harap oldu, toprak acılı.<br>Çünkü tahıl mahvoldu,  Yeni şarap tükendi, zeytinyağı kesildi.</p> 
+ <p><a name="an_1:11">1:11</a> Arpa, buğday için dövünün, ey ırgatlar,<br>Ağıt yakın, ey bağcılar,  Çünkü tarlaların ürünü yok oldu.</p> 
+ <p><a name="an_1:12">1:12</a> Asmalar kurudu, incir ağaçları soldu;<br>Nar, hurma, elma, bütün meyve ağaçları kurudu.  İnsanoğlunun sevinci yok oldu.</p> 
+ <p><a name="an_1:13">1:13</a> Ey kâhinler, çul kuşanıp yas tutun.<br>Ey sunakta hizmet edenler, ağıt yakın,  Ey Tanrımın hizmetkârları, tapınağa gelin,<br>Çul içinde geceleyin.  Çünkü Tanrınızın Tapınağı için<br>Tahıl ve şarap sunusu kalmadı.</p> 
+ <p><a name="an_1:14">1:14</a> Oruç için gün belirleyin, özel bir toplantı yapın;<br>Yaşlıları ve ülkede yaşayanların tümünü  Tanrınız RABbin Tapınağına toplayıp RABbe yakarın.</p> 
+ <p><a name="an_1:15">1:15</a> Eyvahlar olsun! Çünkü RABbin günü yakındır.<br>Her Şeye Gücü Yetenin göndereceği yıkım gibi geliyor o gün.</p> 
+ <p><a name="an_1:16">1:16</a> Yiyeceğimiz gözümüzün önünde yok edildi.<br>Tanrımızın Tapınağında sevinç ve coşku sona erdi.</p> 
+ <p><a name="an_1:17">1:17</a> Tohumlar keseklerin altında çürüdü,<br>Tahıl yok oldu,  Ambarlar boş kaldı, depolar yıkıldı.</p> 
+ <p><a name="an_1:18">1:18</a> Hayvanlar nasıl da inliyor!<br>Sığır sürüleri çaresiz.  Çünkü otlaklar kurudu.<br>Koyun sürüleri perişan oldu.</p> 
+ <p><a name="an_1:19">1:19</a> Ya RAB, sana yakarıyorum.<br>Çünkü ateş otlakları yok etti,  Bütün ağaçları kavurdu.</p> 
+ <p><a name="an_1:20">1:20</a> Yabanıl hayvanlar bile sana sesleniyor.<br>Çünkü akarsular kurudu,  Ateş otlakları yok etti.</p> 
+ <p><a name="an_2:1">2:1</a> Siyonda boru çalın,<br>Kutsal dağımda boru sesiyle halkı uyarın.  Ülkede yaşayan herkes korkudan titresin.<br>Çünkü RABbin günü çok yaklaştı, geliyor.</p> 
+ <p><a name="an_2:2">2:2</a> Zifiri karanlık bir gün olacak,<br>Bulutlu, koyu karanlık bir gün.  Dağların üzerine çöken karanlık gibi<br>Kalabalık ve güçlü bir çekirge ordusu geliyor.  Böylesi hiçbir zaman görülmedi,<br>Kuşaklar boyu da görülmeyecek. geçiyor.</p> 
+ <p><a name="an_2:3">2:3</a> Önlerini ateş kavuruyor,<br>Artları alev alev.  Önlerinde Aden bahçesi gibi uzanan topraklar<br>Artlarında ıssız çöllere dönüyor.  Hiçbir şey onlardan kurtulamıyor.</p> 
+ <p><a name="an_2:4">2:4</a> Atlara benziyorlar,<br>Savaş atları gibi koşuyorlar.</p> 
+ <p><a name="an_2:5">2:5</a> Savaş arabalarının, anızı yiyip bitiren alevlerin<br>Çıkardığı gürültüye benzer bir sesle,  Savaşa hazırlanmış güçlü bir ordu gibi<br>Sıçraya sıçraya dağları aşıyorlar.</p> 
+ <p><a name="an_2:6">2:6</a> Uluslar onların karşısında dehşete düşüyor;<br>Herkesin beti benzi soluyor.</p> 
+ <p><a name="an_2:7">2:7</a> Yiğitler gibi saldırıyorlar,<br>Askerler gibi surları aşıyorlar.  Dosdoğru ilerliyorlar,<br>Yollarından sapmadan.</p> 
+ <p><a name="an_2:8">2:8</a> İtişip kakışmadan,<br>Her biri kendi yolundan yürüyor.  Savunma hatlarını yarıp geçiyorlar,<br>Sırayı bozmadan.</p> 
+ <p><a name="an_2:9">2:9</a> Kente doğru koşuşuyor,<br>Surların üzerinden aşıyorlar.  Evlere tırmanıyor ve hırsız gibi<br>Pencerelerden içeri süzülüyorlar.</p> 
+ <p><a name="an_2:10">2:10</a> Yeryüzü önlerinde sarsılıyor,<br>Gökyüzü titriyor;  Güneş ve ay kararıyor,<br>Yıldızların parıltısı görünmez oluyor.</p> 
+ <p><a name="an_2:11">2:11</a> RAB ordusunun başında gürlüyor.<br>Sayısızdır Onun orduları  Ve buyruğuna uyan güçlüdür.<br>RABbin o büyük günü ne korkunçtur!  O güne kim dayanabilir?</p> 
+ <p><a name="an_2:12">2:12</a> RAB diyor ki,<br>‹‹Şimdi oruç tutarak, ağlayıp yas tutarak  Bütün yüreğinizle bana dönün.</p> 
+ <p><a name="an_2:13">2:13</a> Giysilerinizi değil,<br>Yüreklerinizi paralayın  Ve Tanrınız RABbe dönün.<br>Çünkü RAB lütfeder, acır,  Tez öfkelenmez, sevgisi engindir,<br>Cezalandırmaktan vazgeçer.</p> 
+ <p><a name="an_2:14">2:14</a> Kim bilir, belki size acır da kararından döner.<br>Ardında bereket bırakır.  O zaman Ona tahıl ve şarap sunuları sunarsınız.</p> 
+ <p><a name="an_2:15">2:15</a> ‹‹Siyonda boru çalın,<br>Oruç için gün belirleyin, özel bir toplantı yapın.</p> 
+ <p><a name="an_2:16">2:16</a> Halkı toplayın, topluluğu kutsal kılın,<br>Yaşlıları bir araya getirin.  Çocukları, hatta emzikte olanları toplayın.<br>Güvey odasından, gelin gerdeğinden çıkıp gelsin.</p> 
+ <p><a name="an_2:17">2:17</a> Kâhinler, RABbin hizmetkârları,<br>Tapınağın girişiyle sunak arasında ağlaşıp,  ‹Ya RAB, halkını esirge› diye yalvarsınlar.<br>‹Mirasın olan halkının aşağılanmasına izin verme,  Uluslar onunla alay etmesin.<br>Halklar arasında neden,  Onların Tanrısı nerede? densin?› ››</p> 
+ <p><a name="an_2:18">2:18</a> O zaman RAB halkına acıyıp ülkesini esirgeyecek.</p> 
+ <p><a name="an_2:19">2:19</a> Halkına şöyle yanıt verecek:<br>‹‹Bakın, size tahıl, yeni şarap  Ve zeytinyağı vereceğim,<br>Bunlara doyacaksınız.  Artık ulusların sizi aşağılamasına izin vermeyeceğim.</p> 
+ <p><a name="an_2:20">2:20</a> Kuzeyden gelen çekirge ordusunu sizden uzaklaştıracağım,<br>Kurak ve ıssız bir ülkeye süreceğim.  Önden gidenleri Lut Gölüne,<br>Arkadan gelenleri Akdenize süreceğim.  Leşleri kokacak,<br>Kokuları göklere yükselecek.  Çünkü korkunç şeyler yaptılar.</p> 
+ <p><a name="an_2:21">2:21</a> ‹‹Ey toprak, korkma, sevinçle coş!<br>Çünkü RAB büyük işler yaptı.</p> 
+ <p><a name="an_2:22">2:22</a> Ey kır hayvanları, korkmayın!<br>Çünkü otlaklar yeşeriyor.  Ağaçlar meyvelerini yükleniyor,<br>İncir ağaçları, asmalar ürünlerini veriyor.</p> 
+ <p><a name="an_2:23">2:23</a> Ey Siyon halkı,<br>Tanrınız RABde sevinç bulun, coşun.  İlk yağmuru size tam ölçüsüyle veriyor;<br>Daha önce olduğu gibi,  İlk ve son yağmurları yağdırıyor. geçiyor. doğruluğu öğretecek olan öğretmeni veriyor››.</p> 
+ <p><a name="an_2:24">2:24</a> Harman yeri tahılla dolacak.<br>Şarap ve zeytinyağı tekneleri taşacak.</p> 
+ <p><a name="an_2:25">2:25</a> Üzerinize gönderdiğim büyük çekirge ordusunun,<br>Olgunlaşmış ve yumurtadan yeni çıkmış çekirgenin,  Yavrunun ve genç çekirgenin<br>Size kaybettirdiği yılları geri vereceğim.</p> 
+ <p><a name="an_2:26">2:26</a> Bol bol yiyip doyacak<br>Ve sizin için harikalar yaratan  Tanrınız RABbin adını öveceksiniz.<br>Halkım bir daha utandırılmayacak.</p> 
+ <p><a name="an_2:27">2:27</a> Bileceksiniz ki, İsrail halkının arasındayım,<br>Tanrınız RAB benim, başka biri yok.  Halkım bir daha utandırılmayacak.››</p> 
+ <p><a name="an_2:28">2:28</a> ‹‹Ondan sonra bütün insanların üzerine<br>Ruhumu dökeceğim.  Oğullarınız, kızlarınız peygamberlikte bulunacaklar.<br>Yaşlılarınız düşler,  Gençleriniz görümler görecek.</p> 
+ <p><a name="an_2:29">2:29</a> O günler kadın, erkek kullarınızın üzerine de Ruhumu dökeceğim.</p> 
+ <p><a name="an_2:30">2:30</a> Göklerde ve yeryüzünde,<br>Kan, ateş ve duman sütunlarından belirtiler göstereceğim.</p> 
+ <p><a name="an_2:31">2:31</a> RABbin büyük ve korkunç günü gelmeden önce<br>Güneş kararacak, ay kan rengine dönecek.</p> 
+ <p><a name="an_2:32">2:32</a> O zaman RAB'bi adıyla çağıran herkes kurtulacak.<br>RAB'bin dediği gibi,  Siyon Dağı'nda ve Yeruşalim'de kurtulup<br>Sağ kalanlar arasında  RAB'bin çağıracağı kimseler olacak.››</p> 
+ <p><a name="an_3:1">3:1</a> ‹‹O günler Yahuda ve Yeruşalim halkını<br>Sürgünden geri getirdiğimde,</p> 
+ <p><a name="an_3:2">3:2</a> Bütün ulusları toplayıp<br>Yehoşafatfç Vadisine indireceğim.  Mirasım olan İsrail halkını<br>Uluslar arasına dağıttıkları ve ülkemi bölüştükleri için  Onları orada yargılayacağım.</p> 
+ <p><a name="an_3:3">3:3</a> Çünkü halkım için kura çektiler,<br>Erkek çocukları fahişelere ücret olarak verdiler.  İçtikleri şaraba karşılık kızları sattılar.</p> 
+ <p><a name="an_3:4">3:4</a> Ey Sur, Sayda ve bütün Filist halkı,<br>Bana yapmak istediğiniz nedir?  Neye karşılık vermeye çalışıyorsunuz?<br>Eğer karşılık verirseniz,  Karşılığını çarçabuk ödetirim size.</p> 
+ <p><a name="an_3:5">3:5</a> Altınımı, gümüşümü alıp<br>Değerli eşyalarımı tapınaklarınıza götürdünüz.</p> 
+ <p><a name="an_3:6">3:6</a> Yahuda ve Yeruşalim halkını<br>Topraklarından uzaklaştırmak için Greklere sattınız.</p> 
+ <p><a name="an_3:7">3:7</a> Göreceksiniz, onları, sattığınız yerde<br>Harekete geçireceğim.  Onlara yaptığınızı kendi başınıza getireceğim.</p> 
+ <p><a name="an_3:8">3:8</a> Oğullarınızı, kızlarınızı<br>Yahuda halkına sattıracağım.  Onları uzak bir ulusa, Sabalılara satacaklar.››<br>RAB böyle diyor.</p> 
+ <p><a name="an_3:9">3:9</a> ‹‹Uluslar arasında şunu duyurun:<br>Savaşa hazırlanın, yiğitlerinizi harekete geçirin.  Bütün savaşçılarınız toplanıp saldırıya geçsin.</p> 
+ <p><a name="an_3:10">3:10</a> Saban demirlerinizi<br>Çekiçle dövüp kılıç yapın,  Bağcı bıçaklarınızı mızrak yapın.<br>Güçsüz olan ‹Güçlüyüm› desin.</p> 
+ <p><a name="an_3:11">3:11</a> Ey çevredeki uluslar,<br>Tez gelin, bir araya toplanın.  Ya RAB, yiğitlerini oraya indir.</p> 
+ <p><a name="an_3:12">3:12</a> Uluslar harekete geçip<br>Yehoşafat Vadisinde toplansınlar.  Çünkü çevredeki bütün ulusları<br>Yargılamak için orada olacağım.</p> 
+ <p><a name="an_3:13">3:13</a> Salın orakları, ekinler olgunlaştı.  Gelin, üzümleri çiğneyin,<br>Sıkma çukuru üzümle dolu, şarap tekneleri taşıyor.  Ulusların kötülükleri bu denli çoktur.››</p> 
+ <p><a name="an_3:14">3:14</a> Kalabalıklar,<br>Yargı vadisini dolduran nice kalabalıklar...  Yargı vadisinde RABbin günü yaklaştı.</p> 
+ <p><a name="an_3:15">3:15</a> Güneş ve ay kararıyor,<br>Yıldızların parıltısı görünmez oluyor.</p> 
+ <p><a name="an_3:16">3:16</a> RAB Siyondan kükreyecek,<br>Yeruşalimden gürleyecek.  Gök ve yer sarsılacak.<br>Ama RAB kendi halkı için sığınak,  İsrailliler için kale olacak.</p> 
+ <p><a name="an_3:17">3:17</a> ‹‹O zaman bileceksiniz ki,<br>Siyonda, kutsal dağımda oturan Tanrınız RAB benim.  Yeruşalim kutsal olacak;<br>Yabancılar bir daha orayı ele geçiremeyecek.</p> 
+ <p><a name="an_3:18">3:18</a> ‹‹O gün dağlardan<br>Tatlı şarap damlayacak;  Tepelerde süt,<br>Yahuda derelerinde su akacak.  RABbin Tapınağından çıkan bir pınar<br>Şittim Vadisini sulayacak.</p> 
+ <p><a name="an_3:19">3:19</a> ‹‹Ama Mısır viraneye,<br>Edom ıssız çöle dönecek.  Çünkü Yahudalıların ülkesine saldırıp<br>Suçsuz insanların kanını döktüler.</p> 
+ <p><a name="an_3:20">3:20</a> Oysa Yahuda sonsuza dek yaşayacak.<br>Yeruşalim kuşaktan kuşağa sürecek.</p> 
+ <p><a name="an_3:21">3:21</a> Akan kanların öcünü alacağım,<br>Suçluyu cezasız bırakmayacağım.›› Masoretik metin ‹‹Akan kanları cezasız bırakacağım››.  RAB Siyon'da oturur.</p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

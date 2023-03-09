@@ -1,0 +1,18 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Paganism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ppr05.htm">Previous</a> 
+ <a href="ppr07.htm">Next</a> 
+ </center>
+ <hr>
+   <h3 align="center">NAVAJO LITURGY</h3>  
+ <p align="center">(American)</p>  
+ <p></p><dir>OH YOU!<br> Who dwell in the house made of the Dawn.<br> In the home of evening twilight.<br> In the house made of dark cloud,<br> In the house made of the he rains,<br> In the house made of the dark mist,<br> In the house made of the she rain,<br> In the house made of peace;<br> Where the dark mist curtains the door<br> The path to which is on the rainbow,<br> Where the zig-zag lightning on high it stands<br> Male deity divine!<br> With your moccasins of dark cloud, come to us!<br> With your headdress of dark cloud, come to us!<br> With clouds dark, your mind enveloping, come to us!<br> You above thunder dark, high-flying, come to us!<br> With cloud having shape at your feet, high-flying, come to us!<br> With the dark cloud over your head made of far darkness, high-flying, come to us!<br> With the far darkness made of the he rain over your head, high-flying, come to us!<br> With your head over mist-dark made of far darkness, high-flying, come to us!<br> With the she rain over your head, made of far darkness, high-flying, come to us!<br> With your head over zig-zag lightning far out-flung, high-flying, come to us!<br> With your head over far hanging rainbow, high-flying, come to us!<br> With clouds dark on the ends of your wings, made of far darkness, high-flying, come to us.<br> With the far darkness made of the he rain on the ends of your wings, high-flying, come to us!<br> With the dark mist on the ends of your wings, made of far darkness, high-flying, come to us!<br> With the far darkness made of the she rain on the ends of your wings, high-flying, come to us!<br> With zig-zag lightning flung out afar on the ends of your wings, high-flying, come to us!<br> With the rainbow hanging far on the ends of your wings, high-flying, come to us!<br> With the near darkness made of dark cloud, of he rain, of dark mist, of she rain, high-flying, come to us!<br> In the earth darkness come to us!<br> With these also the foam to float on the flowing water over the roots of the great corn, that I wish.<br> Your sacrifice I have made,<br> For you the smoke have I prepared.<br> My feet for me restore,<br> My body for me restore,<br> My mind for me restore,<br> My voice for me restore,<br> This day your spell from me take out,<br> This day your spell for me remove! Away from me you have taken it!<br> Far off from me it is taken!<br> Far off you have done it. In a way of beauty I recover,<br> Happily my eyes regain their power,<br> Happily for me the spell is taken off,<br> <a href="errata.htm#0">Impervious</a> to pain I walk,<br> Feeling light within, I walk,<br> Thus happily you accomplish your tasks.<br> Happily the old men will regard you,<br> Happily the children will regard you,<br> Happily as they approach their homes they will regard you.<br> Happily may their trails home be in the way of peace.<br> Happily may all return!<br> With beauty before me I walk.<br> With beauty above me I walk.<br> With beauty it is finished!<br> With beauty again it is finished!</dir>  
+ <p> </p>  
+ <p></p><hr>
+ <center>
+ <a href="ppr07.htm">Next: Address to Supreme Deity (Assyrian)</a></center>
+ </body>

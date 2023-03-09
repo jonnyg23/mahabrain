@@ -1,0 +1,27 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Southeast</a> 
+ <a href="index.htm">Index</a> 
+ <a href="mtsi157.htm">Previous</a> 
+ <a href="mtsi159.htm">Next</a> 
+ </center>
+ <hr>
+ 
+ <h3 align="CENTER">22. THE MEN WHO WENT TO THE SKY <a name="fr_40"></a><a href="#fn_40"><font size="1">1</font></a> (23)</h3>
+ <h3 align="CENTER">(THIRD VERSION)</h3>
+ <p>There were two men and a woman living in a certain place. The woman had a little child. By and by the child's mother died. Then the two men determined to try and get her back, and about March they started off to heaven. They traveled on and on until at last they came to where an old woman lived and stayed at her house all night. She gave each of them a boiled pumpkin to eat, and they thought that these would not be enough, but the minute one of them was consumed another appeared in its place, and they ate on until they were full. Going on farther, they came to some little people who were going to war on ducks and geese. Passing on, they came to where another old woman lived, and they spent the night with her. She said to them, "You are not to cross rivers on the way." She gave each a gourd with which they were to dip away the water of the streams they came to so that they could pass through them. Then they came to a third old woman and spent the night with her also. She said, "On the way are many great snakes," so she gave them bark of the bass tree [båksa] to tie about their legs. Having fastened this on, they continued their journey and came to masses of snakes piled together. They walked through these and the snakes bit them but did them no harm. By the time they had gotten through, however, their barks were worn out with the biting. Again they came to an old woman with whom they passed the night. She said, "There is a battle on the way. If you have tobacco, cut it up ready for smoking." They cut their tobacco up and she made cigarettes for them. She said, "When you see the battle, smoke cigarettes." They went on and by and by found the battle. Then they smoked cigarettes and the smoke covered everyone as with clouds, so that they passed safely through. Finally they came to the end of the land and found the sky, which was moving up and down. One of them said, "I am a panther," and jumped up upon it. The</p>
+ <p>
+ </p>
+ <p><a name="page_143"><font size="1" color="GREEN">p. 143</font></a></p>
+ <p>other said, "I am a wildcat," and did the same thing. Then they were carried far up and found some people living there. One day, as, they traveled on, they came to a man and some dens. The man told them not to stop at the dens but to go by, which they did. Next night they came to another man and spent the night with him. He said, "The women's town is next. They will try to stop you, but do not stop." They found this town as he had said and the women tried to stop them, but they passed right on.</p>
+ <p>Finally they came to where God (abå'ski djo'kole, "high living") dwelt. He said, "Why did you come here?" and they told him that they had come for the mother of the child. Then he told them to stay there to the dance and he gave them a watermelon to eat. The men thought that the watermelon seed would be a good thing to save and plant at home, but he told them not to keep a single seed. He had it divided for them, and when they were through eating they put the seeds back, and God put the rind together and made it into a whole watermelon once more. He said, "You have come a long way," and they agreed that this must have been the case, for they had traveled an entire year. Then God took the cover off from something and let them look inside. They saw the house from which they had come just beneath. At the dance they saw the woman they were in search of but could not catch her. Then God gave them pieces of corncob and said, "When you see that woman again throw these at her." When they again saw her at the dance they threw the pieces of corncob at her. The last piece struck her, she fell down, and they seized her. Then God brought a big jug, put the woman into it, and screwed on the top. He said, "When you want to go back tell me." They said, "We will go tomorrow." Then they went to sleep, but when they woke up they found they were sleeping in their own house. The woman inside of the jar was groaning, saying, "You have brought me here and killed me." They were so sorry for her that they put the jar in the shade and unscrewed the top a little, whereupon she stopped groaning. Then they thought they would go to sleep, but when they woke up and opened the jar she was gone. She went back to heaven. If they had left the cover screwed on until she died she would have come back again. God gave the woman to them but they lost her again. If they had left this cover screwed down, people would still come back to earth; but since they did not, people do not come back any more.</p>
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_40"></a><a href="mtsi158.htm#fr_40">142:1</a> This seems to contain elements of stories 18 and 19.</p>
+ <p></p><hr>
+ <center>
+ <a href="mtsi159.htm">Next: 23. The Friends</a></center>
+ </body>

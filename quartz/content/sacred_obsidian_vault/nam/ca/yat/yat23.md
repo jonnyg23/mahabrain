@@ -1,0 +1,35 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">California</a> 
+ <a href="index.htm">Index</a> 
+ <a href="yat22.htm">Previous</a> 
+ <a href="yat24.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002EQALSY/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Yana Texts</i>, by Edward Sapir, [1910], at sacred-texts.com</font></p><hr>  <h3 align="center">XXIV. GRIZZLY BEAR AND DEER. <a name="fr_145"></a><a href="#fn_141"><font size="1">319</font></a></h3>  
+ <p>
+ </p>  
+ <p><a name="page_207"><font size="1" color="green">p. 207</font></a></p>  
+ <p>There was a house in which dwelt Deer. Grizzly Bear was angry. "Cut off some of your flesh for me," (she said to Deer). "I am going to eat it." Then (Deer) cut some of it right off and roasted it. (Grizzly Bear) ate it. "It tastes good," (she said. Some time after this, she was lousing Deer, and scratched her. Deer protested; but Grizzly Bear said,) "I was lousing you." Now she caught hold of a louse; now she bit (Deer's) neck and killed her. Then she cut up her belly and ate her up, ate up much. All (the Deer people) she killed. She went off looking for (Deer's two children, but) did not find them. She came back home. To the south she went and killed all. She returned north. Off west she ate up all the deer, and returned east. Off north she ate up all the elks, ate them all up, killed all. She went eastwards again and killed all the deer. She stood still and looked around. "I have killed them all," she said. "Enough now!" she said, and then proceeded back home. "Let us play!" (said Deer's children to Grizzly Bear's). "Yes, yes!" they said. "Let us smoke each other outside!" They dug a hole in the ground. "Let us smoke each other!" (said Deer's children). "You go in first!" (Grizzly Bear's children said to them). "Yes, yes!" The fawns now went in. (Grizzly Bear's children) put in pine-needles, and then caused (Deer's children) to smoke. <a name="fr_146"></a><a href="#fn_142"><font size="1">321</font></a> "Enough now!" they said, "I am all smoke now." "Yes," said (Grizzly Bear's children). Now they came out again. "Do you go in," they said, "Grizzly Bear children!" Then they put in pitchwood and pine-needles again, and caused (Grizzly Bear's children) to smoke. "Enough now!" they said. (Deer's children) held them down to the ground, (so that) they died. They were no more. (Deer's children) took the pitchwood out again and thrust their hands inside. They pulled out (one of Grizzly Bear's children, then) they pulled out the other one. Each one carried one in his arms. They brought them back into their house, laid them down on the ground, and put a deerhide blanket over them. "Now!" they said, "let us run away! Let us run to the south!" they said. Now they came running from the east, from Montgomery creek.</p>  
+ <p>
+ </p>  
+ <p><a name="page_208"><font size="1" color="green">p. 208</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> "Where is the rock?" (said the younger brother). "Let us proceed to the mountain, where there is brush!" (said the older one). "No!" said the younger one, "she might see us at the mountain," he said, "if we stay there. Let us proceed to the rock," he said, "to where there is a rock." "Yes," said (his brother), and then they got up on it. "It is good," they said.</p>  
+ <p>Grizzly-Bear Woman now hastened back and arrived home. She went inside again and said, "Wake up, you two! What are you doing? What are you sleeping for?" They did not speak. Then she picked up a stick and struck them. She put (their blanket) aside from them; they were dead. She looked at them. "Where are they?" she said, asked the poker. It said nothing. She asked the stone. It said nothing. She asked the earth. It said nothing. She asked the stick, she asked the fire, she asked the coals. "Yes," they said, "they have run to the south." "Yes," she said. She bit the stone, for she was angry; she bit the stick; she bit the fire. She went out. "Amm!" she said (threateningly). "Where will you go to?" she said. Now she came running from the east, tracked them by their footprints. For two days she ran along, came running from the east. She did not find them. She tracked them around back to the rock. She looked up, there indeed they were.</p>  
+ <p>"Do you come down again!" she said, "O orphans! What are you running away for? Come to me! Are you not hungry? Let us go off home! It is nearly nightfall." "No!" (they said). "You have been killing all (of our people),--my mother, my father, my brothers, my sisters." "Amm!" said Grizzly-Bear Woman, and proceeded to gnaw the rock; she moved clear around it. "O rock!" said the fawns, singing, "go upwards! rise up!" And then it did so. It rose up while Grizzly-Bear Woman kept gnawing at it. Only a little was left of the rock. <a name="fr_147"></a><a href="#fn_143"><font size="1">328</font></a> For two days she gnawed the rock, when suddenly she died, let her hands drop down on the ground.</p>  
+ <p>They hastened down. And then they cut up her belly, pulled out (her) entrails and hung them up. They cut off one (of her legs) and hung it up. They cut off (her) other leg also and hung it up. They cut out her head and threw it to the west; (her) backbone they threw to the east. "Now!" they said, "be a grizzly bear! Eat people!" they said.</p>  
+ <p>
+ </p>  
+ <p></p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_141"></a><a href="yat23.htm#fr_145">203:319</a> Compare Dixon's "Maidu Myths," p. 79, where further parallels are given (see also Dixon's "Northern Maidu," p. 341). The Takelma of Oregon have a similar myth.</p>
+ <p><a name="fn_142"></a><a href="yat23.htm#fr_146">207:321</a> wu'lwisindja, "I am fanning smoke into house" (from Dr Dixon's notes). The method of smoking here employed seems to have been to fan the smoke of burning pine needles into the temporarily constructed sweat-house; cf. Dixon's "Maidu Myths," p. 79.</p>
+ <p><a name="fn_143"></a><a href="yat23.htm#fr_147">208:328</a> Information was secured from Betty Brown of two rocks with a circular notch said to have been bitten in by a grizzly bear in pursuit of the deer that stood on top. They are a short distance east of the hamlet of Montgomery Creek and are known as djanū'nak!aina, "notched rocks." They were doubtless thought of by Round Mountain Jack as the scene of the mythical incident.</p>
+ <p></p><hr>
+ <center>
+ <a href="yat24.htm">Next: I. The Creation of Men</a></center>
+ </body>

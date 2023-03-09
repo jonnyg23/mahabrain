@@ -1,0 +1,28 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Africa</a> 
+ <a href="index.htm">Index</a> 
+ <a href="fjo35.htm">Previous</a> 
+ <a href="fjo37.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B003C1R142/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Notes on the Folklore of the Fjort</i>, by Richard Edward Dennett, [1898], at sacred-texts.com</font></p><hr> <h1 align="CENTER">APPENDIX I.</h1> <h4 align="CENTER">BY MARY H. KINGSLEY.</h4> <h2 align="CENTER">NZAMBI.</h2> 
+ <p>IN the preceding pages Mr. Dennett's observations have been given just as they have reached the hands of the Folk-Lore Society; but there are many more of his observations on the religion of the Fjort which have come into my hands, unfortunately in so scattered a state that they cannot be given as separate chapters, little fragments of a few pages only, paragraphs in letters, and so on. Yet, as these fragments contain much valuable information in themselves, and also help in the understanding of much of the information he has sent home from KaCongo and Loango in a more connected form, I have collected some of them, and give them here without any alteration of Mr. Dennett's words, except obvious and trifling errors.</p> 
+ <p>I have explained in the Introduction that I regard Nkissism as a school of the fetish form of thought, and that I regard Mr. Dennett as the best authority we have on this particular school of this great Nature-Religion. The most important bit of work that he has done for us in the study of Nkissism seems to me to be his explanation of the word Nzambi in its inner meaning. Mr. Dennett himself would probably not agree with me on this point, and prefer to base his claim to honour on his investigation of the inner meaning of the whole Fjort language; but, at present, he has not sent -up his observations in this matter in a form that makes sufficient allowance for the ignorance of the civilised world regarding that beautiful but complex form of Bantu; and, as the material Mr. Dennett has sent home regarding the inner meaning of the Fjort language is not printed in this volume, I will confine my collection of supplementary matter to Nzambi and the religion which surrounds her.</p> 
+ <p>Mr. Dennett says in a letter of the 6th July, 1897:</p> 
+ <p>1 have translated Nzambi as the Spirit of the Earth or Old Mother Earth. But <i>Anza</i> is the River Congo, and so Anzambi might well be translated the River-Spirit; but this does not fit in with Fjorts' explanation of Nzambi, who figures in their folklore as the Great Princess, the mother of all animals, etc., the real truth being that <i>Anza</i>, the river, comes out of the earth, <i>Nsi</i>. In Fjort legends the river-spirits are legion, the name of the river and the spirit being one, Anzambi then is the spirit of the River Congo. All river-spirits appear to teach some lesson, physical or moral. In one story you will see the river-spirit taught the Fjort to plant bananas and manioc,[1] to forge iron and so on; and I have given you the real etymology of the word Nzambi and its real meaning, which fits in with the ideas, with the love of Mother Earth (Nzambi, mother earth) and this knowledge of the Anzambi, River-Spirit.</p> 
+ <p>Nsi the earth may be also translated as the Offspring of the Beginner; then we have the river-spirit of knowledge coming out of the spirit of motherhood, which in its turn is the (N) Offspring of the (isi) Beginner.</p> 
+ <p>That Mr. Dennett is right in this matter I have no doubt from my own investigations of important words in other schools of fetish than Nkissism; but that it will seem clear to those who have not personally wrestled with the difficulties of such words as Nzambi, or Woka, I feel many doubts. I hope, however, Mr. Dennett will soon be able to publish a full account of his long study of the Fjort language, and that may make the affair clearer. Of one thing I am very sure; and that is, that until we know the underlying meaning</p> 
+ <p>[1. Bananas and manioc were introduced in Fjort culture by the Roman Catholic missionaries, who first landed among the Fjort in 1490, but I found Anyambie as a great god among the Mpongwe, but with them it is not Anyambie, that is connected with knowledge, and with the river, and sea, but Mbuiri (see <i>Travels in West Africa</i>, p. 228). The difference between the Fjort and the Mpongwe in this matter is easily explainable, for the Mpongwe did not receive, up any of their rivers, Roman Catholic missionaries to the same extent and in the same manner as the Fjorts received, <i>viâ</i> the Congo, instruction and now articles of food. The underlying idea, which is earlier than the introduction of manioc and bananas, is identical. - M. H. K.]</p> 
+ <p>of the languages of Africa, we cannot safely dogmatise regarding the African's religion. I do not say 'that when Mr. Dennett does publish his key to the Fjort alphabet, he and I will be found to agree in all deductions; because, although we both steep our minds in black and agree in black, we, in our white capacities, start from very different points of view in these matters.</p> 
+ <p>I now pass on to another fragment of Mr. Dennett's observations on Nzambi, wherein he says:--</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="fjo37.htm">Next: About Nzambi.</a></center>
+ </div>
+ </center></body>

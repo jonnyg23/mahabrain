@@ -1,0 +1,23 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Gnosticism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="gar18.htm">Previous</a> 
+ <a href="gar20.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002BA5FIO/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Gnostics and Their Remains</i>, by Charles William King, [1887], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_130"><font size="1" color="green">p. 130</font></a></p>  <h3 align="center">III. A ROMAN MITHRAS IN HIS CAVE.</h3>  
+ <p>"I remember there was found in the vineyard of Sig. Orazio Muti (where the treasure was discovered), opposite S. Vitale, an idol in marble about 5 palms high (3¾ ft.), standing erect upon a pedestal in an empty chamber, which had the door walled up. This idol had the head of a lion, but the body that of a man. Under the feet was a globe, whence sprung a serpent which encompassed all the idol, and its head entered into the lion's mouth. He had his hands crossed upon the breast, with a key in each; four wings fastened upon the shoulders, two pointing upwards, two downwards. I do not consider it a very antique work, being done in a rude manner, or else indeed it was so ancient that at the time when it was made the good style was not yet known. Sig. Orazio, however, told me that a theologian, a Jesuit Father, explained its meaning by saying it signified the Devil, who, in the times of heathenism, ruled over the world: hence the <i>globe</i> under his feet, the <i>serpent</i> which begirt his body and entered into his mouth, signified his foretelling the future with ambiguous responses; the <i>keys</i> in his hands, his sovereignty over the world; the <i>lion's head</i>, his being the ruler of all beasts; the <i>wings</i>, his presence everywhere. Such was the interpretation given by the Father aforesaid. I have done everything to see the idol, but Sig. Orazio being now dead, his heirs do not know what has become of it. It is not, however, unlikely that by the advice of the same theologian, Sig. Orazio may have sent it to some <i>limekiln to cure its dampness</i>, for it had been buried many and many a year." Thus was this most interesting monument destroyed through the conceited ignorance of a wretched ecclesiastic, himself more truly a worshipper of the Evil Principle, than was the ancient votary of the beneficent Lord of Light who carved that wondrous image. Vacca adds, "I remember, there was found in the same place, after the above-mentioned idol, another, only in bas-relief, also having a lion's head, but the rest of the body human: with the arms extended, in each hand a torch; with two wings pointing upwards, two downwards, from between which issued a serpent.</p>  
+ <p><a name="page_131"><font size="1" color="green">p. 131</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> At his right stood an altar with fire; from the idol's mouth proceeded a ribbon or scroll extending over the fire."</p>  
+ <p>This <i>lion</i>-headed deity can be no other than Jerome's "Pater Bromius," a Grecian title of Bacchus; and he, we are told, distinguished himself under that disguise in the famous war of the giants--</p>  
+ <p></p><dir><font size="-1">"Tu cum Parentis regna per arduum<br>  Cohors Gigantum scanderet impia,<br>  Rhætum retorsisti <i>leonis</i><br>     Unguibus horribilique mala."<br>                         (Horace, Od. II. xix. 21-24.)</font></dir>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> And, tracing back this composite figure to the real source of such iconology, it is found to be the very one under which "Nri-singha-avatar" is depicted. It was assumed by the deity in order to destroy the tyrant Hiransyakacipu, who had obtained the gift of invulnerability against all <i>known</i> beasts, either by day or night.</p>  
+ <p>A Mithraic cave, with the contiguous buildings, was discovered at Spoleto in 1878. In the end wall were the usual three niches for the god and his torch-bearers. In front of them an altar inscribed "Soli invicto Mithræ sacrum." Close to the altar, a tall phallic stone, perforated with a square hole near the top--perhaps the "stone symbolizing the Birth of Mithras" mentioned by Firmicus. The cave, with the ground plan of the whole edifice is given in the 'Archæologia,' vol. 47, p. 205.</p>  
+ <p></p><hr>
+ <center>
+ <a href="gar20.htm">Next: IV. Mithraic Talismans</a></center>
+ </body>

@@ -1,0 +1,34 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Legends and Sagas</a> 
+ <a href="../index.htm">Celtic</a> 
+ <a href="../../../pro/index.htm">Prophecy</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pbs05.htm">Previous</a> 
+ <a href="pbs07.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0766136337/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Prophecies of the Brahan Seer</i>, by Alexander Mackenzie, [1899], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_24"><font size="1" color="GREEN">p. 24</font></a></p>  
+ <p align="center"><a name="img_02400"></a>
+ <img src="img/02400.jpg"></p>  <h3 align="center">PROPHECIES AS TO THE FULFILMENT OF WHICH THERE IS A DOUBT.</h3>  
+ <p><a name="img_02401"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/02401.jpg" alt="'W"></td></tr></table>HEN a magpie (pitheid) shall have made a nest for three successive years in the gable of the Church of Ferrintosh, the church will fall when full of people," is one of those regarding which we find it difficult to decide whether it has been already fulfilled or not. Mr. Macintyre, who supplies this version, adds the following remarks:--The Church of Ferrintosh was known at an earlier period as the Parish Church of Urquhart and Loggie. Some maintain that this prediction refers to the Church of Urray. Whether this be so or not, there were circumstances connected with the Church of Ferrintosh in the time of the famous Rev. Dr. Macdonald, which seemed to indicate the beginning of the fulfilment of the prophecy, and which led to very alarming consequences. A magpie actually did make her nest in the church gable, exactly as foretold. This, together with a rent between the church wall and the stone stairs which led up to the gallery, seemed to favour the opinion that the prophecy was on the eve of being accomplished, and people felt uneasy when they glanced upon the ominous nest, the rent in the wall, and  
+ <p><a name="page_25"><font size="1" color="GREEN">p. 25</font></a></p>  
+ <p>the crowded congregation, and remembered Coinneach's prophecy, as they walked into the church to hear the Doctor. It so happened one day that the church was unusually full of people, insomuch that it was found necessary to connect the ends of the seats with planks, in order to accommodate them all. Unfortunately, one of those temporary seats was either too weak, or too heavily burdened: it snapped in two with a loud report and startled the audience. Coinneach Odhar's prophecy flashed across their minds, and a simultaneous rush was made by the panic-struck congregation to the door. Many fell, and were trampled underfoot, while others fainted, being seriously crushed and bruised.</p>  
+ <p>Among a rural population, sayings and doings, applicable to a particular parish, crop up, and, in after times, are applied to occurrences in neighbouring parishes. Having regard to this, may it not be suggested that, what is current locally in regard to Ferrintosh and Coinneach's sayings, may only be a transcript of an event now matter of history in a parish on the northern side of the Cromarty Firth. We refer to the destruction of the Abbey Church at Fearn by lightning, October 10, 1742. We have never seen a detailed account of this sad accident in print, and have no doubt the reader will be glad to have a graphic description of it from the pen of Bishop Forbes, the famous author of the "Jacobite Memoirs," who visited his diocese of Ross and Caithness in the <a href="errata.htm#2">summer</a> of 1762. This account is taken from his unpublished MS. Journal, now the property of the College of Bishops of the Scottish Episcopal Church, and presently in the hands of the Rev. F. Smith, Arpafeelie, who has kindly permitted us to make the following extract:--</p>  
+ <p>"The ruinous Church of Ferne was of old an Abbacy of White Friars (see Keith's Catalogue, p. 247). The roof of</p>  
+ <p><a name="page_26"><font size="1" color="GREEN">p. 26</font></a></p>  
+ <p>flagstones, with part of a side wall, was beat down in an instant by thunder and lightning on Sunday, October 10th, 1742, and so crushed and bruised forty persons, that they were scarcely to be discovered, who or what they were, and therefore, were buried promiscuously, without any manner of distinction. The gentry, having luckily their seats in the niches, were saved from the sudden crash, as was the preacher by the sounding-boards falling upon the pulpit, and his bowing down under it. Great numbers were wounded (see Scot's Magazine for 1742, p. 485). But there is a most material circumstance not mentioned, which has been carefully concealed from the publishers, and it is this: By a Providential event, this was the first Sunday that the Rev. and often-mentioned Mr. Stewart, had a congregation near Cadboll, in view of Ferne, whereby many lives were saved, as the kirk was far from being so throng as usual, and that he and his people, upon coming out from worship, and seeing the dismal falling-in just when it happened, hastened with all speed to the afflictive spot, and dragged many of the wounded out of the rubbish, whose cries would have pierced a heart of adamant. Had not this been the happy case, I speak within bounds when I say two, if not three, to one, would have perished. Some of the wounded died. This church has been a large and lofty building, as the walls are very high, and still standing."</p>  
+ <p>It has been suggested that the prediction was fulfilled by the falling to pieces of the Church at the Disruption; but we would be loth to stake the reputation of our prophet on this assumption.</p>  
+ <p>Another, supposed by some to be fulfilled by the annual visits of the militia for their annual drill, is--"That when a wood on the Muir of Ord grows to a man's height, regiments of soldiers shall be seen there drawn up in battle order."</p>  
+ <p><a name="page_27"><font size="1" color="GREEN">p. 27</font></a></p>  
+ <p>In connection with the battle, or battles, at Cille-Chriosd and the Muir of Ord, Mr. Macintyre says:--The Seer foretold that "Fear Ruadh an Uird (the Red Laird of Ord) would be carried home, wounded, on blankets". Whether this saying has reference to an event looming in the distant future, or is a fragment of a tradition regarding sanguinary events well known in the history of Cille-Chriosd, and of which a full and graphic account, both in prose and verse, can be seen on pp. 82-86 and 136-139, Vol. I. of the <i>Celtic Magazine</i>, it is impossible to say.</p>  
+ <p align="center"><a name="img_02700"></a>
+ <img src="img/02700.jpg"></p>  
+ <p></p><hr>
+ <center>
+ <a href="pbs07.htm">Next: Prophecies Wholly Or Partly Fulfilled</a></center>
+ </body>

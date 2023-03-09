@@ -1,0 +1,36 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="seil81.htm">Previous</a> 
+ <a href="seil83.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002B561B4/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Spiritual Exercises of St. Ignatius of Loyola</i>, [1914], at sacred-texts.com</font></p><hr> <a></a> <h2 align="center">TO HAVE THE TRUE SENTIMENT WHICH WE OUGHT TO HAVE IN THE CHURCH MILITANT</h2> Let the following Rules be observed.
+ <p> <b>First Rule</b>. The first: All judgment laid aside, we ought to have our mind ready and prompt to obey, in all, the true Spouse of Christ our Lord, which is our holy Mother the Church Hierarchical.
+ </p><p> <b>Second Rule</b>. The second: To praise confession to a Priest, and the reception of the most Holy Sacrament of the Altar once in the year, and much more each month, and much better from week to week, with the conditions required and due.
+ </p><p> <b>Third Rule</b>. The third: To praise the hearing of Mass often, likewise <a name="fr_39"></a><a href="seil83.htm#fn_39"><font size="1">40</font></a> hymns, psalms, and long prayers, in the church and out of it; likewise the hours set at the time fixed for each Divine Office and for all prayer and all Canonical Hours.
+ </p><p> <b>Fourth Rule</b>. The fourth: To praise much Religious Orders, virginity and continence, and not so much marriage as any of these.
+ </p><p> <b>Fifth Rule</b>. The fifth: To praise vows of Religion, of obedience, of poverty, of chastity and of other perfections of supererogation. And it is to be noted that as the vow is about the things which approach to Evangelical perfection, a vow ought not to be made in the things which withdraw from it, such as to be a merchant, or to be married, etc.
+ </p><p> <b>Sixth Rule</b>. To praise relics of the Saints, giving veneration to them and praying to the Saints; and to praise Stations, pilgrimages, Indulgences, pardons, Cruzadas, and candles lighted in the churches.
+ </p><p> <b>Seventh Rule</b>. To praise Constitutions about fasts and abstinence, as of Lent, Ember Days, Vigils, Friday and Saturday; likewise penances, not only interior, but also exterior.
+ </p><p> <b>Eighth Rule</b>. To praise the ornaments and the buildings of churches; likewise images, and to venerate them according to what they represent.
+ </p><p> <b>Ninth Rule</b>. Finally, to praise all precepts of the Church, keeping the mind prompt to find reasons in their defence and in no manner against them.
+ </p><p> <b>Tenth Rule</b>. We ought to be more prompt to find good and praise as well the Constitutions and recommendations as the ways of our Superiors. Because, although some are not or have not been such, to speak against them, whether preaching in public or discoursing before the common people, would rather give rise to fault-finding and scandal than profit; and so the people would be incensed against their Superiors, whether temporal or spiritual. So that, as it does harm to speak evil to the common people of Superiors in their absence, so it can make profit to speak of the evil ways to the persons themselves who can remedy them.
+ </p><p> <b>Eleventh Rule</b>. To praise positive and scholastic learning. Because, as it is more proper to the Positive Doctors, as St. Jerome, St. Augustine and St. Gregory, etc., to move the heart to love and serve God our Lord in everything; so it is more proper to the Scholastics, as St. Thomas, St. Bonaventure, and to the Master of the Sentences, etc., to define or explain for our times <a name="fr_40"></a><a href="seil83.htm#fn_40"><font size="1">41</font></a> the things necessary for eternal salvation; and to combat and explain better all errors and all fallacies. For the Scholastic Doctors, as they are more modern, not only help themselves with the true understanding of the Sacred Scripture and of the Positive and holy Doctors, but also, they being enlightened and clarified by the Divine virtue, help themselves by the Councils, Canons and Constitutions of our holy Mother the Church.
+ </p><p> <b>Twelfth Rule</b>. We ought to be on our guard in making comparison of those of us who are alive to the blessed passed away, because error is committed not a little in this; that is to say, in saying, this one knows more than St. Augustine; he is another, or greater than, St. Francis; he is another St. Paul in goodness, holiness, etc.
+ </p><p> <b>Thirteenth Rule</b>. To be right in everything, we ought always to hold that the white which I see, is black, if the Hierarchical Church so decides it, believing that between Christ our Lord, the Bridegroom, and the Church, His Bride, there is the same Spirit which governs and directs us for the salvation of our souls. Because by the same Spirit and our Lord Who gave the ten Commandments, our holy Mother the Church is directed and governed.
+ </p><p> <b>Fourteenth Rule</b>. Although there is much truth in the assertion that no one can save himself without being predestined and without having faith and grace; we must be very cautious in the manner of speaking and communicating with others about all these things.
+ </p><p> <b>Fifteenth Rule</b>. We ought not, by way of custom, to speak much of predestination; but if in some way and at some times one speaks, let him so speak that the common people may not come into any error, as sometimes happens, saying: Whether I have to be saved or condemned is already determined, and no other thing can now be, through my doing well or ill; and with this, growing lazy, they become negligent in the works which lead to the salvation and the spiritual <a name="fr_41"></a><a href="seil83.htm#fn_41"><font size="1">42</font></a> profit of their souls.
+ </p><p> <b>Sixteenth Rule</b>. In the same way, we must be on our guard that by talking much and with much insistence of faith, without any distinction and explanation, occasion be not given to the people to be lazy and slothful in works, whether before faith is formed in charity or after.
+ </p><p> <b>Seventeenth Rule</b>. Likewise, we ought not to speak so much with insistence on grace that the poison of discarding liberty be engendered.
+ </p><p> So that of faith and grace one can speak as much as is possible with the Divine help for the greater praise of His Divine Majesty, but not in such way, nor in such manners, especially in our so dangerous times, that works and free will receive any harm, or be held for nothing.
+ </p><p> <b>Eighteenth Rule</b>. Although serving God our Lord much out of pure love is to be esteemed above all; we ought to praise much the fear of His Divine Majesty, because not only filial fear is a thing pious and most holy, but even servile fear -- when the man reaches nothing else better or more useful -- helps much to get out of mortal sin. And when he is out, he easily comes to filial fear, which is all acceptable and grateful to God our Lord: as being at one with the Divine Love.
+ </p><p> 
+ </p><p> 
+ </p><p> </p><hr>
+ <center>
+ <a href="seil83.htm">Next: Footnotes</a></center>
+ </body>
