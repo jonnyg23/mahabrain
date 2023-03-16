@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc004.htm">Previous</a> 
+ <a href="agjc006.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>SECTION II<br> <br> BETH<br> <br> Birth and Infancy of the Harbinger, and of Jesus</h4> <h4>Chapter 2</h4> <i>
+ </i><p>Zacharias and Elizabeth. Prophetic messages of Gabriel to Zacharias, Elizabeth and Mary. Birth of John. Prophecy of Zacharias.<br> <br> <b>1. </b>Near Hebron in the hills of Judah, Zacharias and Elizabeth abode.<br> <b>2. </b>They were devote and just, and every day they read the Law, the Prophets and the Psalms which told of one to come, strong to redeem; and they were waiting for the king.<br> <b>3. </b>Now, Zacharias was a priest, and in his turn he led the temple service in Jerusalem.<br> <b>4. </b>It came to pass as Zacharias stood before the Lord and burned the incense in the Holy Place, that Gabriel came and stood before his face.<br> <b>5. </b>And Zacharias was afraid; he thought that some great evil was about to come upon the Jews.<br> <b>6. </b>But Gabriel said, O man of God, fear not; I bring to you and all the world, a message of good will, and peace on earth.<br> <b>7. </b>Behold, the Prince of Peace, the king you seek, will quickly come.<br> <b>8. </b>Your wife will bear to you a son, a holy son, of whom the prophet wrote,<br> <b>9. </b>Behold, I send Elijah unto you again before the coming of the Lord; and he will level down the hills and fill the valleys up, and pave the way for him who shall redeem.<br> <b>10. </b>From the beginning of the age your son has borne the name of John, the mercy of the Lord; his name is John.<br> <b>11. </b>He will be honoured in the sight of God, and he will drink no wine, and from his birth he will be filled with Holy Breath.<br> <b>12. </b>And Gabriel stood before Elizabeth as she was in the silence of her home, and told her all the words that he had said to Zacharias in Jerusalem.<br> <b>13. </b>When he had done the service of his course, the priest went home, and with Elizabeth rejoiced.<br> <b>14. </b>Five months passed by and Gabriel came to Mary in her home in Nazareth and said,<br> <b>15. </b>Hail Mary, hail! Once blessed in the name of God; twice blessed in the name of Holy Breath; thrice blessed in the name of Christ; for you are worthy, and will bear a son who shall be called Immanuel.<br> <b>16. </b>His name is Jesus, for he saves his people from their sins.<br> <b>17. </b>When Joseph's daily task was done he came, and Mary told him all the words that Gabriel spoke to her, and they rejoiced; for they believed that he, the man of God, had spoken words of truth.<br> <b>18. </b>And Mary went with haste to tell Elizabeth about the promises of Gabriel; together they rejoiced.<br> <b>19. </b>And in the home of Zacharias and Elizabeth did Mary tarry ninety days; then she returned to Nazareth.<br> <b>20. </b>To Zacharias and Elizabeth a son was born, and Zacharias said,<br> <b>21. </b>Most blessed be the name of God, for he has opened up the fount of blessings for his people, Israel.<br> <b>22. </b>His promises are verified; for he has brought to pass the words which holy prophets spoke in olden times.<br> <b>23. </b>And Zacharias looked upon infant John, and said,<br> <b>24. </b>You shall be called the prophet of the Holy One; and you will go before his face, and will prepare his way.<br> <b>25. </b>And you will give a knowledge of salvation unto Israel; and you will preach the gospel of repentance and the blotting out of sins.<br> <b>26. </b>Behold, for soon the Day Star from on high will visit us, to light the way for those who sit within the darkness of the shadow-land, and guide our ways to the feet of peace.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc006.htm">Next: Chapter 3</a></center>
+ </div>
+ </center></body>

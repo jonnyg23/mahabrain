@@ -1,0 +1,77 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Islam</a> 
+ <a href="index.htm">Index</a> 
+ <a href="bus08.htm">Previous</a> 
+ <a href="bus10.htm">Next</a> 
+ </center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Bustan of Sadi</i>, tr. by A. Hart Edwards, [1911], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_91"><font size="1" color="green">p. 91</font></a></p>  <h3 align="center">CHAPTER V</h3>  
+ <p align="center"><span style="font-variant:small-caps;">Concerning Resignation</span></p>  
+ <p><span style="font-variant:small-caps;">Happiness</span> comes from the favour of God, not from the might of the powerful. If the heavens bestow not fortune, by no valour can it be obtained.</p>  
+ <p>The ant suffers not by reason of its weakness; the tiger eats not by virtue of its strength.</p>  
+ <p>Since the hand reaches not to the skies, accept as inevitable the fortune that it brings.</p>  
+ <p>If thy life is destined to be long, no snake nor sword will harm thee; when the fated day of death arrives, the antidote will kill thee no less than the poison.</p>  <h4 align="center">STORY OF A SOLDIER OF ISFAHAN</h4>  
+ <p>In Isfahan I had a friend who was warlike, spirited, and shrewd. His hands and dagger were for ever stained with blood. The hearts of his enemies were consumed by fear of him; even the tigers stood in awe of him. In battle he was like a sparrow among locusts; in combat,</p>  
+ <p><a name="page_92"><font size="1" color="green">p. 92</font></a></p>  
+ <p>sparrows and men were alike to him. Had he made an attack upon Faridun, he would not have given the latter time to draw his sword. Neither in bravery nor magnanimity had he an. equal.</p>  
+ <p>This warrior formed a liking for my company; but as I was not destined to remain in Isfahan, Fate transferred me from Iraq to Syria, in which holy land my staying was agreeable. After some time the desire for my home attracted me, so I returned to Iraq.</p>  
+ <p>One night, the memory of the sepoy passed through my mind; the salt of his friendship opened the wounds of my gratitude, for I had eaten salt from his hand. To meet him, I. went to Isfahan, and inquired as to where he lived.</p>  
+ <p>I chanced upon him. He who had been a youth had become old; his form, once erect as. an arrow, had become as a bow. Like a hoary mountain, his head was covered with snowy hair; Time had conquered him and twisted the wrist of his bravery. The pride of his strength had gone; the head of weakness was upon his knees,</p>  
+ <p><a name="page_93"><font size="1" color="green">p. 93</font></a></p>  
+ <p>"O tiger-seizer!" I exclaimed, "what has made thee decrepit like an old fox?"</p>  
+ <p>He laughed and said: "Since the day of the battle of Tartary, I have expelled the thoughts of fighting from my head. Then did I see the earth arrayed with spears like a forest of reeds. I raised like smoke the dust of conflict; but when Fortune does not favour, of what avail is fury? I am one who, in combat, could take with a spear a ring from the palm of the hand; but, as my star did not befriend me, they encircled me as with a ring. I seized the opportunity of flight, for only a fool strives with Fate. How could my helmet and cuirass aid me when my bright star favoured me not? When the key of victory is not in the hand, no one can break open the door of conquest with his arms.</p>  
+ <p>"The enemy were a pack of leopards, and as strong as elephants. The heads of the heroes were encased in iron, as were also the hoofs of the horses. We urged on our Arab steeds like a cloud, and when the two armies encountered each other thou wouldst have said they had struck the sky down to the earth. From the</p>  
+ <p><a name="page_94"><font size="1" color="green">p. 94</font></a></p>  
+ <p>raining of arrows, that descended like hail, the storm of death arose in every corner. Not one of our troops came out of the battle but his cuirass was soaked with blood. Not that our swords were blunt—it was the vengeance of stars of ill fortune. Overpowered, we surrendered, like a fish which, though protected by scales, is caught by the hook in the bait. Since Fortune averted her face, useless was our shield against the arrows of Fate."</p>  <h4 align="center">STORY OF THE DOCTOR AND THE VILLAGER</h4>  
+ <p>One night a villager could not sleep owing to a pain in his side. A doctor said: "This pain is caused by his having eaten the leaves of the vine. I shall be astonished if he lasts through the night, for the arrows of a Tartar in his breast were better for him than the eating of such indigestible food."</p>  
+ <p>That night the doctor died; forty years have since passed, and villager yet lives.</p>  <h4 align="center">STORY OF THE VILLAGER AND HIS ASS</h4>  
+ <p>The ass of a villager died, so he set the head upon a vine in his garden in order that it might ward off the Evil Eye.</p>  
+ <p><a name="page_95"><font size="1" color="green">p. 95</font></a></p>  
+ <p>A sage old man passed by and laughingly remarked: "Dost think, O friend, this will effect thy purpose? In life, the ass could not protect itself from blows; so, in weakness, did it die."</p>  
+ <p>What knows the physician of the condition of the sick, when, helpless, he himself will die through illness?</p>  <h4 align="center">STORY ILLUSTRATING LUCK</h4>  
+ <p>A poor man dropped a dinar in the road. He searched much, but at last, despairing, abandoned the attempt.</p>  
+ <p>Some one came along and found the coin by chance.</p>  
+ <p>God and ill fortune are predestined. Our daily portion depends not upon our strength and efforts, for those who are strongest and strive the most stand often in the direst need.</p>  <h4 align="center">STORY OF ONE WHO BLAMED HIS DESTINY</h4>  
+ <p>There was once a rich and prosperous man named Bakhtyar. The wife of one of his neighbours, who was in the other extreme of poverty, upbraided her husband one night when he went to her empty-handed, saying: "No one is so poor and unfortunate as thee. Take a</p>  
+ <p><a name="page_96"><font size="1" color="green">p. 96</font></a></p>  
+ <p>lesson from thy neighbours, who are well-to-do. Why art thou not fortunate, like them?"</p>  
+ <p>The man replied: "I am incapable of aught; quarrel not with Fate. I have not been endowed with the power to make myself a Bakhtyar." <a href="bus15.htm#an_25">25</a></p>  <h4 align="center">STORY OF A DARWESH AND HIS WIFE</h4>  
+ <p>A Darwesh remarked to his wife, who was of ill-favoured countenance: "Since Fate has made thee ugly, do not encrust thy face with cosmetic."</p>  
+ <p>Who can attain good fortune by force! Who, with collyrium, can make the blind to see?</p>  
+ <p>Not one among the philosophers of Greece or Rome could produce honey from the thorn.</p>  
+ <p>Wild beasts cannot become men; education is wasted upon them.</p>  
+ <p>A mirror can be freed from stain, but it cannot be made from a stone.</p>  
+ <p>Roses do not blossom on the branches of the willow; hot baths never yet made an Ethiop white.</p>  
+ <p><a name="page_97"><font size="1" color="green">p. 97</font></a></p>  
+ <p>Since one cannot escape the arrows of Fate, resignation is the only shield.</p>  <h4 align="center">STORY OF A VULTURE AND A KITE</h4>  
+ <p>A vulture said to a kite: "No one can see so far as I."</p>  
+ <p>"Possibly," replied the kite; "but what canst thou see across the desert?"</p>  
+ <p>Gazing down, the vulture exclaimed: "Yonder do I see a grain of wheat."</p>  
+ <p>Thereupon, they flew to the ground. When the vulture settled upon the wheat he became caught in a trap. He had not known that, through his eating the grain, Fate would ensnare him by the neck.</p>  
+ <p>Not every oyster contains a pearl; not every archer hits the target.</p>  
+ <p>"Of what use," the kite inquired, "was it to see the grain when thou couldst not discern the trap of thine enemy?"</p>  
+ <p>"Caution," said the captive vulture, "availeth not with Destiny."</p>  
+ <p>When the decrees of past eternity are brought to action, the keenest eyes are rendered blind by Fate.</p>  
+ <p><a name="page_98"><font size="1" color="green">p. 98</font></a></p>  
+ <p>In the ocean, where no shore-line appears, the swimmer strives in vain.</p>  <h4 align="center">STORY OF A CAMEL</h4>  
+ <p>A young camel said to its mother: "After thou hast made a journey, rest awhile."</p>  
+ <p>"If the bridle were in my hands," was the reply, "no one would ever see me in the string of camels with a load upon my back."</p>  
+ <p>Fate is the helmsman of the ship of life, no, matter though the owner rend his clothes.</p>  
+ <p>O Sadi! look not for aid from any man. God is the giver, and He alone. If thou worship Him, the door of His mercy sufficeth thee; if He drive thee away, no one will ease thee. If He make thee to wear a crown, raise thy head; if not, bow thy head in despair.</p>  <h4 align="center">DISCOURSE CONCERNING HYPOCRISY</h4>  
+ <p>Who knows that thou art not pledged to, God even though thou standest in prayer without ablution?</p>  
+ <p>That prayer is the key to hell which thou performest only before the eyes of men.</p>  
+ <p><a name="page_99"><font size="1" color="green">p. 99</font></a></p>  
+ <p>If the high-road of thy life lead to aught but God, thy prayer-mat will be thrown into the fire.</p>  
+ <p>He whose heart is good and makes no outward show of piety is better than one of outward sanctity whose heart is false.</p>  
+ <p>A night-prowling robber is better than a sinner in the tunic of a saint.</p>  
+ <p>Expect not wages from Omar, O son, when thou workest in the house of Zaid.</p>  
+ <p>If in private I am bad and mean, of what avail is it to pose before the world with honour? How much will the bag of hypocrisy weigh in the Scales of Justice?</p>  
+ <p>The outside of the hypocrite's coat is neater than the lining, for the one is seen and the other is hidden.</p>  
+ <p></p><hr>
+ <center>
+ <a href="bus10.htm">Next: Chapter VI. Concerning Contentment</a></center>
+ </body>

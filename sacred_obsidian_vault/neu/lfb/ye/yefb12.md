@@ -1,0 +1,49 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Legends and Sagas</a> 
+ <a href="../index.htm">Lang Fairy Books</a> 
+ <a href="index.htm">Index</a> 
+ <a href="yefb11.htm">Previous</a> 
+ <a href="yefb13.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Yellow Fairy Book</i>, by Andrew Lang, [1889], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_60"><font size="1" color="green">p. 60</font></a></p>  
+ <p><a name="an_f10"></a></p>  
+ <p align="center">THE SEVEN-HEADED SERPENT <a name="fr_8"></a><a href="#fn_8"><font size="1">1</font></a></p>  
+ <p>Once upon a time there was a king who determined to take a long voyage.  He assembled his fleet and all the seamen, and set out.  They went straight on night and day, until they came to an island which was covered with large trees, and under every tree lay a lion.  As soon as the King had landed his men, the lions all rose up together and tried to devour them.  After a long battle they managed to overcome the wild beasts, but the greater number of the men were killed.  Those who remained alive now went on through the forest and found on the other side of it a beautiful garden, in which all the plants of the world flourished together.</p>  
+ <p>There were also in the garden three springs: the first flowed with silver, the second with gold, and the third with pearls.  The men unbuckled their knapsacks and filled them with those precious things.  In the middle of the garden they found a large lake, and when they reached the edge of it the Lake began to speak, and said to them, 'What men are you, and what brings you here?  Are you come to visit our king?'  But they were too much frightened to answer.</p>  
+ <p>Then the Lake said, 'You do well to be afraid, for it is at your peril that you are come hither.  Our king, who has seven heads, is now asleep, but in a few minutes he will wake up and come to me to take his bath!  Woe to anyone who meets him in the garden, for it is impossible to escape from him.  This is what you must do if you wish to save your lives.  Take off your clothes and spread them on the path which leads from here to the castle.  The King will then glide over something soft, which he likes very much, and he will be so pleased with that that he will not devour you.  He will give you some punishment, but then he will let you go.'</p>  
+ <p>The men did as the Lake advised them, and waited for a time.  At noon the earth began to quake, and opened in many places, and out of the openings appeared lions, tigers, and other wild beasts,</p>  
+ <p>
+ </p>  
+ <p><a name="page_61"><font size="1" color="green">p. 61</font></a></p>  
+ <p>which surrounded the castle, and thousands and thousands of beasts came out of the castle following their king, the Seven-headed Serpent.  The Serpent glided over the clothes which were spread for him, came to the Lake, and asked it who had strewed those soft things on the path?  The Lake answered that it had been done by people who had come to do him homage.  The King commanded that the men should be brought before him.  They came humbly on their knees, and in a few words told him their story.  Then he spoke to them with a mighty and terrible voice, and said, 'Because you have dared to come here, I lay upon you the punishment.  Every year you must bring me from among your people twelve youths and twelve maidens, that I may devour them.  If you do not do this, I will destroy your whole nation.'</p>  
+ <p>Then he desired one of his beasts to show the men the way out of the garden, and dismissed them.  They then left the island and went back to their own country, where they related what had happened to them.  Soon the time came round when the king of the beasts would expect the youths and maidens to be brought to him.  The King therefore issued a proclamation inviting twelve youths and twelve maidens to offer themselves up to save their country; and immediately many young people, far more than enough, hastened to do so.  A new ship was built, and set with black sails, and in it the youths and maidens who were appointed for the king of the beasts embarked and set out for his country.  When they arrived there they went at once to the Lake, and this time the lions did not stir, nor did the springs flow, and neither did the Lake speak.  So they waited then, and it was not long before the earth quaked even more terribly than the first time.  The Seven-headed Serpent came without his train of beasts, saw his prey waiting for him, and devoured it at one mouthful.  Then the ship's crew returned home, and the same thing happened yearly until many years had passed.</p>  
+ <p>Now the King of this unhappy country was growing old, and so was the Queen, and they had no children.  One day the Queen was sitting at the window weeping bitterly because she was childless, and knew that the crown would therefore pass to strangers after the King's death.  Suddenly a little old woman appeared before her, holding an apple in her hand, and said, 'Why do you weep, my Queen, and what makes you so unhappy?'</p>  
+ <p>'Alas, good mother,' answered the Queen, 'I am unhappy because I have no children.'</p>  
+ <p><a name="page_62"><font size="1" color="green">p. 62</font></a></p>  
+ <p>'Is that what vexes you?' said the old woman.  'Listen to me.  I am a nun from the <i>Spinning Convent</i>, <a name="fr_9"></a><a href="#fn_9"><font size="1">1</font></a> and my mother when she died left me this apple.  Whoever eats this apple shall have a child.'</p>  
+ <p>The Queen gave money to the old woman, and bought the apple from her.  Then she peeled it, ate it, and threw the rind out of the window, and it so happened that a mare that was running loose in the court below ate up the rind.  After a time the Queen had a little boy, and the mare also had a male foal.  The boy and the foal grew up together and loved each other like brothers.  In course of time the King died, and so did the Queen, and their son, who was now nineteen years old, was left alone.  One day, when he and his horse were talking together, the Horse said to him, 'Listen to me, for I love you and wish for your good and that of the country.  If you go on every year sending twelve youths and twelve maidens to the King of the Beasts, your country will very soon be ruined.  Mount upon my back: I will take you to a woman who can direct you how to kill the Seven-headed Serpent.'</p>  
+ <p>Then the youth mounted his horse, who carried him far away to a mountain which was hollow, for in its side was a great underground cavern.  In the cavern sat an old woman spinning.  This was the cloister of the nuns, and the old woman was the Abbess.  They all spent their time in spinning, and that is why the convent has this name.  All round the walls of the cavern there were beds cut out of the solid rock, upon which the nuns slept, and in the middle a light was burning.  It was the duty of the nuns to watch the light in turns, that it might never go out, and if anyone of them let it go out the others put her to death.</p>  
+ <p>As soon as the King's son saw the old Abbess spinning he threw himself at her feet and entreated her to tell him how he could kill the Seven-headed Serpent.</p>  
+ <p>She made the youth rise, embraced him, and said, 'Know, my son, that it is I who sent the nun to your mother and caused you to be born, and with you the horse, with whose help you will be able to free the world from the monster.  I will tell you what you have to do.  Load your horse with cotton, and go by a secret passage which I will show you, which is hidden from the wild beasts, to the Serpent's palace.  You will find the King asleep upon his bed, which is all hung round with bells, and over his bed you will see a sword hanging.  With this sword only it is possible to kill the Serpent, because even if its blade breaks a new one will grow again</p>  
+ <p>
+ </p>  
+ <p><a name="page_63"><font size="1" color="green">p. 63</font></a></p>  
+ <p>for every head the monster has.  Thus you will be able to cut off all his seven heads.  And this you must also do in order to deceive the King: you must slip into his bed-chamber very softly, and stop up all the bells which are round his bed with cotton.  Then take down the sword gently, and quickly give the monster a blow on his tail with it.  This will make him waken up, and if he catches sight of you he will seize you.  But you must quickly cut off his first head, and then wait till the next one comes up.  Then strike it off also, and so go on till you have cut off all his seven heads.'</p>  
+ <p>The old Abbess then gave the Prince her blessing, and he set out upon his enterprise, arrived at the Serpent's castle by following the secret passage which she had shown him, and by carefully attending to all her directions he happily succeeded in killing the monster.  As soon as the wild beasts heard of their king's death, they all hastened to the castle, but the youth had long since mounted his horse and was already far out of their reach.  They pursued him as fast as they could, but they found it impossible to overtake him, and he reached home in safety.  Thus he freed his country from this terrible oppression.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_8"></a><a href="yefb12.htm#fr_8">60:1</a> 'Die Siebenköpfige Schlange,' from Schmidt's <i>Griechische</i><i> Mährchen</i>.</p>
+ <p><a name="fn_9"></a><a href="yefb12.htm#fr_9">62:1</a> Convent Gnothi.</p>
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="yefb13.htm">Next: The Grateful Beasts</a></center>
+ </div>
+ </center></body>

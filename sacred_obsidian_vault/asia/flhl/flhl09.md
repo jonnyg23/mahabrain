@@ -1,0 +1,25 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Asia</a> 
+ <a href="index.htm">Index</a> 
+ <a href="flhl08.htm">Previous</a> 
+ <a href="flhl10.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0028Y4OOY/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Folk-lore of the Holy Land, Moslem, Christian and Jewish</i>, by J. E. Hanauer [1907], at sacred-texts.com</font></p><hr>  <h3 align="center">VI</h3>  <h4 align="center">LOT AND THE TREE OF THE CROSS</h4>  
+ <p>OUR father Adam, on his death-bed, was so terrified at the thought of dissolution, that he sent his son, the patriarch Seth, to the gate of Paradise to beg the</p>  
+ <p><a name="page_37"><font size="1" color="green">p. 37</font></a></p>  
+ <p>cherub on guard there to give him a single fruit from the tree of Life. The Angel, unable to grant the request, yet touched with pity for the fallen race, by Allah's leave plucked a branch that had three twigs, and gave it to the messenger. Seth returned to find his father dead. He planted the branch at the head of Adam's grave, where it took root and grew through the centuries. Though it survived the Flood, it was forgotten by mankind.</p>  
+ <p>Now the patriarch Lot, whose wife had been changed into the huge column of rock-salt which is still a sight of wonder near Jebel Usdum on the southern shores of the sea which bears his name, fell into sin so grievous that, when his conscience awoke, he despaired of salvation. He might have killed himself had not an angel from Allah appeared and told him to take a jar full of water from the Jordan, and go into the hill-country to water a small tree that he would find growing at the head of Adam's grave. The angel also told him that the plant, if it throve, would be a means of grace for all mankind. Lot sped with joy on his errand. It was a terribly hot day, and a fierce scirocco-wind was blowing when Lot set out to do the angel's bidding. As he toiled up the steep ascent to the spot where the khan, called the "Inn of the Good Samaritan," now stands, he saw a pilgrim (some say a <i>Russian</i> pilgrim) lying beside the road, apparently at the last gasp. Lot, being kind of heart, knelt down and offered him a draught of water. Great was his astonishment when the pilgrim, who was no</p>  
+ <p><a name="page_38"><font size="1" color="green">p. 38</font></a></p>  
+ <p>other than the Evil One in human form, at one draught emptied the jar.</p>  
+ <p>Without a word Lot trudged back to the Jordan and refilled the vessel; but again, when he had brought it a good part of the way, Satan, in the guise of a worn-out pilgrim, abused his kindness and drank all the water. A third attempt was frustrated in the same way. At last the penitent, overwhelmed by this third failure, threw himself on the ground, moaning: "If I fail to relieve the suffering I shall add another to the sins which weigh me down. Yet, if I give drink to every thirsty man I meet, how shall I water the tree of my salvation?" Overcome by fatigue and sorrow he fell asleep where he lay, and in a dream the angel once more appeared to him and told him who the pretended pilgrims really were, adding that his unselfishness had proved acceptable to Allah, and that his sins were forgiven; while, as for the tree, it had been watered by angels.</p>  
+ <p>Lot died in peace, and the tree grew and flourished, but the Devil ceased not to scheme for its destruction till at length he succeeded in persuading Hiram to cut it down for the building of Solomon's temple. Thus the trunk was carried to Jerusalem, but the architect, finding no use for it, had it thrown into the valley eastward of Jerusalem, where it served as a footbridge across the torrent of the Kedron, and was thus used till Belkis, Queen of Sheba, came to visit Solomon. As she drew near to the city she was inspired with consciousness of the precious nature of the bridge she had to cross, and on reaching</p>  
+ <p><a name="page_39"><font size="1" color="green">p. 39</font></a></p>  
+ <p>it she refused to set foot on it, but knelt and worshipped. The wise King of Israel, who had come forth to meet his guest, was greatly surprised at her behaviour; but when she told him whence the trunk came, and the purpose it was destined to serve, he had it taken up, carefully cleaned, and preserved in one of the treasure-chambers of the Temple. There it remained until it was required to make the cross on which Christ died. Anyone who cares to examine the present stone bridge over the Kedron, close to Absalom's Pillar, can see some of the large stones where the trunk once lay.</p>  
+ <p></p><hr>
+ <center>
+ <a href="flhl10.htm">Next: VII. The Deaths of Moses and Aaron</a></center>
+ </body>

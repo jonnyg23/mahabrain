@@ -1,0 +1,29 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Africa</a> 
+ <a href="index.htm">Index</a> 
+ <a href="xft00.htm">Previous</a> 
+ <a href="xft02.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Kaffir (Xhosa) Folk-Lore</i>, by George McCall Theal, [1886], at sacred-texts.com</font></p><hr>  <h1 align="CENTER">PREFACE.</h1> 
+ <p>OF late years a great deal of interest has been taken in the folklore of uncivilized tribes by those who have made it their business to study mankind. It has been found that a knowledge of the traditionary tales of a people is a key to their ideas and a standard of their powers of thought. These stories display their imaginative faculties; they are guides to the nature of the religious belief, of the form of government, of the marriage customs, in short, of much that relates to both the inner and the outer life of those by whom they are told.</p> 
+ <p>These tales also show the relationship between tribes and peoples of different countries and even of different languages. They are evidences that the same ideas are common to every branch of the human family at the same stage of progress. On this account, it is now generally recognised that in order to obtain correct information concerning an uncivilized race, a knowledge of their folklore is necessary. Without this a survey is no more complete than, for instance, a description of the English people would be if no notice of English literature were taken.</p> 
+ <p>It is with a view of letting the people we have chosen to call Kaffirs describe themselves in their own words, that these stories have been collected and printed. They form only a small portion of the folklore that is extant among them, but it is believed that they have been so selected as to leave no distinguishing feature unrepresented.</p> 
+ <p>Though these traditionary tales are very generally known, there are of course some persons who can relate them much better than others. The best narrators are almost invariably ancient dames, and the time chosen for story telling is always the evening. This is perhaps not so much on account of the evening being the most convenient time, as because such tales as these have most effect when told to an assemblage gathered round a fire circle, when night has spread her mantle over the earth, and when the belief in the supernatural is stronger than it is by day. Hence it may easily happen that persons may mix much with Kaffirs without even suspecting that they have in their possession a rich fund of legendary lore.</p> 
+ <p>There is a peculiarity in many of these stories which makes them capable of almost indefinite expansion. They are so constructed that parts of one can be made to fit into parts of another, so as to form a new tale. In this respect they are like the blocks of wood in the form of cubes with which European children amuse themselves. Combined in one way they present the picture of a lion, another combination shows a map of Europe, another still, a view of St. Paul's, and so on. So with many of these tales. They are made up of fragments which are capable of a variety of combinations.</p> 
+ <p>It will surprise no one to learn that these tales are already undergoing great changes among a very large section of the natives on the border. Tens of thousands of Kaffirs have adopted the religion of the Europeans, and the facility with which such changes can be made as were alluded to in the last paragraph has encouraged them to introduce ideas borrowed from their teachers. Thus with them Satan of whom they had no conception before the advent of Europeans-is now the prompter to evil, and morals are drawn that never could have entered their heads in days of old. Their tales are thus a counterpart of the narrators, in possessing an adaptability to growth and a power of conformation to altered circumstances.</p> 
+ <p>It is necessary to say a few words concerning the care that has been taken to give absolutely not a single sentence in any of these tales that has not come from native sources. Most of them have been obtained from at least ten or twelve individuals residing in different parts of the country, and they have all undergone a thorough revision by a circle of natives. They were not only told by natives, but were copied down by natives. The notes only are my own. I have directed the work of others, but have myself done nothing more than was necessary to explain the text. For this I can claim to be qualified by an intimate knowledge of the Kaffir people, gained through intercourse with them during a period of twenty years, and while filling positions among them varying from a mission teacher to a border magistrate.</p> 
+ <p>Alost of the tales collected in this book have already appeared in various South African papers and magazines, some as far back as 1874. They were arranged for publication in a volume which was to have been issued from the press of the Lovedale Missionary Institution, and the first sheet was already printed, when the disturbances of 1877 took place. I was then called away to perform work of a very different kind, and the publication was necessarily suspended. The book is now issued, in the hope that it may be found useful, as throwing light upon the mode of life of a people who differ from ourselves in many respects besides degree of civilization.</p> 
+ <p align="RIGHT">GEO. M. THEAL</p> <i>
+ </i><p>Jan. 1882.</p>   
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="xft02.htm">Next: Contents</a></center>
+ </div>
+ </center></body>

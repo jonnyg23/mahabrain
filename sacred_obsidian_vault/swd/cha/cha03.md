@@ -1,0 +1,142 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Swedenborg</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cha02.htm">Previous</a> 
+ <a href="cha04.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/087785145X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Charity</i>, by Emanuel Swedenborg, [1766], tr. by John Whitehead [1914] at sacred-texts.com</font></p><hr>
+ <h3 align="CENTER">Charity</h3>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="101.">101.</a></font></span>
+ <p>As there are genera of affections, and species of these genera, so there are also of charities. There are therefore charities in the plural, and there are degrees of charity of a twofold kind; which degrees are dealt with in ANGELIC WISDOM CONCERNING THE DIVINE LOVE AND WISDOM, PART III. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="102.">102.</a></font></span>
+ <p>3. A man ought to be a charity in form, not from himself but from the Lord; thus he is a receptacle of charity.    The life of a man who is to be regenerated is the affection of truth from good, or charity; and that life does not exist except from Life, thus from the Lord who is Life in Himself, as He Himself teaches: that He is "the Way, the Truth, and the Life"; <a name="fr_14"></a><a href="#fn_14"><font size="1">102-1</font></a> and elsewhere, that "As the Father hath Life in Himself, so hath He given unto the Son to have Life in Himself"; <a name="fr_15"></a><a href="#fn_15"><font size="1">102-2</font></a> and elsewhere. But, because Life is God, the Divine cannot be appropriated to man, who is finite and created, but it can inflow into, and be adjoined to, a receptacle; just as the eye is not light in itself, but can receive light, and as the ear is not hearing in itself, but is the receptacle for it. So with the rest of the senses. So, also, with the mind and its interior senses. </p>
+ 
+ 
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="103.">103.</a></font></span>
+ <p>Man, therefore, is indeed the subject of charity but a receptive subject, for he is created into form receptive of life, just as the eye is created into a form receptive of light and its objects of sight by means of light; and the ear into a form receptive of sound by means of inflowing sound with its harmonies. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="104.">104.</a></font></span>
+ <p>He who believes he is a form of charity from himself is mistaken; either he believes that he is God, or he believes that the Divine is transfused into him: so he denies God; or, if he does not think this, he places merit in works of charity, and so his external is made a charity, and not his internal; and in that case the Lord cannot dwell with him. The Lord does not dwell in the things of a man's proprium, but in that which is His own. He must dwell in what is Divine, and so He makes the man receptive of the Divine proceeding, which is of charity. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="105.">105.</a></font></span>
+ <p>Man, however, is so created that he may think and will as from himself, and therefore speak and act as from himself; yet it is given him to know that every good of charity and truth of faith is from the Lord. He who does not think according to this truth is not in the light (lux) of truth, but in a fatuous light (lumen), and this, in the light of heaven, is darkness; and as a result he cannot be enlightened in any other truths, except as concerns the memory only, but not as concerns perception, which is faith in its essence. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="106.">106.</a></font></span>
+ <p>From these things it is evident that a man is only a form of charity, and that the charity is of the Lord with him; and that it is given to the man as if he himself were the charity, to the end that he may become the receptacle of it, and so be in reciprocal conjunction, as from himself, though really from the Lord. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="107.">107.</a></font></span>
+ <p>4. A man is a form of charity of such a quality as, with him, good of the will is conjoined to truths of the understanding.    Everything of the will is called a good, and everything of the understanding a truth, because the will is in the heat of heaven, and the understanding in the light of heaven. And just as the will without the understanding has not any quality, and so cannot be called anything, but takes on a quality and becomes something in the understanding, and becomes of such and such a quality, or is something or other, according to what is in the understanding; - so it is in the case of a good without truth, and a good with truth. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="108.">108.</a></font></span>
+ <p>Genuine truths should be learned therefore: with them the good of the will conjoins itself, and thus does the good of the will become the good of charity. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="109.">109.</a></font></span>
+ <p>It is in this way, that is, from the truths in the understanding, that every variety of charity originates; for a truth in its essence is a good, the truth being the form of the good, precisely as speech is the voice's form. Let this be illustrated. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="110.">110.</a></font></span>
+ <p>There are two forms of the voice; the one of singing, the other of speech; likewise of the affection of truth from good, or of charity. Let these things be treated of. N.B. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="111.">111.</a></font></span>
+ <p>This being so, it is accordingly said that charity is the affection of truth from good, or the affection of spiritual truth. From this comes the affection of rational or moral truth, and the affection of civil or natural truth. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="112.">112.</a></font></span>
+ <p>It is in consequence of this that they who are in charity are in light, or, if they are not in it, that they love light. Light is truth and heat is good; and it is well known that all quickening and fructification is from good by means of truth; so also is spiritual quickening and fructification. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="113.">113.</a></font></span>
+ <p>Those who are not in charity, however, do not love truth in the light, but they are able to love truth in the shade; and this truth is what the truth of faith is at the present day, that is, that it ought to be believed to be true, although it is not seen to be so with the understanding. In this way, indeed, falsity may be called truth, and, from its confirmation, may be called <a name="fr_16"></a><a href="#fn_16"><font size="1">113-1</font></a> truth; as is done. </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="114.">114.</a></font></span>
+ <p>5. Whatever proceeds from such a man derives from that form that it is a likeness of it; thus it is charity.    There are three things that proceed; there is thought, there is speech, and there is action. From a man who is a form of charity, there proceeds thought from the affection that is charity, speech from the voice which is of affection, and in which there is the affection of the thought, and action by means of a movement in which there is charity. This movement proceeds from effort; and the affection of the thought makes the effort. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="115.">115.</a></font></span>
+ <p>The form of charity is first of all in his interior perception, which proceeds from the heat and light of the Spiritual. There, indeed, the man himself is a man. Out of that, charity is brought forth into the resulting or lower things; it both puts itself forth and brings itself into effect, scarcely otherwise than as there is produced from a seed the shoot and, little by little, the tree, the tree becoming as it were a tree in permanent being; while its fruits are the good works that are done, from the will Of good through the understanding of truth, in the body. And so the tree first has existence. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="116.">116.</a></font></span>
+ <p>Its inmost form is like seed. It is well known that no other thing can spring from a seed than what is of that stock. It is the same with all, though with much variation; but still both the twig and the branch with fruit on them, are recognized as being from that tree. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="117.">117.</a></font></span>
+ <p>Whatever, therefore, a man does who inwardly is a charity, is from his charity, although his deeds and speech and thoughts are of unlimited variety. All the things he brings forth are as it were images of him under differing forms, in all which, however, there is a common form, as the plane out of which they are (ex quo). <a name="fr_17"></a><a href="#fn_17"><font size="1">117-1</font></a> </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="118.">118.</a></font></span>
+ <p>For this reason it happens that, if only a man's ruling affection is known, then, when he is saying or doing anything, another recognizes from what purpose and from what love, as it were from what fountain, it springs. The Lord says that an evil tree bringeth forth evil fruit, and a good tree good fruit, and that an evil tree cannot bring forth good fruit. <a name="fr_18"></a><a href="#fn_18"><font size="1">118-1</font></a> </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="119.">119.</a></font></span>
+ <p>A man's life is in everything he wills and thinks, in everything he says, and in everything he does. No one can carry out any action from life other than his own; all these things are effects of his life; and therefore there is the likeness. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="120.">120.</a></font></span>
+ <p>In the spiritual world all affections are imaged forth variously, as trees, gardens, birds, animals: in these, when inmostly inspected, there is seen to be an image of the man; they are representatives of him. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="121.">121.</a></font></span>
+ <p>In a word, there is an image of the man in each and every one of these things. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="122.">122.</a></font></span>
+ <p>6. The neighbour can be loved from what is not charity; and yet this, regarded in itself, is not loving the neighbour.    Let examples illustrate. An evil man can love a good man, and yet not in himself love good. Of a gentile, who says he will do his work faithfully because God so wills, one can say, "This is a man an atheist can love." When anyone who does not love his country hears someone else speaking and knows that he does love his country, he can as it were love him for it. He listens to him, saying to himself, "He is good at heart; he speaks from love," paying heed to him. I have heard hundreds pay heed to a man reputed to love his country, and scarcely ten of them were men who loved their country. The same can be the case with anyone who, hearing a preacher, says that he speaks from God, out of zeal for their souls; and these who do not love God at all, and believe nothing, are affected all the same while hearing him, and they praise him, and love him, and send him gifts. Every sincere man is loved by some who are insincere; every truthful man is loved by some liars; the faithful man by the unfaithful; the chaste man who loves his wife, by the unchaste; and so on.  </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="123.">123.</a></font></span>
+ <p>However, this happens with every one while paying attention in a general way; but as soon as general perception passes away, then the light passes away too. This takes place when he submits the matter to the observation of his lower thought, and considers whether it is so or not. Into this thought there inflows light from the man or the world, whereas into general thought there inflows light out of heaven. This light inflows into man's intellectual continually, if only he does not let himself down into his own light; for, if he is that kind of man, he then extinguishes the light of heaven. All men have a general perception of truth; but the love of what is lower casts a man down precipitately into perception from the proprium. This perception is a material communicating with the sight of the eye. It is phantasy or imagination. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="124.">124.</a></font></span>
+ <p>7. He loves the neighbour, who does so from the charity in himself.    He conjoins himself with his neighbour's good and not with his person; and therefore, if the person departs from good, he does not love him. This conjunction, however, is a spiritual conjunction, because the neighbour, in a spiritual idea, is good. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="125.">125.</a></font></span>
+ <p>Consequently, for a man to love the neighbour, he must be a charity in form. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="126.">126.</a></font></span>
+ <p>[VI] A MAN IS BORN TO THE END THAT HE MAY BECOME A CHARITY; BUT HE CANNOT BECOME A CHARITY UNLESS HE CONSTANTLY DOES THE GOOD OF USE TO THE NEIGHBOUR FROM AFFECTION AND DELIGHT. General explanation in this order:  (1) The general good exists from the goods of use the individuals each perform; and the goods of use they each perform subsist from the general good. (2) Ministries, functions, offices, and various employments are the goods of use the individuals each perform, from which the general good exists. (3) All the offices and employments in a kingdom, commonwealth, or community, regarded as to the goods of use, make a form which corresponds to the heavenly form. (4) They also make a form which corresponds to the human form. (5) In this form, each one is a good of use in accordance with the scope of his office or employment. <a name="fr_19"></a><a href="#fn_19"><font size="1">126-1</font></a> </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="127.">127.</a></font></span>
+ <p>1. The general good exists from the goods of use the individuals each perform; and the goods of use they each perform subsist from the general good.    They are termed goods of use because all the goods which are of love towards the neighbour, or of charity, are uses, and all uses are goods, and therefore are named in one term, goods of use. They are also called fruits of use. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="128.">128.</a></font></span>
+ <p>It is well known that every man is born to perform uses, and that he does perform uses to others. He who does not is, indeed, called a useless member, and rejected: he who performs uses to himself alone is also a useless member, although not so called. In a well constituted commonwealth, therefore, provision is made that no one shall be useless: if any one is useless, he is driven to some work; even a beggar is, if he is healthy. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="129.">129.</a></font></span>
+ <p>Infants and children, so long as they are under nurses and masters, are not, indeed, performing goods of use, but yet they are learning to perform them, and should have them for an end. Then the good of use is in the end. For a house to be built, the materials must first be obtained, and the foundation laid, and the walls erected; and so finally the house is inhabited. The good of a house is the dwelling in it. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="130.">130.</a></font></span>
+ <p>The general good consists of these things: That in a society or kingdom there should be 1. What is Divine among them. 2. What is just among them. 3. What is moral among them. 4. Diligence, skill, and uprightness among them. 5. The necessaries for life. 6. The necessaries for all kinds of work. 7. The necessaries for protection. 8. Sufficient wealth, because these three kinds of necessaries are procured with it. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="131.">131.</a></font></span>
+ <p>The general good is from these things, coming not from the things themselves, but from each of the individuals there, and through the goods of use which they each perform - as what is Divine is indeed there by means of ministers, and what is just by means of governors and judges; as what is moral is there by means of what is Divine and what is just; and as necessaries are there by means of all kinds of work and commerce; and so on. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="132.">132.</a></font></span>
+ <p>It is well known that every general is constituted of particulars. That is why it is called a general. Such, therefore, as the parts are, such is the general. A garden in general is of such a quality as are its trees and their fruits; meadows in general are of such a quality as are their crops; fields in general are of such a quality as their seed and its herbs and flowers; a ship in general is of such a quality as all its parts, which are several. The order among the parts, and the quality of the parts, causes the general to be more perfect or more imperfect. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="133.">133.</a></font></span>
+ <p>That the goods of use which individuals each perform subsist from the general good, is well known; for each one derives his own good of use from the general. All things necessary for life, industries, and protection, and the wealth by which these necessaries are obtained, are from this; for by a general is meant not only a community and its society, but a whole region, and also a kingdom. But as these subjects are very extensive, they will be more clearly set forth in what follows; for there are many varieties, which however always agree with this law. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="134.">134.</a></font></span>
+ <p>2. Ministries, functions, offices, and various occupations are the goods of use the individuals each perform, from which the general good exists. By ministries are meant the activities of the priesthood and the duties connected with them; by functions are meant various civil positions; and by employments are meant occupations like those of the several kinds of craftsmen, by offices are meant various professions, businesses, and positions of service. Of these four the commonwealth, or society, consists. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="135.">135.</a></font></span>
+ <p>Those who are in ministries are responsible for what is Divine being there; the functions of those in the various civil positions for what is just being there, and also what is moral, as well as diligence, skill, and uprightness; the various workmen for the necessaries for life, and business men for the necessaries for all kinds of work; soldiers, for protection, and this last especially to ensure sufficient wealth; also farmers. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="136.">136.</a></font></span>
+ <p>Every one may know that the general good is in accordance with the goods of every kind, the industries, the pursuits. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="137.">137.</a></font></span>
+ <p>3. All the offices and employments, regarded as to the goods of use, make a form which corresponds to the heavenly form.    The heavenly form is such that everyone there is in some ministry, some function, in some office or employment, and in some work. All heavenly societies are such that no one there is useless. He who does no work, wanting to live in idleness, or only to talk, walk about, and sleep, is not tolerated there. All things there are so ordered that they are allotted a place nearer or further from the centre, in accordance with their use. The nearer to the centre, the more magnificent are the palaces; the further from the centre, the less magnificent are they. They are different in the east, the west, the south, and the north. Every one, on coming into a society, is initiated into his occupation, and is allotted a house corresponding to his work. Every society is a series of affections, in the order of the heavens. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="138.">138.</a></font></span>
+ <p>Every one there is delighted with his own pursuit; it is the source of his delight. They shun idleness as one would a plague. The reason is this, that every one there does his work as from the love of use, and so has heart-felt delights; the love of use inflows out of the general body into him. From a heavenly society, in the first instance, it was given me to know that not only do the individuals, disposed in accordance with the varieties of their affections, make the general good, but that every one derives his own good from the general good. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="139.">139.</a></font></span>
+ <p>So it is on earth; for in this way an earthly society corresponds to a heavenly society; and when it corresponds, then what is Divine is there, what is just is there, what is moral and upright is there, good sense is there, diligence is there. The general inspires these things into each of the parts, when the part, which is an angel, is in charity. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="140.">140.</a></font></span>
+ <p>The necessaries for life and for all kinds of work, and also riches, and especially enjoyment and happiness, are given to him out of the general body, in the measure that he is a charity. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="141.">141.</a></font></span>
+ <p>But people do not know this on earth, where everyone places delight and good fortune in honours and wealth. Those who do so on earth become mean and poor, and carry on an existence in the hells; while he who applies himself to some occupation from an affection of charity, comes into a heavenly society. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="142.">142.</a></font></span>
+ <p>In a heavenly society there are functions, offices, and occupations innumerable, all spiritual, which might indeed be described, but not so as to be apprehended. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="143.">143.</a></font></span>
+ <p>4. They also make a form which corresponds to the human form.    It is similar in the human body. There, all the parts are goods of use in a most perfect form. And as they are in a most perfect form, they are felt as a one; nevertheless they are all different, and in each of these there are different things in their own series and their own order. There are the five organs of sense, the several viscera, the organs of generation, several in each sex; there are the external members; there are still more things of the mind, that is, of the will and the understanding. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="144.">144.</a></font></span>
+ <p>The general things in the body are the heart and the lungs. Their actions inflow into all parts of the body, organs, viscera, and members. In the mind, it is the will and the understanding that are the general things. The general things there look to the individual things as their parts from which it subsists; and the general looks to the parts from which it exists. <a name="fr_20"></a><a href="#fn_20"><font size="1">144-1</font></a> </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="145.">145.</a></font></span>
+ <p>All things there are formed from use, in use, and for use; they are all forms of use. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="146.">146.</a></font></span>
+ <p>In the living [animali] body the form of government is such that any one part draws its portion from the general, and it takes care that the general gives to the part, so that it may subsist. The heart gives blood to each of the parts throughout the body; and any one of these, as it has need of it, takes what suits it, and surrenders something from its own store. In a word, the, form is a wonderful one. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="147.">147.</a></font></span>
+ <p>There is the heavenly form of use in it; as is confirmed by the fact that any one heavenly society is like a man; moreover, it appears like a man. The uses there make that man, because the form of a heavenly society corresponds to the form of the living [animalis] body in respect of its uses. </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="148.">148.</a></font></span>
+ <p>The heavenly form is, in the least things and in the greatest things, a man; consequently the entire heaven is a Man, every society is a man, each individual angel is a man. This is because the Lord, from whom is heaven, is Man. <a name="fr_21"></a><a href="#fn_21"><font size="1">148-1</font></a> </p>
+ 
+ 
+ <span class="margnote"><font color="GREEN" size="-1"><a name="149.">149.</a></font></span>
+ <p>5. In this form, each one is a good of use in accordance with the scope of his office or employment.    Charity is nothing else than the affection of truth from good, and the affection of truth from good is the affection of use. For unless the affection of truth from good is brought into act, it perishes; and an act therefrom is a use.  </p>
+ <span class="margnote"><font color="GREEN" size="-1"><a name="150.">150.</a></font></span>
+ <p>Genuine truth, the affection of which is charity, looks to nothing else than life with the neighbour; and therefore, the affection of truth from good is nothing else. The good from which this affection is, is a desiring to do, and a desiring to know for the sake of doing; otherwise it is not the genuine good from which truth is. </p>
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_14"></a><a href="cha03.htm#fr_14">102-1</a>  John xiv. 6. </p>
+ <p><a name="fn_15"></a><a href="cha03.htm#fr_15">102-2</a>  John v. 26. </p>
+ <p><a name="fn_16"></a><a href="cha03.htm#fr_16">113-1</a>  The MS. here reads "called" (vocari), but the context suggests that "believed" (credi) may have been intended. </p>
+ <p><a name="fn_17"></a><a href="cha03.htm#fr_17">117-1</a>  The following note is on the left-hand margin of the original MS. opposite nos. 117-122: "There is a compassion of charity, a clemency of charity, a friendship of charity, a good-will of charity, a modesty of charity: in a word, all virtues are of charity, but they come another name, and so under another category. </p>
+ <p><a name="fn_18"></a><a href="cha03.htm#fr_18">118-1</a>  Matt. vii. 17, 18; Luke vi. 43. </p>
+ <p><a name="fn_19"></a><a href="cha03.htm#fr_19">126-1</a>  Sections 4 and 5 represent in each case the Author's second version, as shown by crossed out passages in the MS. A sixth section, which has been scored out, is substantially the same as the heading of chapter VII, number 158. </p>
+ <p><a name="fn_20"></a><a href="cha03.htm#fr_20">144-1</a>  There is a crossing out in this sentence, from which a confusion has arisen. Possibly Swedenborg meant to write, "The general things there look to the individual things as their parts from which they exist, and the parts look to the general from which they subsist," which would agree with what is said elsewhere. </p>
+ <p><a name="fn_21"></a><a href="cha03.htm#fr_21">148-1</a>  In the MS. here, following a crossed out draft of subsection 5, there is the statement, "Man is a form of heaven . . ." An examination of the MS. shows that most probably it should have been deleted. </p>
+ <hr>
+ <center>
+ <a href="cha04.htm">Next: 151-200</a></center>
+ </body>

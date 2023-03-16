@@ -172,6 +172,3 @@ dmypy.json
  
 # Cython debug symbols
 cython_debug/
-
-# Sacred Texts Obsidian Vault
-/sacred_obsidian_vault

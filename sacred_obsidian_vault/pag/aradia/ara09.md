@@ -1,0 +1,41 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Neopaganism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ara08.htm">Previous</a> 
+ <a href="ara10.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B001VH8HW4/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Aradia, Gospel of the Witches</i>, by Charles G. Leland, [1899], at sacred-texts.com</font></p><hr> 
+ <p><a name="page_38"><font size="1" color="green">p. 38</font></a></p> <h1 align="CENTER">CHAPTER VII</h1> <h3 align="CENTER">To Find or Buy Anything, or to Have Good Fortune Thereby</h3> <i>
+ </i><p align="CENTER">An Invocation or Incantation to Diana.</p> 
+ <p>The man or woman who, when about to go forth into the town, would fain be free from danger or risk of an accident: or to have good fortune in buying, as, for instance, if a scholar hopes that he may find some rare old book or manuscript for sale very cheaply, or if any one wishes to buy anything very desirable or to find bargains or rarities. This <i>scongiurazione</i> one serves for good health, cheerfulness of heart, and absence of evil or the overcoming enmity. These are words of gold unto the believer.</p> <i>
+ </i><p align="CENTER">The Invocation.</p>  <dir>  
+ <p>Siamo di Martedi e a buon ora<br> Mi voglio levare la buona fortuna,<br> Voglio andare e cercare,<br> E coll aiuto della bella <i>Diana</i>,<br> La voglio trovare prima d'andare,<br> Prima di sortir di casa<br> Il malocchio mi levero <a name="page_39"><font size="1" color="green">p. 39</font></a><br> Con tre gocciole d'olio, <a name="fr_15"></a><a href="#fn_15"><font size="1">1</font></a><br> E te bella <i>Diana</i> io invoco<br> Che tu possa mandarmi via<br> Il malocchio da dosse a me<br> E mandala al mio più nemico!</p> 
+ <p>Quando il malocchio<br> Mi saro levato<br> In mezza alla via lo gettero,<br> Se questa grazia mi farei<br> Diana bella,<br> Tutti i campanelli<br> Di mia casa bene suonerai,<br> Allora contento di casa me ne andro,<br> Perche col tuo aiuto (saro) certo di trovare,<br> Buona fortuna, certo di trovare<br> Un bel libro antico,<br> E a buon mercato<br> Me lo farai comprare!</p> 
+ <p>Tu stessa dal proprietario<br> Che avra il libro<br> Te ne andrai tu stessa<br> Lo troverai e lo farei,</p>  </dir>   
+ <p>
+ </p>  
+ <p><a name="page_40"><font size="1" color="green">p. 40</font></a></p>  <dir>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Capitare in mano al padrone,<br> E le farai capitare<br> In mano al padrone,<br> E le farai entrare<br> Nel cervello che se di quel libro<br> Non si disfara la scomunica,<br> Le portera, cosi questo dell'libro,<br> Verra disfarsi e col tuo aiuto,<br> Verra portato alla mia presenza,<br> E a poco me to vendera,<br> Oppure se e'un <i>manoscritto</i>,<br> Invece di libro per la via lo gettera,<br> E col tuo aiuto verra in mia presenza,<br> E potrò acquistarlo<br> Senza nessuna spesa;<br> E cosi per me<br> Sara grande fortuna!</p>  </dir>   <i>
+ </i><p align="CENTER">To Diana.</p>  <dir>  
+ <p>'Tis Tuesday now, and at an early hour<br> I fain would turn good fortune to myself,<br> Firstly at home and then when I go forth,<br> And with the aid of beautiful Diana<br> I pray for luck ere I do leave this house!</p> 
+ <p>First with three drops of oil I do remove<br> All evil influence, and I humbly pray,<br> O beautiful <i>Diana</i>, unto thee<br> That thou wilt take it all away from me,<br> And send it all to my worst enemy!</p>  </dir>   
+ <p><a name="page_41"><font size="1" color="green">p. 41</font></a></p>  <dir>  
+ <p>When the evil fortune<br> Is taken from me,<br> I'll cast it out to the middle of the street:<br> And if thou wilt grant me this favour,<br> O beautiful Diana,<br> Every bell in my house shall merrily ring!</p> 
+ <p>Then well contented<br> I will go forth to roam,<br> Because I shall be sure that with thy aid<br> I shall discover ere I return<br> Some fine and ancient books,<br> And at a moderate price.</p> 
+ <p>And thou shalt find the man,<br> The one who owns the book,<br> And thou thyself wilt go<br> And put it in his mind,<br> Inspiring him to know<br> What 'tis that thou would'st find<br> And move him into doing<br> All that thou dost require.<br> Or if a manuscript<br> Written in ancient days,<br> Thou'lt gain it all the same,<br> It shall come in thy way,<br> And thus at little cost.<br> Thou shalt buy what thou wilt,<br> By great <i>Diana's</i> aid.</p>  </dir>  
+ <p><a name="page_42"><font size="1" color="green">p. 42</font></a></p> 
+ <p>The foregoing was obtained, after some delay, in reply to a query as to what conjuration would be required before going forth, to make sure that one should find for sale some rare book, or other object desired, at a very moderate price. Therefore the invocation has been so worded as to make it applicable to literary finds; but those who wish to buy anything whatever on equally favourable terms, have but to vary the request, retaining the introduction, in which the magic virtue consists. I cannot, however, resist the conviction that it is most applicable to, and will succeed best with, researches for objects of antiquity, scholarship, and art, and it should accordingly be deeply impressed on the memory of every bric-à-brac hunter and bibliographer. It should be observed, and that earnestly, that the prayer, far from being answered, will turn to the contrary or misfortune, unless the one who repeats it does so in fullest faith, and this cannot be acquired by merely saying to oneself, "I believe." For to acquire real faith in anything requires long and serious mental discipline, there being, in fact, no subject which is so generally spoken of and so little understood. Here, indeed, I am speaking seriously, for the man who can train his faith to actually believe in and cultivate or develop his will can really work what the</p> 
+ <p><a name="page_43"><font size="1" color="green">p. 43</font></a></p> 
+ <p>world by common consent regards as miracles. A time will come when this principle will form not only the basis of all education, but also that of all moral and social culture. I have, I trust, fully set it forth in a work entitled "Have you a Strong Will? or how to Develop it or any other Faculty or Attribute of the Mind, and render it Habitual," &amp;c. London: George Redway.</p> 
+ <p>The reader, however, who has devout faith, can, as the witches declare, apply this spell daily before going forth to procuring or obtaining any kind of bargains at shops, to picking up or discovering lost objects, or, in fact, to finds of any kind. If he incline to beauty in female form, he will meet with <i>bonnes fortunes</i>; if a man of business, bargains will be his. The botanist who repeats it before going into the fields will probably discover some new plant, and the astronomer by night be almost certain to run against a brand new planet, or at least an asteroid. It should be repeated before going to the races, to visit friends, places of amusement, to buy or sell, to make speeches, and specially before hunting or any nocturnal goings--forth, since <i>Diana</i> is the goddess of the chase and of night. But woe to him who does it for a jest!</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_15"></a><a href="ara09.htm#fr_15">39:1</a> This refers to a small ceremony which I have seen performed scores of times, and have indeed had it performed over me almost as often, as an act of courtesy common among wizards and witches. It consists of making certain signs and crosses over a few drops of oil and the head of the one blessed, accompanied by a short incantation. I have had the ceremony seriously commended or prescribed to me as a means of keeping in good health and prosperity.</p>
+ <p></p><hr>
+ <center>
+ <a href="ara10.htm">Next: Chapter VIII. To Have a Good Vintage and Very Good Wine by the Aid of Diana</a></center>
+ </body>

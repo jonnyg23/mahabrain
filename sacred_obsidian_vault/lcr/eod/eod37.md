@@ -1,0 +1,84 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Legendary Creatures</a> 
+ <a href="index.htm">Index</a> 
+ <a href="eod36.htm">Previous</a> 
+ <a href="eod38.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/1434685950/internetsacredte">Buy this Book at Amazon.com</a><hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002G9UG48/internetsacredte">Buy this Book on Kindle</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Evolution of the Dragon</i>, by G. Elliot Smith, [1919], at sacred-texts.com</font></p><hr>  <h4 align="center">THE SWASTIKA.</h4>  
+ <p>Houssay (<i>op. cit. supra</i>) has made the interesting suggestion that the swastika may have been derived from such conventionalized representations of the octopus as are shown in <a href="eod36.htm#img_fig23">Fig. 23</a>. This series of sketches is taken from Tümpel's memoir, which provided the foundation for Houssay's hypothesis.</p>  
+ <p>A vast amount of attention has been devoted to this lucky symbol, <a name="fr_314"></a><a href="#fn_314"><font size="1">2</font></a> which still enjoys a widespread vogue at the present day, after a history of several thousand years. Although so much has been written in attempted explanation of the swastika since Houssay made his suggestion, so far as I am aware no one has paid the slightest attention to his hypothesis or made even a passing reference to his memoir. <a name="fr_315"></a><a href="#fn_315"><font size="1">3</font></a> Fantastic and far-fetched though it may seem at first sight (though surely not more so than the strictly orthodox solar theory advocated by Mr. Cook or Mrs. Nuttall's astral speculations) Houssay's suggestion offers an explanation of some of the salient attributes of the swastika on which the alternative hypotheses shed little or no light.</p>  
+ <p>Among the earliest known examples of the symbol are those</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_174"><font size="1" color="green">p. 174</font></a></p>  
+ <p>engraved upon the so-called "owl-shaped" (but, as Houssay has conclusively demonstrated, really octopus-shaped) vases and a metal figurine found by Schliemann in his excavations of the hill at Hissarlik. <a name="fr_316"></a><a href="#fn_316"><font size="1">1</font></a> The swastika is represented upon the <i>mons Veneris</i> of these figures, which represent the Great Mother in her form as a woman or as a pot, which is an anthropomorphized octopus, one of the <i>avatars</i> of the Great Mother. The symbol seems to have been intended as a fertility amulet like the cowry, either suspended from a girdle or depicted upon a pubic shield or conventionalized fig-leaf.</p>  
+ <p>Wherever it is found the swastika is supposed to be an amulet to confer "good luck" and long life. Both this reputation and the association with the female organs of reproduction link up the symbol with the cowry, the <i>Pterocera</i>, and the octopus. It is clear then that the swastika has the same reputation for magic and the same attributes and associations as the octopus; and it may be a conventionalized representation of it, as Houssay has suggested.</p>  
+ <p>It must not be assumed that the identification of the swastika with the Great Mother and her powers of giving life and resurrection <i>necessarily</i> invalidates the solar and astral theories recently championed by Mr. Cook and Mrs. Nuttall respectively. I have already called attention to the fact that the Sun-god derived his existence and all his attributes from his mother. The whole symbolism of the Winged Disk and the Wheel of the Sun and their reputation for life-giving and destruction were adopted from the Great Mother. These well-established facts should prepare us to recognize that the admission of the truth of Houssay's suggestion would not necessarily invalidate the more widely accepted solar significance of the swastika.</p>  
+ <p>Tümpel called attention to the fact that, when they set about conventionalizing the octopus, the Mycenæan artists often resorted to the practice of representing pairs of "arms" as units and so making four-limbed and three-limbed forms (<a href="eod36.htm#img_fig23">Fig. 23</a>), which Houssay regards as the prototypes of the swastika and the triskele respectively. That such a process may have played a part in the development of the symbol is further suggested by the form of a Transcaucasian swastika found by Rössler, <a name="fr_317"></a><a href="#fn_317"><font size="1">2</font></a> who assigns it to the Late Bronze or Early Iron Age. Each</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_175"><font size="1" color="green">p. 175</font></a></p>  
+ <p>of the four limbs is bifurcated at its extremity. Moreover they exhibit the series of spots, so often found upon or alongside the limbs of the symbol, which suggest the conventional way of representing the suckers of the octopus in the Mycenæan designs (<a href="eod36.htm#img_fig23">Fig. 23</a>).</p>  
+ <p>Another remarkable picture of a swastika-like emblem has been found in America. <a name="fr_318"></a><a href="#fn_318"><font size="1">1</font></a> The elephant-headed god sits in the centre and four pairs of arms radiate from him, each of them equipped with definite suckers.</p>  
+ <p>Another possible way in which the design of a four-limbed swastika may have been derived from an octopus is suggested by the gypsum weight found in 1901 by Sir Arthur Evans <a name="fr_319"></a><a href="#fn_319"><font size="1">2</font></a> in the West Magazine of the palace at Knossos (<i>circa</i> 1500 B.C.). Upon the surface of this weight the form of an octopus has been depicted, four of the arms of which stand out in much stronger relief than the others.</p>  
+ <p>The number four has a peculiar mystical significance (<i>vide infra</i>, <a href="eod40.htm#page_206">p. 206</a>) and is especially associated with the Sun-god Horus. This fact may have played some part in the process of reduction of the number of limbs of the octopus to four; or alternatively it may have helped to emphasize the solar associations of the symbol, which other considerations were responsible for suggesting. The designs upon the pots from Hissarlik show that at a relatively early epoch the swastika was confused with the sun's disc represented as a wheel with four spokes. <a name="fr_320"></a><a href="#fn_320"><font size="1">3</font></a> But the solar attributes of the swastika are secondary to those of life-giving and luck-bringing, with which it was originally endowed as a form of the Great Mother.</p>  
+ <p>The only serious fact which arouses some doubt as to the validity of Houssay's theory is the discovery of an early painted vase at Susa decorated with an unmistakable swastika. Edmond Pottier, who has described the ceramic ware from Susa, <a name="fr_321"></a><a href="#fn_321"><font size="1">4</font></a> regards this pot as Proto-Elamite of the earliest period. If Pottier's claim is justified we have in this isolated specimen from Susa the earliest example of the swastika. Moreover, it comes from a region in which the symbol was supposed to be wholly absent.</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_176"><font size="1" color="green">p. 176</font></a></p>  
+ <p>This raises a difficult problem for solution. Is the Proto-Elamite swastika the prototype of the symbol whose world-wide migrations have been studied by Wilson (<i>op. cit. supra</i>)? Or is it an instance of independent evolution? If it falls within the first category and is really the parent of the early Anatolian swastikas, how is it to be explained? Was the conventionalization of the octopus design much more ancient than the earliest Trojan examples of the symbol? Or was the Susian design adopted in the West and given a symbolic meaning which it did not have before then?</p>  
+ <p>These are questions which we are unable to answer at present because the necessary information is lacking. I have enumerated them merely to suggest that any hasty inferences regarding the bearing of the Susian design upon the general problem are apt to be misleading. Vincent <a name="fr_322"></a><a href="#fn_322"><font size="1">1</font></a> claims that the fact of the swastika having been in use by ceramic artists in Crete and Susiana many centuries before the appearance of Mycenæan art is fatal to Houssay's hypothesis. But I think it is too soon to make such an assumption. The swastika was already a rigidly conventionalized symbol when we first know it both in the Mediterranean and in Susiana. It may therefore have a long history behind it. The octopus may possibly have begun to play a part in the development of this symbolism before the Egyptian Bes (<i>vide supra</i>, <a href="eod36.htm#page_171">p. 171</a>) was evolved, perhaps even before the time of the Coptos statues of Min (<i>supra</i>, <a href="eod36.htm#page_169">p. 169</a>), or in the early days of Sumerian history when the conventional form of the water-pot was being determined (<i>infra</i>, <a href="eod38.htm#page_179">p. 179</a>). These are mere conjectures, which I mention merely for the purpose of suggesting that the time is not yet ripe for using such arguments as Vincent's finally to dispose of Houssay's octopus-theory.</p>  
+ <p>There can be no doubt that the symbolism of the Mycenæan spiral and the volute is closely related to the octopus. In fact, the evidence provided by Minoan paintings and Mycenæan decorative art demonstrates that the spiral as a symbol of life-giving was definitely derived from the octopus. The use of the volute on Egyptian scarabs <a name="fr_323"></a><a href="#fn_323"><font size="1">2</font></a> and also in the decoration of an early Thracian statuette of a nude</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_177"><font size="1" color="green">p. 177</font></a></p>  
+ <p>goddess <a name="fr_324"></a><a href="#fn_324"><font size="1">1</font></a> indicate that it was employed like the spiral and octopus as a life-symbol.</p>  
+ <p>In Spanish graves of the Early and Middle Neolithic types M. Siret found cowry-shells in association with a series of flint implements, crude idols, and pottery almost precisely reproducing the forms of similar objects found with cowries and pecten shells at Hissarlik. <a name="fr_325"></a><a href="#fn_325"><font size="1">2</font></a> But when the Æneolithic phase of culture dawned in Spain, and the Ægean octopus-motif made its appearance there, the culture as a whole reveals unmistakable evidence of a predominantly Egyptian inspiration.</p>  
+ <p>M. Siret claims, however, that, even in the Neolithic phase in Spain, the crude idols represent forms derived from the octopus in the Eastern Mediterranean (p. 59 <i>et seq.</i>). He regards the octopus as "a conventional symbol of the ocean, or, more precisely, of the fertilizing watery principle" (p. 19). He elucidates a very interesting feature of the Æneolithic representation of the octopus in Spain. The spiral-motif of the Ægean gives place to an angular design, which he claims to be due to the influence of the conventional Egyptian way of representing water (p. 40). If this interpretation is correctand, in spite of the slenderness of the evidence, I am inclined to accept itit affords a remarkable illustration of the effects of culture-contact in the conventionalization of designs, to which Dr. Rivers has called attention. <a name="fr_326"></a><a href="#fn_326"><font size="1">3</font></a> Whatever explanation may be provided of this method of representing the arms of the octopus with its angularly bent extremities, it seems to have an important bearing on Houssay's hypothesis of the swastika's origin. For it would reveal the means by which the spiral or volute shape of the limbs of the swastika became transformed into the angular form, which is so characteristic of the conventional symbol. <a name="fr_327"></a><a href="#fn_327"><font size="1">4</font></a></p>  
+ <p>The significance of the spiral as a form of the Great Mother inevitably led to its identification with the thunder weapon, like all her</p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p>
+ </p>  
+ <p><a name="page_178"><font size="1" color="green">p. 178</font></a></p>  
+ <p>other surrogates. I have already referred (Chapter II, <a href="eod22.htm#page_98">p. 98</a>) to the association of the spiral with thunder and lightning in Eastern Asia. But other factors played a significant part in determining this specialization. In Egypt the god Amen was identified with the ram; and this creature's spirally curved horn became the symbol of the thunder-god throughout the Mediterranean area, <a name="fr_328"></a><a href="eod38.htm#fn_328"><font size="1">1</font></a> and then further afield in Europe, Africa, and Asia, where, for instance, we see Agni's ram with the characteristic horn. This blending of the influence of the octopus- and the ram's-horn-motifs made the spiral a conventional representation of thunder. This is displayed in its most definite form in China, Japan, Indonesia, and America, where we find the separate spiral used as a thunder-symbol, and the spiral appendage on the side of the head as a token of the god of thunder. <a name="fr_329"></a><a href="eod38.htm#fn_329"><font size="1">2</font></a></p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_314"></a><a href="eod37.htm#fr_314">173:2</a> Thomas Wilson ("The Swastika, the Earliest Known Symbol, and its Migrations; with Observations on the Migration of Certain Industries in Prehistoric Times," <i>Report of the U. S. National Museum</i> for 1894, Washington, 1896) has given a full and well-illustrated summary of most of the literature: further information is provided by Count dAlviella (<i>op. cit. supra</i>), "The Migration of Symbols"; by Zelia Nuttall ("The Fundamental Principles of Old and New World Civilizations," <i>Archæological and Ethnological Papers of the Peabody Museum</i>, Cambridge, Mass., 1901); and Arthur Bernard Cook ("Zeus, A Study in Ancient Religion," Vol. I, Cambridge, 1914, pp. 472 <i>et seq</i>.).</p>
+ <p><a name="fn_315"></a><a href="eod37.htm#fr_315">173:3</a> Since this has been printed Mr. W. J. Perry has called my attention to a short article by René Croste ("Le Svastika," <i>Bull. Trimestriel de la Société Bayonnaise dÉtudes Regionales</i>," 1918), in which Houssay's hypothesis is mentioned as having been adopted by Guilleminot ("Les Nouveaux Horizons de la Science").</p>
+ <p><a name="fn_316"></a><a href="eod37.htm#fr_316">174:1</a> Wilson (<i>op. cit.</i>, pp. 829-33 and Figs. 125, 128, and 129) has collected the relevant passages and illustrations from Schliemann's writings.</p>
+ <p><a name="fn_317"></a><a href="eod37.htm#fr_317">174:2</a> <i>Zeitschrift für Ethnologie</i>, Bd. 37, p. 148.</p>
+ <p><a name="fn_318"></a><a href="eod37.htm#fr_318">175:1</a> Seler, <i>Zeitschrift für Ethnologie</i>, Bd., 41, p. 409.</p>
+ <p><a name="fn_319"></a><a href="eod37.htm#fr_319">175:2</a> <i>Corolla Numismatica</i>, 1906, p. 342.</p>
+ <p><a name="fn_320"></a><a href="eod37.htm#fr_320">175:3</a> A. B. Cook, "Zeus," pp. 198 <i>et seq</i>.</p>
+ <p><a name="fn_321"></a><a href="eod37.htm#fr_321">175:4</a> "Etude Historique et Chronologique sur les Vases Peints de lAcropole de Suse," <i>Mémoires de la Délégation en Perse</i>, T. XIII, <i>Rech. Archèol.</i>, 5<sup>e</sup> série, 1912, Plate XLI, Fig. 3.</p>
+ <p><a name="fn_322"></a><a href="eod37.htm#fr_322">176:1</a> "Canaan," p. 340, footnote.</p>
+ <p><a name="fn_323"></a><a href="eod37.htm#fr_323">176:2</a> Alice Grenfell, <i>Journal of Egyptian Archæology</i>, Vol. II, 1915, p. 217: and <i>Ancient Egypt</i>, 1916, Part I, p. 23.</p>
+ <p><a name="fn_324"></a><a href="eod37.htm#fr_324">177:1</a> S. Reinach, <i>Revue Archéol.</i>, T. XXVI, 1895, p. 369.</p>
+ <p><a name="fn_325"></a><a href="eod37.htm#fr_325">177:2</a> L. Siret, "Questions de Chronologie et dEthnographie Ibériques," 1913, p. 18, Fig. 3.</p>
+ <p><a name="fn_326"></a><a href="eod37.htm#fr_326">177:3</a> Rivers, "History of Melanesian Society," Vol. II, p. 374; also <i>Report Brit. Association</i>, 1912, p. 599.</p>
+ <p><a name="fn_327"></a><a href="eod37.htm#fr_327">177:4</a> M. Siret assigns the date of the appearance in Spain of the highly conventionalized angular form of octopus to the time between the fifteenth and the twelfth centuries B.C.; and he attributes it to Phnician influence (p. 63).</p>
+ <p></p><hr>
+ <center>
+ <a href="eod38.htm">Next: The Mother Pot</a></center>
+ </body>

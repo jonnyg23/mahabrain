@@ -1,0 +1,23 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cou63.htm">Previous</a> 
+ <a href="cou65.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B00295S2X6/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Cloud of Unknowing</i>, ed. by Evelyn Underhill, [1922], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_lxv"></a> </p>  
+ <p><a name="an_lxv-p1"></a> </p>  <h3 align="center"><a name="an_lxv-p1.1"></a>HERE BEGINNETH THE NINE AND FIFTIETH CHAPTER</h3>  
+ <p><a name="an_lxv-p2"></a> </p>  
+ <p><a name="an_lxv-p3"></a>That a man shall not take ensample at the bodily ascension of Christ, for to strain his imagination upwards bodily in the time of prayer: and that time, place, and body, these three should be forgotten in all ghostly working.</p>  
+ <p><a name="an_lxv-p4"></a><i> </i></p>  
+ <p><a name="an_lxv-p5"></a>AND if thou say aught touching the ascension of our Lord, for that was done bodily, and for a bodily bemeaning as well as for a ghostly, for both He ascended very God and very man: to this will I answer thee, that He had been dead, and was clad with undeadliness, and so shall we be at the Day of Doom. And then we shall be made so subtle in body and in soul together, that we shall be then as swiftly where us list bodily as we be <a name="an_lxv-p5.1"></a><a name="page_264"><font size="1" color="green">p. 264</font></a> <a name="an_lxv-Page_264"></a> now in our thought ghostly; whether it be up or down, on one side or on other, behind or before, all I hope shall then be alike good, as clerks say. But now thou mayest not come to heaven bodily, but ghostly. And yet it shall be so ghostly, that it shall not be on bodily manner; neither upwards nor downwards, nor on one side nor on other, behind nor before.</p>  
+ <p><a name="an_lxv-p6"></a>And wit well that all those that set them to be ghostly workers, and specially in the work of this book, that although they read “lift up” or “go in,” although all that the work of this book be called a stirring, nevertheless yet them behoveth to have a full busy beholding, that this stirring stretch neither up bodily, nor in bodily, nor yet that it be any such stirring as is from one place to another. And although that it be sometime called a rest, nevertheless yet they shall not think that it is any such rest as is any abiding in a place without removing therefrom. For the <a name="an_lxv-p6.1"></a><a name="page_265"><font size="1" color="green">p. 265</font></a> <a name="an_lxv-Page_265"></a> perfection of this work is so pure and so ghostly in itself, that an it be well and truly conceived, it shall be seen far removed from any stirring and from any place.</p>  
+ <p><a name="an_lxv-p7"></a>And it should by some reason rather be called a sudden changing, than any stirring of place. For time, place, and body: these three should be forgotten in all ghostly working. And therefore be wary in this work, that thou take none ensample at the bodily ascension of Christ for to strain thine imagination in the time of thy prayer bodily upwards, as thou wouldest climb above the moon. For it should on nowise be so, ghostly. But if thou shouldest ascend into heaven bodily, as Christ did, then thou mightest take ensample at it: but that may none do but God, as Himself witnesseth, saying: “There is no man that may ascend unto heaven but only He that descended from heaven, and became man for the love of man.” And if it were possible, as it on nowise may <a name="an_lxv-p7.1"></a><a name="page_266"><font size="1" color="green">p. 266</font></a> <a name="an_lxv-Page_266"></a> be, yet it should be for abundance of ghostly working only by the might of the spirit, full far from any bodily stressing or straining of our imagination bodily, either up, or in, on one side, or on other. And therefore let be such falsehood: it should not be so. <a name="an_lxv-p7.2"></a><a name="page_267"><font size="1" color="green">p. 267</font></a> <a name="an_lxv-Page_267"></a> </p>  
+ <p></p><hr>
+ <center>
+ <a href="cou65.htm">Next: Chapter 60: That the high and the next way to heaven is run by desires, and not by paces of feet</a></center>
+ </body>

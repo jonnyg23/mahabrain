@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc168.htm">Previous</a> 
+ <a href="agjc170.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 166</h4> <i>
+ </i><p>Jesus before the Sanhedrim. Nicodemus pleads for justice; he shows the incompetency of the witnesses. The council fail to declare Jesus guilty, but Caiaphas, the presiding judge, declares him guilty. The mob maltreat Jesus. He is taken to Pilate's court.<br> <br> <b>1. </b>When Jesus would not speak, Caiaphas stood before the Jewish mob and said,<br> <b>2. </b>Bind fast the prisoner, for he must go before the great Sanhedrim of the Jews to answer for his life.<br> <b>3. </b>We cannot execute a criminal until our findings have been verified by this, the highest council of the Jews.<br> <b>4. </b>As soon as it was day the highest council of the people met; the Lord and his accusers stood before the bar.<br> <b>5. </b>Caiaphas was the chief; he rose and said, Let the accusers of this man from Galilee bring forth their charges and their evidence.<br> <b>6. </b>Caiaphas' scribe stood forth and read the charges and the names of those who had accused the man from Galilee.<br> <b>7. </b>And all the witnesses were made to stand and testify before the council of the Jews.<br> <b>8. </b>And then the lawyers weighed the evidence, and Nicodemus stood among the men who plead.<br> <b>9. </b>He raised his hands and said, Let justice now be done, though every scribe and Pharisee and priest and Sadducee, as well as Jesus, the accused, be judged a liar.<br> <b>10. </b>If we can prove this Jesus to be foe and traitor to our laws and land, let him be judged a criminal and suffer for his crimes.<br> <b>11. </b>If it be proved that these who testify are perjurers in the sight of God and man, then let the man from Galilee go free.<br> <b>12. </b>And then he brought the testimonies of the witnesses before the judges of the law; no two of them agreed; In heat of passion, or for gain, the men had testified.<br> <b>13. </b>The council would have gladly judged that Jesus was a criminal and sentence him to death; but in the face of all the evidence they were afraid.<br> <b>14. </b>And then Caiaphas said, You man from Galilee, Before the living God, I now command that you shall answer me, Are you the Christ, the son of God?<br> <b>15. </b>And Jesus said, If I would answer, Yes, you would not hear, nor yet believe,<br> <b>16. </b>If I would answer, No, I would be like your witnesses, and stand a liar in the sight of man and God. But this I say,<br> <b>17. </b>The time will come when you will see the son of man upon the throne of power and coming in the clouds of heaven.<br> <b>18. </b>And then Caiaphas rent his clothes and said, Have you not heard enough? Did you not hear his vile blasphemous words? What further need have we of witnesses? What shall we do with him?<br> <b>19. </b>The people said, Put him to death. And then the mob rushed up and spit into his face, and struck him with their hands.<br> <b>20. </b>And then they bound a cloth about his eyes and smote him in the face and said, You are a prophet; tell us who it was who smote you in the face.<br> <b>21. </b>And Jesus answered not and like a lamb before his shearer he, the man from Galilee, resisted not.<br> <b>22. </b>Caiaphas said, We cannot put a man to death until the Roman ruler shall confirm the sentence of this court;<br> <b>23. </b>So take this criminal away and Pilate will endorse what we have done.<br> <b>24. </b>And then was Jesus dragged along the way up to the palace of the Roman governor.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc170.htm">Next: Chapter 167</a></center>
+ </div>
+ </center></body>

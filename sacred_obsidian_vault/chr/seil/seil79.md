@@ -1,0 +1,25 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="seil78.htm">Previous</a> 
+ <a href="seil80.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002B561B4/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Spiritual Exercises of St. Ignatius of Loyola</i>, [1914], at sacred-texts.com</font></p><hr> <a></a> <h2 align="center">RULES FOR THE SAME EFFECT WITH GREATER DISCERNMENT OF SPIRITS</h2> <h5 align="center">AND THEY HELP MORE FOR THE SECOND WEEK</h5> <b>First Rule</b>. The first: It is proper to God and to His Angels in their movements to give true spiritual gladness and joy, taking away all sadness and disturbance which the enemy brings on. Of this latter it is proper to fight against the spiritual gladness and consolation, bringing apparent reasons, subtleties and continual fallacies.
+ <p> <b>Second Rule</b>. The second: It belongs to God our Lord to give consolation to the soul without preceding cause, for it is the property of the Creator to enter, go out and cause movements in the soul, bringing it all into love of His Divine Majesty. I say without cause: without any previous sense or knowledge of any object through which such consolation would come, through one's acts of understanding and will.
+ </p><p> <b>Third Rule</b>. The third: With cause, as well the good Angel as the bad can console the soul, for contrary ends: the good Angel for the profit of the soul, that it may grow and rise from good to better, and the evil Angel, for the contrary, and later on to draw it to his damnable intention and wickedness.
+ </p><p> <b>Fourth Rule</b>. The fourth: It is proper to the evil Angel, who forms himself under the appearance of an angel of light, to enter with the devout soul and go out with himself: that is to say, to bring good and holy thoughts, conformable to such just soul, and then little by little he aims at coming out drawing the soul to his covert deceits and perverse intentions.
+ </p><p> <b>Fifth Rule</b>. The fifth: We ought to note well the course of the thoughts, and if the beginning, middle and end is all good, inclined to all good, it is a sign of the good Angel; but if in the course of the thoughts which he brings it ends in something bad, of a distracting tendency, or less good than what the soul had previously proposed to do, or if it weakens it or disquiets or disturbs the soul, taking away its peace, tranquillity and quiet, which it had before, it is a clear sign that it proceeds from the evil spirit, enemy of our profit and eternal salvation.
+ </p><p> <b>Sixth Rule</b>. The sixth: When the enemy of human nature has been perceived and known by his serpent's tail and the bad end to which he leads on, it helps the person who was tempted by him, to look immediately at the course of the good thoughts which he brought him at their beginning, and how little by little he aimed at making him descend from the spiritual sweetness and joy in which he was, so far as to bring him to his depraved intention; in order that with this experience, known and noted, the person may be able to guard for the future against his usual deceits.
+ </p><p> <b>Seventh Rule</b>. The seventh: In those who go on from good to better, the good Angel touches such soul sweetly, lightly and gently, like a drop of water which enters into a sponge; and the evil touches it sharply and with noise and disquiet, as when the drop of water falls on the stone.
+ </p><p> And the above-said spirits touch in a contrary way those who go on from bad to worse.
+ </p><p> The reason of this is that the disposition of the soul is contrary or like to the said Angels. Because, when it is contrary, they enter perceptibly with clatter and noise; and when it is like, they enter with silence as into their own home, through the open door.
+ </p><p> <b>Eighth Rule</b>. The eighth: When the consolation is without cause, although there be no deceit in it, as being of God our Lord alone, as was said; still the spiritual person to whom God gives such consolation, ought, with much vigilance and attention, to look at and distinguish the time itself of such actual consolation from the following, in which the soul remains warm and favored with the favor and remnants of the consolation past; for often in this second time, through one's own course of habits and the consequences of the concepts and judgments, or through the good spirit or through the bad, he forms various resolutions and opinions which are not given immediately by God our Lord, and therefore they have need to be very well examined before entire credit is given them, or they are put into effect.
+ </p><p>  
+ </p><p></p><hr>
+ <center>
+ <a href="seil80.htm">Next: Rules for Distributing Alms</a></center>
+ </body>

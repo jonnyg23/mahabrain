@@ -1,0 +1,38 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Maya</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ybac25.htm">Previous</a> 
+ <a href="ybac27.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0486236226/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Yucatan Before and After the Conquest</i>, by Diego de Landa, tr. William Gates, [1937], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_35"><font size="1" color="GREEN">p. 35</font></a></p>  <h3 align="center">SEC. XXII. PAINTING AND TATTOOING OF THE INDIANS. THEIR ORGIES, WINES AND BANQUETS. THEIR COMEDIES, MUSIC AND DANCES.</h3>  
+ <p>They tattoo their bodies and are accounted valiant and brave in proportion to its amount, for the process is very painful. In doing it the craftsman first covers the part he wishes with color, and then delicately pierces the pictures in the skin, so that the blood and color leaves the outlines on the body. This they do a little at a time, on account of the pain and because of the disorders that ensue; for the places fester and form matter. But for all this they ridicule those who are not tattooed. They set much store on amiability and the showing of graces and natural accomplishments; today they eat and drink as we do.</p>  
+ <p>The Indians are very dissolute in drinking and becoming intoxicated, and many ills follow their excesses in this way. They kill each other; violate their beds, the poor women thinking they are receiving their own husbands; they treat their own fathers and mothers as if they were in the houses of enemies; they set fire to their houses, and so destroy themselves in their<a name="img_03500"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/03500.jpg" alt="CORN FESTIVALDRESDEN CODEX"></td></tr></table> drunkenness. When the carouse is general, and for the sacrifices, all contribute to it; when private, the cost is borne by the entertainer, with the aid of his parents. Their wine they make of honey and water and the root of a certain tree they grow for the purpose,  and which gives the wine strength and a very disagreeable odor. At their dances and merry-makings they eat seated two by two, or in fours. After the eating the cup-bearers, who have had to remain sober, help themselves from great jars until they are overcome, and their wives have great trouble in getting their drunken<a name="img_03501"></a>
+ <table align="RIGHT"><tr><td align="CENTER" valign="CENTER"><img src="img/03501.jpg" alt="FIGURINE FROM ISLA JAINA"></td></tr></table> husbands home.  
+ <p>They often spend on one banquet all they have made by many days of trading or scheming. They have two methods of making these feasts; the first of these (that<a name="img_03502"></a>
+ </p><table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/03502.jpg" align="LEFT"></td></tr></table> of the chiefs and leading men) obliges each guest to return an invitation to his host; to each guest the host must give a roast fowl and cacao and drinks in abundance, and after the banquet it is the custom to present each with a mantle to wear, with a small stand  
+ <p><a name="page_36"><font size="1" color="GREEN">p. 36</font></a></p>  
+ <p>and a cup, as fine as the host can afford. If one of the guests has died, the obligation to give the return invitation lies on his house or parents.</p>  
+ <p>The other kind is between kinsfolk, when they marry <a name="img_03600"></a>
+ </p><table align="RIGHT"><tr><td align="CENTER" valign="CENTER"><img src="img/03600.jpg" align="RIGHT"></td></tr></table> their children or celebrate the deeds of their ancestors. This does not have to be returned, except that if a hundred Indians have invited one to a feast, all are invited by him when he makes a feast or marries his children.<a name="img_03601"></a>
+ <table align="LEFT"><tr><td align="CENTER" valign="CENTER"><img src="img/03601.jpg" align="LEFT"></td></tr></table> They think much of friendship and remember these invitations even when separated far from each other. At the banquets the drink is passed by beautiful women, who, after handing the goblet, turn the back until it is emptied.  
+ <p>The Indians have delightful ways of entertainment; particularly they have actors who perform with great skill, to such an extent as that they hire themselves to the Spaniards for nothing other than to observe the jests the Spaniards pass with their servants, their wives, and on themselves over their good or bad serving; all of this they act later with as much art as attentive Spaniards could.</p>  
+ <p>They have small drums which they strike with the hand, and another drum of hollow wood that gives a deep, mournful sound. This they hit with a longish stick at the end of which is a ball of a certain gum that exudes from a tree. They have long, thin trumpets of hollow wood, the end of which is formed of a large twisted gourd. They have another instrument made of a whole tortoise with its shells, from which the flesh has been removed; this they strike with the palm of the hand, giving a mournful, sad sound.</p>  
+ <p>They have whistles of cane and of deer hones, also large conchs and reed flutes; with these instruments they accompany the dancers. Two of their dances are especially virile and worth seeing; one is a game of reeds, whence they call it <b>colomché</b>, the word having that meaning [a 'palisade of sticks']. To perform it they make a large circle of dancers, whom the music accompanies, and in time with which two come into the circle; one of these dances erect, holding a handful of reeds, while the other dances squatting, both keeping time around the circle. The one with the reeds throws them with all his force at the other, who with great skill catches them with a shall rod. them all are thrown they return, keeping time, into the circle, and others come out to do the same.</p>  
+ <p>There is another dance in which 800 Indians, or more or less, dance with small flags in a great war measure, among all of them not one being out of</p>  
+ <p><a name="page_37"><font size="1" color="GREEN">p. 37</font></a></p>  
+ <p>time. They are heavy in their dances, since they do not cease dancing for the entire day, food and drink being brought to them. The men do not dance with the women.</p>  
+ <p align="center"><a name="img_03700"></a>
+ </p><p align="CENTER">
+ <a href="img/03700.jpg"><img src="tn/03700.jpg" alt="The &lt;b&gt;tunkul&lt;/b&gt; or Mexican &lt;b&gt;teponaztli&lt;/b&gt;; beaten with a rubber-tipped stick it can be heard for five or six miles."><br><font size="-3">Click to enlarge</font></a><br>The <b>tunkul</b> or Mexican <b>teponaztli</b>; beaten with a rubber-tipped stick it can be heard for five or six miles.<br></p>  
+ <p><font size="-1">The other cuts show a musical Corn Festival as pictured in the Dresden Codex; a pax or Mexican huehuetl, to be beaten with the flat palms; a clay figurine of a dancer, from Isla Jaina, off the west coast; a deity seated on the earth, blowing a pipe (this and the pax from the Madrid Codex); a clay pipe in the form of a lizard.</font></p>  
+ <p></p><hr>
+ <center>
+ <a href="ybac27.htm">Next: XXIII. Industry, Commerce and Money. Agriculture and Seeds. Justice and Hospitality</a></center>
+ </body>

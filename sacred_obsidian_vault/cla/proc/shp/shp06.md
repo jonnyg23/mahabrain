@@ -1,0 +1,41 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Classics</a> 
+ <a href="../index.htm">Procopius</a> 
+ <a href="index.htm">Index</a> 
+ <a href="shp05.htm">Previous</a> 
+ <a href="shp07.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/076617039X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Secret History of Procopius</i>, tr. by Richard Atwater, [1927], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_45"><font size="1" color="GREEN">p. 45</font></a></p>  <h3 align="center">III. SHOWING THE DANGER OF INTERFERING WITH A WOMAN'S INTRIGUES, ESPECIALLY WHEN THE WOMAN IS THE FRIEND OF AN EMPRESS</h3>  
+ <p>ON his return to Roman territory, Belisarius found his wife just arriving from Constantinople. He put her under guard in disgrace, and often was on the point of putting her to death; but each time he weakened, overcome, I suppose, by the rekindling of his love for her. But they say he was also driven from his senses by magic philtres she gave him.</p>  
+ <p>Meanwhile the outraged Photius had gone to Ephesus, taking the eunuch Calligonus, pander for his mistress, with him, in chains; and under the whip, during the course of his journey Calligonus confessed all his lady's secrets. But Theodosius again</p>  
+ <p><a name="page_46"><font size="1" color="GREEN">p. 46</font></a></p>  
+ <p>learned of his peril, and fled to the Church of St. John the Apostle, which is the holiest and most revered sanctuary thereabouts. However, Andrew, Bishop of Ephesus, was bribed by Photius to give the man up into his hands.</p>  
+ <p>Theodora was now in some fear for Antonina, for she had heard what had happened to her; so she sent word to Belisarius to bring his wife to Constantinople. Photius, hearing of this, sent Theodosius to Cilicia, where his own lancers and shield-bearers happened to be wintering; enjoining upon those who took him thither to do so as secretly as possible, and on arriving in Cilicia to hide him privately in the garrison, letting no one know where in the world he was. Then, with Calligonus and Theodosius's considerable moneys, Photius went to Constantinople.</p>  
+ <p>Now the Empress gave evidence to all mankind that for every murder to which she was indebted, she could pay in greater</p>  
+ <p><a name="page_47"><font size="1" color="GREEN">p. 47</font></a></p>  
+ <p>and even more savage requital. For Antonina had betrayed for her one enemy, when she had lately ensnared the Cappadocian; but she ruined, for Antonina's sake, a number of blameless men. Some of Belisarius's and Photius's acquaintances she put to the torture, when the only charge against them was that they were friends of the two (and to this day we do not know what was their ultimate fate), and others she banished into exile on the same accusation.</p>  
+ <p>One man who had accompanied Photius to Ephesus, a Senator who was also named Theodosius, not only lost his property but was thrown into a dungeon, where he was fastened to a manger by a rope around his neck so short that the noose was always tight and could not be slackened. Consequently the poor man had to stand at the manger all the time, whether he ate or sought sleep or performed the other needs of the body. The only difference between him and an ass, was that he could not bray.</p>  
+ <p><a name="page_48"><font size="1" color="GREEN">p. 48</font></a></p>  
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> The time the man passed in this condition was not less than four months; after which, overcome by melancholy, he went mad, and as such they set him free to die.</p>  
+ <p>The reluctant Belisarius she forced to become reconciled with his wife; while Photius, after she had him tortured like a slave and scourged on the back and shoulders, was ordered to tell where Theodosius and the pander were. But in spite of his anguish at the torture he kept silent as he had sworn to do; though he had always been delicate and sickly, had had to be very careful of his health, and was hitherto inexperienced in such outrage and ill treatment. Yet none of Belisarius's secrets did he divulge.</p>  
+ <p>Later, however, everything that up to this time had been concealed came to light. Discovering Calligonus in the neighborhood, Theodora handed him over to Antonina, and then had Theodosius brought back to Constantinople, where she hid him in her</p>  
+ <p><a name="page_49"><font size="1" color="GREEN">p. 49</font></a></p>  
+ <p>palace. On the day after his arrival she sent for Antonina. "My dearest lady," she said, "a pearl fell into my hands yesterday, such a one as no mortal has ever seen. If you wish, I will not grudge you a sight of this jewel, but will show it to you." Not knowing what had happened, her friend begged Theodora to show her the pearl; and the Empress, leading Theodosius from the rooms of one of the eunuchs, revealed him.</p>  
+ <p>For a moment Antonina, speechless with joy, remained dumb. Then she broke into an ecstasy of gratitude, and called Theodora her saviour, her benefactress, and her true mistress. Thereafter, the Empress kept Theodosius in the palace, wrapping him in every luxury, and declared she would even make him general of all the Roman forces before long. Justice, however, intervened. Carried off by a dysentery, he disappeared from the world of men.</p>  
+ <p>Now in Theodora's palace were certain</p>  
+ <p><a name="page_50"><font size="1" color="GREEN">p. 50</font></a></p>  
+ <p>secret dungeon rooms: dark, unknown, and remote, wherein there was no difference between day and night. In one of these Photius languished for a long time. He had the good fortune, however, to escape, not once, but twice. The first time he took refuge in the Church of the Virgin Mother, which is the most holy and famous of the churches in Constantinople, and there took his place at the sacred table as a suppliant. But she captured him even here, and had him removed by force. The second time he fled to the Church of St. Sophia and sought sanctuary at the holy font, which of all places the Christians most reverence. Yet even from here the woman was able to drag him: for to her no spot was too awful or venerable to transgress, and she thought nothing of violating all the sanctuaries put together. Like all the rest of the people, the Christian priests were struck dumb with horror, but stood to one side and suffered her to do as she willed.</p>  
+ <p><a name="page_51"><font size="1" color="GREEN">p. 51</font></a></p>  
+ <p>Now for three years Photius remained thus in his cell; and then the prophet Zechariah came to him in a dream, and ordered him in the name of the Lord to escape, promising to aid him in this. Trusting in the vision, he broke loose again, and unnoticed by anyone made his way to Jerusalem. Though he passed through countless thousands of men on his flight, not one of them saw the youth. There he shaved his head, assumed the garb of the monks, and was free at last from the punishment of Theodora.</p>  
+ <p>But Belisarius, disregarding his word of honor, took no measures to avenge his accomplice's suffering of such impious treatment as has been told. And all of his military expeditions from this time on failed, presumably by the will of God. For his next campaign against Chosroes and the Medes, who were for the third time invading Roman territory, was severely criticized; though one good thing was said of him, that he had driven the foe back. But when Chosroes</p>  
+ <p><a name="page_52"><font size="1" color="GREEN">p. 52</font></a></p>  
+ <p>crossed the Euphrates River, took the great city of Callinicus without a battle, and enslaved myriads of Roman citizens, while Belisarius was careful not even to pursue the enemy when he retired, he won the reputation of being one of two thingseither a traitor or a coward.</p>  
+ <p></p><hr>
+ <center>
+ <a href="shp07.htm">Next: IV. How Theodora, Revenging Her Dear Antonina, Humiliated the Conqueror of Africa And Italy</a></center>
+ </body>

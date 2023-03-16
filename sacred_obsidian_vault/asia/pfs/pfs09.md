@@ -1,0 +1,34 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Asia</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pfs08.htm">Previous</a> 
+ <a href="pfs10.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/141914135X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Philippine Folklore Stories</i>, by John Maurice Miller, [1904], at sacred-texts.com</font></p><hr>  <h3 align="center">HOW THE WORLD WAS MADE</h3>  
+ <p>This is the ancient Filipino account of the creation.</p>  
+ <p>Thousands of years ago there was no land nor sun nor moon nor stars, and the world was only a great sea of water, above which stretched the sky. The water was the kingdom of the god Maguayan, and the sky was ruled by the great god Captan.</p>  
+ <p>Maguayan had a daughter called Lidagat, the sea, and Captan had a son known as Lihangin, the wind. The gods agreed to the marriage of their children, so the sea became the bride of the wind.</p>  
+ <p>Three sons and a daughter were born to them. The sons were called Licalibutan, Liadlao, and Libulan, and the daughter received the name of Lisuga.</p>  
+ <p>Licalibutan had a body of rock and was strong and brave; Liadlao was formed of gold and was always happy; Libulan was made of copper and was weak and timid; and the beautiful Lisuga had a body of pure silver and was sweet and gentle. Their parents were very fond of them, and nothing was wanting to make them happy.</p>  
+ <p>After a time Lihangin died and left the control of the winds to his eldest son Licalibutan. The faithful wife Lidagat soon followed her husband, and the children, now grown up, were left without father or mother. However, their grandfathers, Captan and Maguayan, took care of them and guarded them from all evil.</p>  
+ <p>After a time, Licalibutan, proud of his power over the winds, resolved to gain more power, and asked his brothers to join him in an attack on Captan in the sky above. At first they refused; but when Licalibutan became angry with them, the amiable Liadlao, not wishing to offend his brother, agreed to help. Then together they induced the timid Libulan to join in the plan.</p>  
+ <p>When all was ready the three brothers rushed at the sky, but they could not beat down the gates of steel that guarded the entrance. Then Licalibutan let loose the strongest winds and blew the bars in every direction. The brothers rushed into the opening, but were met by the angry god Captan. So terrible did he look that they turned and ran in terror; but Captan, furious at the destruction of his gates, sent three bolts of lightning after them.</p>  
+ <p>The first struck the copper Libulan and melted him into a ball. The second struck the golden Liadlao and he too was melted. The third bolt struck Licalibutan and his rocky body broke into many pieces and fell into the sea. So huge was he that parts of his body stuck out above the water and became what is known as land.</p>  
+ <p>In the meantime the gentle Lisuga had missed her brothers and started to look for them. She went toward the sky, but as she approached the broken gates, Captan, blind with anger, struck her too with lightning, and her silver body broke into thousands of pieces.</p>  
+ <p>Captan then came down from the sky and tore the sea apart, calling on Maguayan to come to him and accusing him of ordering the attack on the sky. Soon Maguayan appeared and answered that he knew nothing of the plot as he had been asleep far down in the sea. After a time he succeeded in calming the angry Captan. Together they wept at the loss of their grandchildren, especially the gentle and beautiful Lisuga; but with all their power they could not restore the dead to life. However, they gave to each body a beautiful light that will shine forever.</p>  
+ <p>And so it was that golden Liadlao became the sun and copper Libulan the moon, while the thousands of pieces of silver Lisuga shine as the stars of heaven. To wicked Licalibutan the gods gave no light, but resolved to make his body support a new race of people. So Captan gave Maguayan a seed and he planted it on the land, which, as you will remember, was part of Licalibutan's huge body. Soon a bamboo tree grew up, and from the hollow of one of its branches a man and a woman came out. The man's name was Sicalac, and the woman was called Sicabay. They were the parents of the human race. Their first child was a son whom they called Libo; afterwards they had a daughter who was known as Saman. Pandaguan was a younger son and he had a son called Arion.</p>  
+ <p>Pandaguan was very clever and invented a trap to catch fish. The very first thing he caught was a huge shark. When he brought it to land, it looked so great and fierce that he thought it was surely a god, and he at once ordered his people to worship it. Soon all gathered around and began to sing and pray to the shark. Suddenly the sky and sea opened, and the gods came out and ordered Pandaguan to throw the shark back into the sea and to worship none but them.</p>  
+ <p>All were afraid except Pandaguan. He grew very bold and answered that the shark was as big as the gods, and that since he had been able to overpower it he would also be able to conquer the gods. Then Captan, hearing this, struck Pandaguan with a small thunderbolt, for he did not wish to kill him but merely to teach him a lesson. Then he and Maguayan decided to punish these people by scattering them over the earth, so they carried some to one land and some to another. Many children were afterwards born, and thus the earth became inhabited in all parts.</p>  
+ <p>Pandaguan did not die. After lying on the ground for thirty days he regained his strength, but his body was blackened from the lightning, and all his descendants ever since that day have been black.</p>  
+ <p>His first son, Arion, was taken north, but as he had been born before his father's punishment he did not lose his color, and all his people therefore are white.</p>  
+ <p>Libo and Saman were carried south, where the hot sun scorched their bodies and caused all their descendants to be of a brown color.</p>  
+ <p>A son of Saman and a daughter of Sicalac were carried east, where the land at first was so lacking in food that they were compelled to eat clay. On this account their children and their children's children have always been yellow in color.</p>  
+ <p>And so the world came to be made and peopled. The sun and moon shine in the sky and the beautiful stars light up the night. All over the land, on the body of the envious Licalibutan, the children of Sicalac and Sicabay have grown great in numbers. May they live forever in peace and brotherly love!</p>  
+ <p></p><hr>
+ <center>
+ <a href="pfs10.htm">Next: The Silver Shower</a></center>
+ </body>

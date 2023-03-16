@@ -1,0 +1,29 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="dio12.htm">Previous</a> 
+ <a href="dio14.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0486434591/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN">The Works of Dionysius the Areopagite, tr. by John Parker, [1897], at sacred-texts.com</font></p><hr> <a name="ii.ii.ii.x"></a> <h3 align="center"><a name="ii.ii.ii.x-p0.1"></a>CAPUT X.</h3> 
+ <p><a name="ii.ii.ii.x-p1"></a> 
+ </p><p align="center"><a name="ii.ii.ii.x-p2"></a>Concerning Sovereign Lord, "Ancient of days" in which also, concerning  Age and Time <a name="fr_53"></a><a href="#fn_53"><font size="1">54</font></a>
+ .</p> 
+ <p align="center"><a name="ii.ii.ii.x-p3"></a>SECTION I.</p> 
+ <p><a name="ii.ii.ii.x-p4"></a>THE time, then, is come for our discourse, to sing the God of many Names, as  "Sovereign Lord," and as "Ancient of days." For He is called <i>the former, </i> by reason that He is an all-controlling basis, binding and embracing the whole,  and establishing and supporting, and tightening, and completing the whole. Continuous  in itself, and from itself, producing the whole, as it were from a Sovereign root,  and turning to itself the whole, as to a sovereign parent stock, and holding them  together as an all-embracing basis of all, securing all the things embraced, within  one grasp superior to all, and not permitting them, when  <a name="page_110"><font size="1" color="GREEN">p. 110</font></a> <a name="ii.ii.ii.x-Page_110"></a> fallen from itself to be destroyed, as moved from an all-perfect  sanctuary. But the Godhead is called Sovereign, both as controlling and governing  the members of His household, purely, and as being desired and beloved by all, and  as placing upon all the voluntary yokes, and the sweet pangs of the Divine and Sovereign,  and in dissolvable love of the Goodness itself,</p> 
+ <p align="center"><a name="ii.ii.ii.x-p5"></a>SECTION II.</p> 
+ <p><a name="ii.ii.ii.x-p6"></a>But Almighty God is celebrated as "<i>Ancient of days" </i>because He is of all  things both Age and Time,--and before Days, and before Age and Time. And yet we must  affirm that He is Time and Day, and appointed Time, and Age, in a sense befitting  God, as being throughout every movement unchangeable and unmoved, and in His ever  moving remaining in Himself, and as being Author of Age and Time and Days. Wherefore,  in the sacred Divine manifestations of the mystic visions, He is represented as  both old and young; the former indeed signifying the "Ancient" and being from the  beginning, and the latter His never growing old; or both teaching that He advances  through all things from beginning to end,--or as our Divine initiator says, "since  each manifests the priority of God, the Elder having the first place in Time, but  the Younger the priority in number; because the unit, and things near the unit,  are nearer the beginning than numbers further advanced.  <a name="page_111"><font size="1" color="GREEN">p. 111</font></a> <a name="ii.ii.ii.x-Page_111"></a></p> 
+ <p align="center"><a name="ii.ii.ii.x-p7"></a>SECTION III.</p> 
+ <p><a name="ii.ii.ii.x-p8"></a>But we must, as I think, see from the Oracles the nature of Time and Eternity,  for they do not always (merely) call all the things absolutely unoriginated and  really everlasting, eternal, but also things imperishable and immortal and unchangeable,  and things which are in like fashion, as when they say, "be ye opened, eternal doors,"  and the like. And often they characterize the things the most ancient by the name  of Eternity; and again they call the whole duration of our time Eternity, in so  far as the ancient and unchangeable, and the measurement of existence throughout,  is a characteristic of Eternity. But they call time that concerned in generation  and decay and change, and sometimes the one, and sometimes the other. Wherefore  also, the Word of God says that even we, who are bounded here by time, shall partake  of Eternity, when we have reached the Eternity which is imperishable and ever the  same. But sometimes eternity is celebrated in the Oracles, even as temporal, and  time as eternal. But if we know them better and more accurately, things spiritual <a name="fr_54"></a><a href="#fn_54"><font size="1">55</font></a>
+  are spoken of and denoted by Eternity, and things subject  to generation by time. It is necessary then to suppose that things called eternal  are not absolutely co-eternal with God, Who is before Eternity, but that following  unswervingly the most august Oracles, we should understand things eternal and temporal  according to the hopes recognized by  <a name="page_112"><font size="1" color="GREEN">p. 112</font></a> <a name="ii.ii.ii.x-Page_112"></a> them, hut whatever participates partly in eternity and partly in  time, as things midway between things spiritual and things being born. But Almighty  God we ought to celebrate, both as eternity and time, as Author of every time and  eternity, and "Ancient of days," as before time, and above time; and as changing  appointed seasons and times; and again as being before ages, in so far as He is  both before eternity and above eternity and His kingdom, a kingdom of all the Ages.  Amen.</p>    
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_53"></a><a href="dio13.htm#fr_53">109:54</a> <a name="ii.ii.ii.x-p2.1"></a>Dulac, p. 226.</p>
+ <p><a name="fn_54"></a><a href="dio13.htm#fr_54">111:55</a> <a name="ii.ii.ii.x-p8.1"></a><a name="ii.ii.ii.x-p8.2"></a>τὰ  ὄντα--actual.</p>
+ <p></p><hr>
+ <center>
+ <a href="dio14.htm">Next: Caput XI.</a></center>
+ </body>

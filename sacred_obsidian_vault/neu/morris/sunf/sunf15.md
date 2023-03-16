@@ -1,0 +1,36 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Legends and Sagas</a> 
+ <a href="../index.htm">William Morris</a> 
+ <a href="index.htm">Index</a> 
+ <a href="sunf14.htm">Previous</a> 
+ <a href="sunf16.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Sundering Flood</i>, by William Morris, [1897], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_f13"></a></p>  
+ <p align="center">Chapter XIII. Steelhead Gives Osberne the Sword Boardcleaver</p>  
+ <p>When morning was, the guest came into the hall and found the household there, and he spake to the goodwife and said: "Dame, I would have done off this raiment which ye lent me last night and done on mine and left thine lying there, but mine I might not find."</p>  
+ <p>"Nor thou nor anyone else," she said, "shall find thy rags any more, good guest, unless they come to life when thou risest from the dead on the day of doom; for I have peaceably burned them in the garth this hour ago. God help us if the stead of Wethermel cannot spare a yard or two of homespun to a guest who cometh in stripped by the storm." The guest nodded kindly to her; but Osberne said: "Which way ridest thou this morning, guest, for I would fain lead thee a little way?" "I wend south from thy door, fair master," said the newcomer; "but as to riding, 't is Shanks' mare must be my way-beast, unless I go stealing a horse."</p>  
+ <p>"There is no need for that," said Osberne, "we can find thee a good horse, and if thou bringest him not back, it will be no loss to us, as the less hay-need we shall have through winter. Stephen, go thou and see to it that the horses be ready saddled and bridled when we have eaten a morsel." The guest laughed and looked to the carle-master, and said: "How sayest thou, goodman, is the gift given?" The carle smiled somewhat ruefully, and said: "The gift is given; and soothly it is for the youngling to give since all will come to him, be it more or less." "I will take it then," said the guest, "since good will goeth with it; but look to it goodman, if I reward thee not therefor, for as ragged as I came into thine house."</p>  
+ <p>Now therewith they break their fast; and the last night's wind has falled utterly, and the sky is blue and the sun bright, and it is warm for that season. Then Osberne gives the sealed bundle to Waywearer, and he took it and did it on to his saddle-bow, and he mounts, and Osberne also, who is dight in his fair-hued raiment; and they set out up the Dale, and ride swiftly, and are few-spoken together.</p>  
+ <p>So they rode till they were past the last house, the cot to wit above told of, and then they came into a fair little clough with a bright stream running through it toward the Sundering Flood; and there were bushes and small wood up and down the clough, and there Waywearer, that is to say, Steelhead, drew rein, and said to Osberne: "Meseems this is as far as thou needest lead me out, lad, so let us off horse and go down and sit by the brook."</p>  
+ <p>So they did, and tied their horses to a thorn-bush growing thereby; and Waywearer took the bundle off his horse and said to Osberne: "Hast thou any guess at what this good thing is?" Osberne reddened and said: "That is the sword which thou didst promise me last spring." Waywearer laughed and said: "Sharp are thine eyes to see a sword through all this wrappage of cerecloth; surely they be of the warrior kin. But sooth hast thou said; this is thy sword." And therewith he fell to undoing the cloth, while the boy looked on eagerly.</p>  
+ <p>At last the hilts and the sheath showed naked: the pommel and cross were of gold of beauteous and wonderful fashion, such as no smith may work now, and the grip was wrapped about with golden wire. And the sheath wherein lay the deadly white edges was of brown leather of oxhide, studded about with knops of gold and silver, and the peace-strings were of scarlet silk with golden acorns at the ends.</p>  
+ <p>Said Osberne: "O thou art kind to have brought this for me: and may I handle it now and at once?"</p>  
+ <p>"Yea," said Steelhead smiling; "but beware, beware!" for he saw the lad lay his hand to the peace-strings; "do not away the peace-strings, lest thou be tempted to draw forth the blade. For this sword is hight Boardcleaver, and was fashioned by the fathers of long ago; and so wise is he and so eager, that whensoever he cometh forth from the sheath he will not go back again till he hath had a life. So beware ever, for mickle scathe shall come of it if he see the heavens and the earth for light cause."</p>  
+ <p>Somewhat daunted was the bold lad; but he said: "Tell me, thou bright lord, at what times I shall draw forth Boardcleaver?"</p>  
+ <p>Said Steelhead: "Only then when thou hast the foe before thee: then draw and be of good courage, for never shall point and edge be dulled by the eye-shot of the wicked and wizards, as whiles it befals the common blades of today. For a man of might hath breathed on the edges amidst much craft of spells, so that nought may master that blade, save one of its brethren fashioned by the same hands, if such there be yet upon the earth, whereof I misdoubt me. Now then thou hast the sword; but I lay this upon thee therewith, that thou be no brawler nor make-bate, and that thou draw not Boardcleaver in any false quarrel, or in behalf of any tyrant or evil-doer, or else shall thy luck fail thee despite the blade that lieth hidden there. But meseemeth nought shalt thou be of the kind of these wrong-doers. And I say of thee that thou didst well with me last night. For though thou knewest me presently, and that I was not without might, yet at first, when thou tookest me by the hand and leddest me to the fire before all the house, thou knewest me not, and I was to thee but the ragged gangrel body whom thy grandsire would have thrust forth into the storm again; but thou didst to me no worse than if I had been lord and earl."</p>  
+ <p>Now it is to be told, that when Osberne heard these words then first he knew what praise was, and the heart glowed within him, and his valiancy grew up therein, and his face was bright and his eyes glistened with tears; and he spake no word aloud, but he swore to himself that he would be no worse than his friend Steelhead would have him to be.</p>  
+ <p>Then he took the sword and girt it to him; and he said: "Master, this is no long sword, but it is great and heavy, and meseemeth my bairn's might may never wield it. Shall I not lay it by till I become man?"</p>  
+ <p>"That shall be seen to, fair youngling," said Steelhead. "In an hour thou shalt have might enough to wield Boardcleaver, though doubtless thy might shall be eked year by year and month by month thereafter."</p>  
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="sunf16.htm">Next: Chapter XIV. The Gifts of Steelhead</a></center>
+ </div>
+ </center></body>

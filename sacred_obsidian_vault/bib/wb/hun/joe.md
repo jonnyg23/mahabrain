@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Hungarian Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> Az Úrnak igéje, a mely lõn Jóelhez, a Petuel fiához.</p> 
+ <p><a name="an_1:2">1:2</a> Vének! halljátok meg ezt, és hallgassátok meg, e földnek minden lakói! Történt-é ilyen a ti idõtökben, vagy a ti atyáitoknak idejében?</p> 
+ <p><a name="an_1:3">1:3</a> Beszéljétek el azt a ti fiaitoknak, és a ti fiaitok az õ fiaiknak, és azoknak fiai a következõ nemzetségnek.</p> 
+ <p><a name="an_1:4">1:4</a> A mit a sáska meghagyott, megette a szöcskõ; és a mit a szöcskõ meghagyott, megette a cserebogár; és a mit a cserebogár meghagyott, megette a hernyó.</p> 
+ <p><a name="an_1:5">1:5</a> Serkenjetek fel részegek és sírjatok, és jajgassatok mind, ti borivók a mustért, mert elvétetett az a ti szátoktól!</p> 
+ <p><a name="an_1:6">1:6</a> Mert egy nép jött fel az én földemre, erõs és megszámlálhatatlan; fogai, mint az oroszlán fogai, és agyarai, mint a nõstény oroszláné.</p> 
+ <p><a name="an_1:7">1:7</a> Pusztává tette szõlõmet; összetörte fügefáimat, mezítelenre hántotta és széjjelhányta; fehérlenek annak ágai.</p> 
+ <p><a name="an_1:8">1:8</a> Keseregj, mint a szûz, a ki gyászba öltözik az õ ifjúsága férjéért.</p> 
+ <p><a name="an_1:9">1:9</a> Kifogyott az étel- és italáldozat az Úrnak házából; gyászolnak a papok, az Úrnak szolgái.</p> 
+ <p><a name="an_1:10">1:10</a> Elpusztíttatott a mezõ, gyászol a föld; mert elpusztíttatott a gabona; kiszáradt a must; kiapadt az olaj.</p> 
+ <p><a name="an_1:11">1:11</a> Szégyenüljetek meg, ti szántóvetõk; jajgassatok szõlõmûvesek: a búzáért és az árpáért; mert elveszett a mezõ aratása!</p> 
+ <p><a name="an_1:12">1:12</a> Elszáradt a szõlõtõ; a fügefa elhervadt; a gránátfa, a datolyafa és az almafa, a mezõnek minden gyümölcsfája kiaszott. Bizony kiszáradott az öröm az emberek közül.</p> 
+ <p><a name="an_1:13">1:13</a> Öltsetek gyászt és sírjatok, ti papok! Jajgassatok, ti oltár szolgái; jõjjetek és háljatok gyászruhákban, Istenem szolgái; mert megvonatott az étel- és italáldozat Isteneteknek házától.</p> 
+ <p><a name="an_1:14">1:14</a> Szenteljetek bõjtöt, hirdessetek gyûlést; gyûjtsétek egybe a véneket, a földnek minden lakosát az Úrnak, a ti Isteneteknek házába, és kiáltsatok az Úrhoz.</p> 
+ <p><a name="an_1:15">1:15</a> Jaj ez a nap! Bizony közel van az Úrnak napja, és mint a pusztítás, úgy jön el a Mindenhatótól.</p> 
+ <p><a name="an_1:16">1:16</a> Hát nem szemünk láttára irtatott-é ki az élelem, az öröm és vígasság Istenünk házából?!</p> 
+ <p><a name="an_1:17">1:17</a> Elsenyvedtek a magvak barázdáik alatt, elpusztultak a gabonás házak, összedõltek a csûrök; mert kiaszott a gabona.</p> 
+ <p><a name="an_1:18">1:18</a> Mint nyög a barom! Megháborodtak a marha-csordák, mert nincs legelõjük; bûnhõdnek még a juhnyájak is!</p> 
+ <p><a name="an_1:19">1:19</a> Hozzád kiáltok Uram, mert tûz emésztette meg a puszta virányait, és láng perzselte le a mezõ minden fáját.</p> 
+ <p><a name="an_1:20">1:20</a> A mezõ vadai is hozzád esengenek, mert kiszáradtak a vizeknek ágyai, és tûz emésztette meg a puszta virányait.</p> 
+ <p><a name="an_2:1">2:1</a> Fújjátok a kürtöt a Sionon, és rivalgjatok az én szent hegyemen! Rémüljenek meg e föld minden lakói; mert eljõ az Úrnak napja; mert közel van [az.]</p> 
+ <p><a name="an_2:2">2:2</a> Sötétségnek és homálynak napja; felhõnek és borulatnak napja; mint a hegyekre ráterülõ alkonyat! Nagy és hatalmas nép, a milyen nem volt öröktõl fogva és nem is lesz utána többé, nemzetségrõl nemzetségre.</p> 
+ <p><a name="an_2:3">2:3</a> Elõtte tûz emészt, utána láng lobog; elõtte a föld olyan, mint az Éden kertje, utána pedig kietlen pusztaság; meg sem menekülhet tõle semmi.</p> 
+ <p><a name="an_2:4">2:4</a> A milyen a lovak alakja, olyan annak alakja, és száguldoznak, mint a lovasok.</p> 
+ <p><a name="an_2:5">2:5</a> Rohannak a hegyek tetején, mintha hadi szekerek robognának; mintha tarlót emésztõ láng ropogna; a milyen az ütközetre kész hatalmas nép.</p> 
+ <p><a name="an_2:6">2:6</a> Elrémülnek tõle a népek; minden arcz elsáppad.</p> 
+ <p><a name="an_2:7">2:7</a> Száguldoznak, mint a hõsök, felhágnak a kõfalakra, mint a bajnokok; mindenik a maga útján halad, nem bontják meg soraikat.</p> 
+ <p><a name="an_2:8">2:8</a> Egymást nem szorongatják; mindenik a maga útján halad; néki rohannak a fegyvernek, és nem esik seb rajtok.</p> 
+ <p><a name="an_2:9">2:9</a> Betörnek a városba, futkároznak a kõfalon, felhágnak a házakra, betörnek az ablakokon, mint a tolvaj.</p> 
+ <p><a name="an_2:10">2:10</a> Reszket elõttök a föld, és megrendülnek az egek; a nap és hold elsötétednek, a csillagok is bevonják fényöket.</p> 
+ <p><a name="an_2:11">2:11</a> És megzendül az Úrnak szava az õ serege elõtt, mert felette nagy az õ tábora; mert hatalmas az õ rendeletének végrehajtója. Bizony nagy az Úrnak napja és igen rettenetes! Ki állhatja ki azt?</p> 
+ <p><a name="an_2:12">2:12</a> De még most is így szól az Úr: Térjetek meg hozzám teljes szívetek szerint; bõjtöléssel is, sírással is, kesergéssel is.</p> 
+ <p><a name="an_2:13">2:13</a> És szíveteket szaggassátok meg, ne ruháitokat, úgy térjetek meg az Úrhoz, a ti Istenetekhez; mert könyörülõ és irgalmas õ; késedelmes a haragra és nagy kegyelmû, és bánkódik a gonosz miatt.</p> 
+ <p><a name="an_2:14">2:14</a> Ki tudja, hátha visszatér és megbánja, és áldást hagy maga után; étel- és italáldozatot az Úrnak, a ti Isteneteknek?!</p> 
+ <p><a name="an_2:15">2:15</a> Fújjatok kürtöt a Sionon; szenteljetek bõjtöt, hirdessetek gyûlést!</p> 
+ <p><a name="an_2:16">2:16</a> Gyûjtsétek össze a népet, szenteljétek meg a gyülekezetet; hívjátok egybe a véneket, gyûjtsétek össze a kisdedeket és a csecsszopókat; menjen ki a võlegény az õ ágyasházából és a menyasszony is az õ szobájából.</p> 
+ <p><a name="an_2:17">2:17</a> A tornácz és az oltár között sírjanak a papok, az Úr szolgái, és mondják: Légy kegyelmes, oh Uram, a te népedhez, és ne bocsásd szidalomra a te örökségedet, hogy uralkodjanak rajtok a pogányok. Miért mondanák a népek között: Hol az õ Istenök?</p> 
+ <p><a name="an_2:18">2:18</a> Erre buzgó lõn az Úrnak szeretete az õ földe iránt, és kegyelmezett az õ népének.</p> 
+ <p><a name="an_2:19">2:19</a> És választ tõn az Úr, és mondá az õ népének: Ímé, adok néktek gabonát, bort és olajat, hogy megelégedtek vele, és nem adlak többé titeket szidalomra a pogányok között.</p> 
+ <p><a name="an_2:20">2:20</a> Az északi [népet] is elûzöm tõletek, és puszta és sivatag vidékre vetem azt; elejét a keleti tengerbe, hátulját a nyugoti tengerbe, és bûze magasra száll; felszáll büdössége, mert nagy dolgokat cselekedett.</p> 
+ <p><a name="an_2:21">2:21</a> Ne félj, te föld! Örülj és vígadozz, mert nagy dolgokat cselekeszik az Úr!</p> 
+ <p><a name="an_2:22">2:22</a> Ne féljetek, ti mezei vadak! mert zöldülnek a pusztának virányai; mert a fa megtermi gyümölcsét; a füge és szõlõ is kitárják gazdagságukat.</p> 
+ <p><a name="an_2:23">2:23</a> Ti is, Sionnak fiai! örvendezzetek és vígadjatok az Úrban, a ti Istenetekben; mert megadja néktek az esõt igazság szerint, és korai és kései esõt hullat néktek az elsõ [hónapban.]</p> 
+ <p><a name="an_2:24">2:24</a> És megtelnek a csûrök gabonával, és bõven öntik a sajtók a mustot és az olajat.</p> 
+ <p><a name="an_2:25">2:25</a> És kipótolom néktek az esztendõket, a melyeket tönkre tett a szöcskõ, a cserebogár és a hernyó és a sáska; az én nagy seregem, a melyet reátok küldöttem.</p> 
+ <p><a name="an_2:26">2:26</a> És esztek bõven és megelégesztek, és magasztaljátok az Úrnak, a ti Isteneteknek nevét, a ki csodálatosan cselekedett veletek, és soha többé nem pironkodik az én népem.</p> 
+ <p><a name="an_2:27">2:27</a> És megtudjátok, hogy az Izráel között vagyok én, és hogy én vagyok az Úr, a ti Istenetek és nincs más! És soha többé nem pironkodik az én népem.</p> 
+ <p><a name="an_2:28">2:28</a> És lészen azután, hogy kiöntöm lelkemet minden testre, és prófétálnak a ti fiaitok és leányaitok; véneitek álmokat álmodnak; ifjaitok pedig látomásokat látnak.</p> 
+ <p><a name="an_2:29">2:29</a> Sõt még a szolgákra és szolgálóleányokra is kiöntöm azokban a napokban az én lelkemet.</p> 
+ <p><a name="an_2:30">2:30</a> És csodajeleket mutatok az égen és a földön; vért, tüzet és füstoszlopokat.</p> 
+ <p><a name="an_2:31">2:31</a> A nap sötétséggé válik, a hold pedig vérré, minekelõtte eljõ az Úrnak nagy és rettenetes napja.</p> 
+ <p><a name="an_2:32">2:32</a> De mindaz, a ki az Úrnak nevét hívja segítségül, megmenekül; mert a Sion hegyén és Jeruzsálemben lészen a szabadulás, a mint megigérte az Úr, és a megszabadultak közt lesznek azok, a kiket elhí az Úr!</p> 
+ <p><a name="an_3:1">3:1</a> Mert ímé, azokon a napokon és abban az idõben, a mikor meghozom Júda és Jeruzsálem fogságát:</p> 
+ <p><a name="an_3:2">3:2</a> Egybegyûjtöm akkor mind a pogányokat, és levezetem õket a Josafát völgyébe, és perbe szállok ott velök, az én népemért és örökségemért, az Izráelért, a melyet szétszórtak a pogányok közé, és megosztoztak az én földemen;</p> 
+ <p><a name="an_3:3">3:3</a> Népemre pedig sorsot vetettek; a fiút szajháért adták oda, a leányt pedig borért cserélték el, hogy ihassanak.</p> 
+ <p><a name="an_3:4">3:4</a> Sõt néktek is mi közötök velem, Tírus, Sidon és Filiszteának egész környéke?! Vajjon bosszút állani [jöttök-]é reám? Ha bosszút akarnátok rajtam állani, nagy hirtelen fejetekre fordítom vissza bosszútokat!</p> 
+ <p><a name="an_3:5">3:5</a> Mivelhogy elraboltátok ezüstömet és aranyomat, és legszebb kincsemet templomaitokba vittétek;</p> 
+ <p><a name="an_3:6">3:6</a> És a Júda fiait és Jeruzsálem fiait eladtátok a Jávánok fiainak, hogy messze vessétek õket határaiktól:</p> 
+ <p><a name="an_3:7">3:7</a> Ímé, kiindítom õket a helybõl, a hova eladtátok õket, és fejetekre fordítom vissza bosszútokat.</p> 
+ <p><a name="an_3:8">3:8</a> És adom a ti fiaitokat és leányaitokat a Júda fiainak kezébe; azok pedig eladják õket a Sabeusoknak, a messze lakó népnek; mert [ezt] végezte az Úr.</p> 
+ <p><a name="an_3:9">3:9</a> Hirdessétek ezt a pogányok között; készüljetek harczra; indítsátok fel a hõsöket. Járuljanak elé, jõjjenek fel mindnyájan a hadakozó férfiak!</p> 
+ <p><a name="an_3:10">3:10</a> Kovácsoljátok szántóvasaitokat kardokká, kaszáitokat dárdákká; mondja a beteg [is:] Hõs vagyok!</p> 
+ <p><a name="an_3:11">3:11</a> Siessetek és jõjjetek el ti népek mindenfelõl, és seregeljetek egybe! Ide vezesd Uram a te hõseidet!</p> 
+ <p><a name="an_3:12">3:12</a> Serkenjenek fel és jõjjenek fel a népek a Josafát völgyébe; mert ott ülök [törvényt,] hogy megítéljek minden népeket.</p> 
+ <p><a name="an_3:13">3:13</a> Ereszszétek néki a sarlót, mert megérett az aratni való! Jertek el, tapossatok, mert tetézve a kád, ömlenek a sajtók! Mert megsokasult az õ gonoszságuk!</p> 
+ <p><a name="an_3:14">3:14</a> Tömegek, tömegek! az ítélet völgyében! Mert közel van az Úrnak napja az ítélet völgyében!</p> 
+ <p><a name="an_3:15">3:15</a> A nap és hold elsötétednek; a csillagok bevonják fényöket;</p> 
+ <p><a name="an_3:16">3:16</a> Az Úr pedig megharsan a Sionról és megzendül Jeruzsálembõl, és megrendülnek az egek és a föld; de az Úr az õ népének oltalma és az Izráel fiainak erõssége!</p> 
+ <p><a name="an_3:17">3:17</a> És megtudjátok, hogy én vagyok az Úr, a ti Istenetek, a ki a Sionon lakozom, az én szent hegyemen. És szentté lészen Jeruzsálem, és idegenek nem vonulnak át többé rajta.</p> 
+ <p><a name="an_3:18">3:18</a> És majd azon a napon a hegyek musttal csepegnek és a halmok tejjel folynak, és a Júda minden medre bõ vízzel ömledez, és forrás fakad az Úrnak házából, és megöntözi a Sittimnek völgyét.</p> 
+ <p><a name="an_3:19">3:19</a> Égyiptom pusztasággá lészen, Edom pedig kietlen sivataggá; a Júda fiain való erõszakosságért, mert ártatlan vért ontottak azoknak földén.</p> 
+ <p><a name="an_3:20">3:20</a> De a Júda örökké megmarad; Jeruzsálem is nemzetségrõl nemzetségre.</p> 
+ <p><a name="an_3:21">3:21</a> És kitisztítom vérökbõl, a melybõl még ki nem tisztítottam, és a Sion lesz az Úr lakóhelye!</p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

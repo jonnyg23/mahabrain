@@ -1,0 +1,28 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Philosophy</a> 
+ <a href="../index.htm">Spinoza</a> 
+ <a href="index.htm">Index</a> 
+ <a href="tiu07.htm">Previous</a> 
+ <a href="tiu09.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/048620250X/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>On the Improvement of Understanding</i>, by Benedict de Spinoza, [1883], at sacred-texts.com</font></p><hr>  <h3 align="center">OF THE BEST MODE OF PERCEPTION</h3>  
+ <p>[25] (1) In order that from these modes of perception the best may be selected, it is well that we should briefly enumerate the means necessary for attaining our end.</p>  
+ <p>I. (2) To have an exact knowledge of our nature which we desire to perfect, and to know as much as is needful of nature in general. </p>  
+ <p>II. To collect in this way the differences, the agreements, and the oppositions of things. </p>  
+ <p>III. To learn thus exactly how far they can or cannot be modified. </p>  
+ <p>IV. To compare this result with the nature and power of man. (4) We shall thus discern the highest degree of perfection to which man is capable of attaining.</p>  
+ <p>[26] (1) We shall then be in a position to see which mode of perception we ought to choose. (2) As to the first mode, it is evident that from hearsay our knowledge must always be uncertain, and, moreover, can give us no insight into the essence of a thing, as is manifest in our illustration; now one can only arrive at knowledge of a thing through knowledge of its essence, as will hereafter appear. (3) We may, therefore clearly conclude that the certainty arising from hearsay cannot be scientific in its character. (4) For simple hearsay cannot affect anyone whose understanding does not, so to speak, meet it half way.</p>  
+ <p>[27] (1) The second mode of perception [i] cannot be said to give us the idea of the proportion of which we are in search. (2) Moreover its results are very uncertain and indefinite, for we shall never discover anything in natural phenomena by its means, except accidental properties, which are never clearly understood, unless the essence of the things in question be known first. (3) Wherefore this mode also must be rejected.</p>  
+ <p>[28] (1) Of the third mode of perception we may say in a manner that it gives us the idea of the thing sought, and that it us to draw conclusions without risk of error; yet it is not by itself sufficient to put us in possession of the perfection we aim at.</p>  
+ <p>[29] (1) The fourth mode alone apprehends the adequate essence of a thing without danger of error. (2) This mode, therefore, must be the one which we chiefly employ. (3) How, then, should we avail ourselves of it so as to gain the fourth kind of knowledge with the least delay concerning things previously unknown? (4) I will proceed to explain.</p>  
+ <p>[30] (1) Now that we know what kind of knowledge is necessary for us, we must indicate the way and the method whereby we may gain the said knowledge concerning the things needful to be known. (2) In order to accomplish this, we must first take care not to commit ourselves to a search, going back to infinity—that is, in order to discover the best method of finding truth, there is no need of another method to discover such method; nor of a third method for discovering the second, and so on to infinity. (3) By such proceedings, we should never arrive at the knowledge of the truth, or, indeed, at any knowledge at all. (30:4) The matter stands on the same footing as the making of material tools, which might be argued about in a similar way. (5) For, in order to work iron, a hammer is needed, and the hammer cannot be forthcoming unless it has been made; but, in order to make it, there was need of another hammer and other tools, and so on to infinity. (6) We might thus vainly endeavor to prove that men have no power of working iron.</p>  
+ <p>[31] (1) But as men at first made use of the instruments supplied by nature to accomplish very easy pieces of workmanship, laboriously and imperfectly, and then, when these were finished, wrought other things more difficult with less labour and greater perfection; and so gradually mounted from the simplest operations to the making of tools, and from the making of tools to the making of more complex tools, and fresh feats of workmanship, till they arrived at making, complicated mechanisms which they now possess. (31:2) So, in like manner, the intellect, by its native strength, [k], makes for itself intellectual instruments, whereby it acquires strength for performing other intellectual operations, [l], and from these operations again fresh instruments, or the power of pushing its investigations further, and thus gradually proceeds till it reaches the summit of wisdom.</p>  
+ <p>[32] (1) That this is the path pursued by the understanding may be readily seen, when we understand the nature of the method for finding out the truth, and of the natural instruments so necessary complex instruments, and for the progress of investigation. I thus proceed with my demonstration.</p>  
+ <p></p><hr>
+ <center>
+ <a href="tiu09.htm">Next: Of the Instruments of the Intellect, Or True Ideas</a></center>
+ </body>

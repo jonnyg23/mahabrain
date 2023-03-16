@@ -1,0 +1,19 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Classics</a> 
+ <a href="../index.htm">Aristotle</a> 
+ <a href="index.htm">Index</a> 
+ <a href="nico020.htm">Previous</a> 
+ <a href="nico022.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="CENTER">Chapter 8.</h3> <h4 align="CENTER">The extremes are opposed to each other and the mean.</h4> 
+ <p>There are three kinds of disposition, then, two of them vices, involving excess and deficiency respectively, and one a virtue, viz. the mean, and all are in a sense opposed to all; for the extreme states are contrary both to the intermediate state and to each other, and the intermediate to the extremes; as the equal is greater relatively to the less, less relatively to the greater, so the middle states are excessive relatively to the deficiencies, deficient relatively to the excesses, both in passions and in actions. For the brave man appears rash relatively to the coward, and cowardly relatively to the rash man; and similarly the temperate man appears self-indulgent relatively to the insensible man, insensible relatively to the self-indulgent, and the liberal man prodigal relatively to the mean man, mean relatively to the prodigal. Hence also the people at the extremes push the intermediate man each over to the other, and the brave man is called rash by the coward, cowardly by the rash man, and correspondingly in the other cases.</p> 
+ <p>These states being thus opposed to one another, the greatest contrariety is that of the extremes to each other, rather than to the intermediate; for these are further from each other than from the intermediate, as the great is further from the small and the small from the great than both are from the equal. Again, to the intermediate some extremes show a certain likeness, as that of rashness to courage and that of prodigality to liberality; but the extremes show the greatest unlikeness to each other; now contraries are defined as the things that are furthest from each other, so that things that are further apart are more contrary.</p> 
+ <p>To the mean in some cases the deficiency, in some the excess is more opposed; e.g. it is not rashness, which is an excess, but cowardice, which is a deficiency, that is more opposed to courage, and not insensibility, which is a deficiency, but self-indulgence, which is an excess, that is more opposed to temperance. This happens from two reasons, one being drawn from the thing itself; for because one extreme is nearer and liker to the intermediate, we oppose not this but rather its contrary to the intermediate. E.g. since rashness is thought liker and nearer to courage, and cowardice more unlike, we oppose rather the latter to courage; for things that are further from the intermediate are thought more contrary to it. This, then, is one cause, drawn from the thing itself; another is drawn from ourselves; for the things to which we ourselves more naturally tend seem more contrary to the intermediate. For instance, we ourselves tend more naturally to pleasures, and hence are more easily carried away towards self-indulgence than towards propriety. We describe as contrary to the mean, then, rather the directions in which we more often go to great lengths; and therefore self-indulgence, which is an excess, is the more contrary to temperance.</p> 
+ <p></p><hr>
+ <center>
+ <a href="nico022.htm">Next: Chapter 9. The mean is hard to attain, and is grasped by perception, not by reasoning</a></center>
+ </body>

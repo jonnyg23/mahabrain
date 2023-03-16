@@ -1,0 +1,51 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Gothic</a> 
+ <a href="index.htm">Index</a> 
+ <a href="vrb06.htm">Previous</a> 
+ <a href="vrb08.htm">Next</a> 
+ </center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>Vampire Ritual Book</i>, © by Michelle Belanger, [2003], at sacred-texts.com. Material can be reproduced for personal use on an individual basis in private spellbooks, books of shadows, and the like. Reproduction for distribution in any media or format is not allowed. To reprint material that appears in this book in a book, magazine, or website, please contact the author at the official House Kheperu website. For more information, consult www.kheperu.org</font></p><hr>  <h3 align="center">Chapter Five:</h3>  <h3 align="center">Personal Rites</h3>  
+ <p align="center"><b> </b></p>  
+ <p align="justify'">These are rites that I perform that have a special significance for me.  I am presenting these to give you a feel for what ritual can be like on a private and solitary level.  I personally find these rites very useful and fulfilling, so you are welcome to try them out for yourself, tweaking the wording a little bit if need be, to see how they work for you.</p>  
+ <p align="justify'">     As you have probably learned from the introduction to this little book of rituals, rites and rituals are intensely personal things, and no single ritual can be written that will work for every person in every situation.  Often, even writing a ritual for a group is a delicate balance of each persons preferences from that group.  Some people are very internal with their ritual: they dont like to do a whole lot of ritual activity.  Chants and dancing seem a little hokey to them, and they feel awkward reciting memorized prayers.  Other people are very hands-on with their rituals, and the real power of a rite for them is in the performance of ritual actions, drawing the circle with a sword, for example, or sharing cakes and wine among the group.</p>  
+ <p align="justify'">     As you learn more about private and group ritual, you will find that there is no way you can satisfy everyone with one version of a ritual.  For me, thats why personal rituals are so important  they allow me to do a rite just for me, with the words that work for me, and with the actions and the feel to things that work for me.  In a group ritual, I have to compromise with everyone in what we do and say so that some aspect of the ritual speaks to everyone in the group.  This may seem like appealing to the least common denominator, and its true that some rituals written for groups will feel really watered-down and pale, but making certain that group ritual speaks to everyone present is very important for building a solid sense of community.</p>  
+ <p align="justify'">     What all of this is intended to convey ultimately is that writing, performing, and participating in ritual is an intensely personal experience, and it is an experience that must be flexible, changing as your attitudes and needs change, and as the attitudes and needs of the group change.  Dont ever be afraid to experiment with ritual, and dont ever feel that there is a right or a wrong way of doing a ritual.  The right and the wrong of ritual lies only with you.  Take what you want from these examples, and make them your own.  </p>  
+ <p> </p>  
+ <p align="center"><b>The Welcome of Twilight</b></p>  
+ <p align="center"><b> </b></p>  
+ <p align="justify'">     This is a personal rite that I often perform when my regular life is starting to overwhelm the magick and mystery that I feel in the Darkside of my being.  Whenever I am getting bogged down in work or bills or other mundane issues, I pick a cool, clear night, and I go out and watch the sun go down.  I usually stand in an open place, far from people and buildings, where I can feel the darkness settling over all of nature.   The birds settle down for the night and the night creatures begin to stir.  I can hear bats chirping and fluttering overhead and some of the feral cats in the neighborhood call as they are stalking through the tall grasses.  The sunset is really just a time of reflection.  I allow it to remind me that the day-lit world is only one half of my existence, and that in time, it always gives over to something darker, wilder, and more mysterious.</p>  
+ <p align="justify'">     As twilight falls and the light fades from the sky, I face the west, raise my arms above my head, and take several deep, cleansing breaths.  I take in the energy of the night as it begins to wash over the land, and I feel the cool nightwind begin to pick up through the grasses and trees.</p>  
+ <p align="justify'">     Sometimes out loud, sometimes silently to myself, I greet the night.  I drink the darkness in, and I allow it to re-awaken that part of myself that is also darker, wilder, and more mysterious than anything the mundane world has to offer.  Then I will usually say a prayer to the night as a reminder of why I cherish the darkness and why it speaks to me so much.  This is a good example of my typical night-prayer:</p>  
+ <p> </p>  <h1>Hymn to the Night</h1>  
+ <p> </p>  
+ <p></p><dir><i>I welcome the Night and the silence it brings.<br> I welcome the solitude, and the cool, soothing shadows.</i>  
+ <p><i>The night is my time, <br> the time of mysteries, dreams, and contemplation.<br> The darkness within me now blankets the world</i>.</p>  
+ <p><i>The rising night-tide fills me with power and revelation.<br> Fortress! Sanctuary! Blessed Haven!<br> No matter my trials in the day-lit world,<br> I know the night will always be mine</i>.</p></dir>  
+ <p> </p>  
+ <p>After that, I continue with my head thrown back and my arms outstretched for just a little while, feeling the night wash over me as twilight fades to a glittered midnight-blue.  Then I clasp my hands before me and bow my head, holding my power within me and giving thanks for the reminder of why that power is so special.  In silence, I turn and leave the place I chose for this personal ritual, and return to my ordinary routine feeling empowered ands renewed.</p>  
+ <p>     You can do this every night, or you may choose to do it only on nights of special importance.  If you are feeling out of touch with yourself or your nature, I recommend performing this brief ritual in order to get reconnected.  Use this as a re-affirmation of your power.  Use it to invoke your Self and to establish dominion over the area in which you live.  You can say the prayer out loud, or you can reflect upon it silently, meditating upon the meaning the words hold for you.  It is a very useful centering ritual and it calls power that you can later direct as you please.</p>  
+ <p> </p>  <h2 align="center">My Daily Meditation</h2>  
+ <p> </p>  
+ <p>     Almost universally, we use candles during our meditations and in our rites.  For myself, when I do my daily mediation, I start off in the darkened shrine, and I mark the beginning of the meditation with the lighting of the pillar candle in there.  </p>  
+ <p>     The lighting of the flame, that first burst of light, is, for me, a symbol of beginning.  As I hold the match to the wick, I reflect on where we have come from, how all of this started. And as the candle takes light, I recite the Im Kheperu prayer taken from the ancient Egyptian Text <i>The Modes of Ra</i>: </p>  
+ <p> </p>  
+ <p>            <b>Kheper-i kheper kheperu, kheper-kuy,<br>           m kheper n khepri kheperu m sep tepy.</b></p>  
+ <p> </p>  
+ <p align="center"><i>I became, and the becoming became. I became by becoming the form of Khepra, god of transformations, who came into being in the First Time.  Through me all transformations were enacted.</i></p>  
+ <p> </p>  
+ <p>     After this, I continue with my daily meditation, reflecting on what I want to accomplish for the day. I state my concerns and my intentions out loud so I cannot later deny them.  Speaking them out loud to myself is a kind of oath.  I have said it, and in saying it, made it real.  Later, if I begin to waver in my intentions, all I have to do is think back to saying the intention to myself.  If I do not fulfill what was spoken, I have made it a lie.  And I hate being a liar. This of itself is enough motivation for me to always get done what I have set out to do each day  even when the tasks I have set myself are a challenge to fulfill.</p>  
+ <p>     When I am finished with my goals for the day, there is a daily affirmation that I conclude with.  This is a simple prayer, a prayer for strength.  In its original version, I focused on the negative feelings, and I countered them by asking for strength.  Later, I realized that this was not the proper approach.  It made the prayer too weak, and almost implied a giving in to the weaknesses.  So instead, I re-worded it to focus on the strength, and through the language of the secondary line, to eradicate the weakness from my being.  It was a small change in syntax, but overall, it makes a huge difference in the statement and its psychological affect:</p>  
+ <p></p><dir><i>I have my Balance,<br> So I am not weak.</i>  
+ <p><i>I have my Self,<br> So I am not lost.</i></p>  
+ <p><i>I have my Power, <br> So I am not frightened.</i></p>  
+ <p><i>I have my Path,<br> So I will progress</i>.</p></dir>  
+ <p><i>     </i>Finally, when I have said all that needs to be said for the day, and I feel much stronger and centered in myself and focused on achieving my goals, I conclude the meditation.  Since I started out by lighting the candle, I finish by blowing the candle out.  Now, since I dont want to think that anything Ive done in that shrine is finished once the candle is no longer burning, what I say as I blow out the candle is this:  The candle goes out, but the energy remains.  And then I leave the shrine and go out to meet my day.</p>  
+ <p> </p>  
+ <p></p><hr>
+ <center>
+ <a href="vrb08.htm">Next: Chapter Six: Archetype Rituals</a></center>
+ </body>

@@ -1,0 +1,27 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Buddhism</a> 
+ <a href="index.htm">Index</a> 
+ <a href="btg92.htm">Previous</a> 
+ <a href="btg94.htm">Next</a> 
+ </center>
+ <hr>
+ <h1 align="CENTER">THE COURTESAN AMBAPALI</h1>
+ <p>THEN the Blessed One proceeded with a great number of brethren to Vesali, and he stayed at the grove of the courtesan Ambapali. And he said to the brethren: "Let a brother, O bhikkhus, be mindful and thoughtful. Let a brother, whilst in the world, overcome the grief which arises from bodily craving, from the lust of sensations, and from the errors of wrong reasoning. Whatever you do, act always in full presence of mind. Be thoughtful in eating and drinking, in walking or standing, in sleeping or waking, while talking or being silent."</p>
+ <p>When the courtesan Ambapali heard that the Blessed One was staying in her mango grove, she was exceedingly glad and went in a carriage as far as the ground was passable for carriages. There she alighted and thence proceeding to the place where the Blessed One was, she took her seat respectfully at his feet on one side. As a prudent woman goes forth to perform her religious duties, so she appeared in a simple dress without any ornaments, yet beautiful to look upon. The Blessed One thought to himself: "This woman moves in worldly circles and is a favorite of kings and princes; yet is her heart calm and composed. Young in years, rich, surrounded by pleasures, she is thoughtful and steadfast. This, indeed, is rare in the world. Women, as a rule, are scant in wisdom and deeply immersed in vanity; but she, although living in luxury, has acquired the wisdom of a master, taking delight in piety, and able to receive the truth in its completeness."</p>
+ <p>When she was seated, the Blessed One instructed, aroused, and gladdened her with religious discourse. As she listened to the law, her face brightened with delight. Then she rose and said to the Blessed One: "Will the Blessed One do me the honor of taking his meal, together with the brethren, at my house tomorrow?" And the Blessed One gave, by silence, his consent.</p>
+ <p>Now, the Licchavi, a wealthy family of princely rank, hearing that the Blessed One had arrived at Vesali and was staying at Ambapali's grove, mounted their magnificent carriages, and proceeded with their retinue to the place where the Blessed One was. The Licchavi were gorgeously dressed in bright colors and decorated with costly jewels. And Ambapali drove up against the young Licchavi, axle to axle, wheel to wheel, and yoke to yoke, and the Licchavi said to Ambapali, the courtesan: "How is it, Ambapali, that you drive up against us thus?"</p>
+ <p>"My lords," said she, "I have just invited the Blessed One and his brethren for their tomorrow's meal." And the princes replied: "Ambapali! give up this meal to us for a hundred thousand."</p>
+ <p>"My lords, were you to offer all Vesali with its subject territory, I would not give up so great an honor!"</p>
+ <p>Then the Licchavi went on to Ambapali's grove. When the Blessed One saw the Licchavi approaching in the distance, he addressed the brethren, and said: "O brethren, let those of the brethren who have never seen the gods gaze upon this company of the Licchavi, for they are dressed gorgeously, like immortals."</p>
+ <p>And when they had driven as far the ground was passable for carriages, the Licchavi alighted and went on foot to the place where the Blessed One was, taking their seats respectfully by his side. And when they were thus seated, the Blessed One instructed, aroused, and gladdened them with religious discourse. Then they addressed the Blessed One and said: "Will the Blessed One do us the honor of taking his meal, together with the brethren, at our palace tomorrow?"</p>
+ <p>"O Licchavi," said the Blessed One, I have promised to dine tomorrow with Ambapali, the courtesan." Then the Licchavi, expressing their approval of the words of the Blessed One, arose from their seats and bowed down before the Blessed One, and, keeping him on their right hand as they passed him, they departed thence; but when they came home, they cast up their hands, saying: "A worldly woman has outdone us; we have been left behind by a frivolous girl!"</p>
+ <p>At the end of the night Ambapali, the courtesan, made ready in her mansion sweet rice and cakes, and on the next day announced through a messenger the time to the Blessed One, saying, "The hour, Lord, has come, and the meal is ready!" And the Blessed One robed himself early in the morning, took his bowl, and went with the brethren to the place where Ambapali's dwelling-house was; and when they had come there they seated themselves on the seats prepared for them. Ambapali, the courtesan, set the sweet rice and cakes before the order, with the Buddha at their head, and waited upon them till they refused to take more.</p>
+ <p>When the Blessed One had finished his meal, the courtesan had a low stool brought, and sat down at his side, and addressed the Blessed One, and said: "Lord, I present this mansion to the order of bhikkhus, of which the Buddha is the chief." And the Blessed One accepted the gift; and after instructing, arousing, and gladdening her with religious edification, he rose from his seat and departed thence.</p>
+ <hr>
+ <center>
+ <a href="btg94.htm">Next: The Buddha's Farewell</a></center>
+ </body>

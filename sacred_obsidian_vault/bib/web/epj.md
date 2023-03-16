@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Bible</a> 
+ <a href="../eb.htm">English Bibles</a> 
+ <a href="index.htm">Index</a> 
+ <a href="bar.htm">Previous</a> 
+ <a href="aza.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">World English Bible: Epistle of Jeremiah</h3> 
+ <p><a name="an_6:1">6:1</a> A copy of a letter, which Jeremiah sent to those who were to be led as captives into Babylon by the king of the Babylonians, to testify to them, as it was commanded him by God.</p> 
+ <p><a name="an_6:2">6:2</a> "Because of the sins which you have committed before God, you shall be led away as captives into Babylon by Nebuchadnezzar king of the Babylonians.</p> 
+ <p><a name="an_6:3">6:3</a> So, when you come to Babylon, you shall remain there many years and for a long season, namely, seven generations; and after that I will bring you peaceably away from there.</p> 
+ <p><a name="an_6:4">6:4</a> Now you will see in Babylon gods of silver and of gold and of wood, borne upon shoulders, which cause the nations to fear.</p> 
+ <p><a name="an_6:5">6:5</a> Beware, therefore, that you in no way become like these strangers, nor associate with them, when you see the multitude before them and behind them, worshipping them.</p> 
+ <p><a name="an_6:6">6:6</a> But you, say in your hearts, 'O Lord, we must worship you.'</p> 
+ <p><a name="an_6:7">6:7</a> For my angel is with you, and I myself am caring for your souls.</p> 
+ <p><a name="an_6:8">6:8</a> "'As for their tongue, it is polished by the workman, and they themselves are gilded and overlain with silver; yet they are only false and cannot speak.</p> 
+ <p><a name="an_6:9">6:9</a> And taking gold, as if for a virgin who loves to put herself on display, they make crowns for the heads of their gods.</p> 
+ <p><a name="an_6:10">6:10</a> Sometimes also the priests steal gold and silver from their gods and bestow it upon themselves.</p> 
+ <p><a name="an_6:11">6:11</a> Yes, they will give from it to the common harlots; and they cover them, gods of silver and gods of gold and wood, with garments as if they were men.</p> 
+ <p><a name="an_6:12">6:12</a> Yet these gods cannot save themselves from rust and moth, though they be covered with purple attire.</p> 
+ <p><a name="an_6:13">6:13</a> They wipe their faces because of the dust of the temple, when there is much upon them.</p> 
+ <p><a name="an_6:14">6:14</a> And he, who cannot put to death one that offends him, holds a scepter as though he were a judge of the country.</p> 
+ <p><a name="an_6:15">6:15</a> He has also in his right hand a dagger and an ax, but he cannot deliver himself from war and thieves.</p> 
+ <p><a name="an_6:16">6:16</a> Since they are known not to be gods, therefore fear them not.</p> 
+ <p><a name="an_6:17">6:17</a> For, just as a vessel which a man uses is worth nothing when it is broken, so also it is with their gods; when they are set up in the temple, their eyes are full of dust through the feet of those who enter.</p> 
+ <p><a name="an_6:18">6:18</a> And, just as the doors are made secure on every side of him who offends the king, as one committed to suffer death, so also do the priests secure their temples with doors, with locks and bars, lest their gods be spoiled by robbers.</p> 
+ <p><a name="an_6:19">6:19</a> They light candles for them, yes, more than for themselves, though they cannot see a single one.</p> 
+ <p><a name="an_6:20">6:20</a> They are like one of the beams of the temple, yet they say their hearts are gnawed upon by things creeping out of the earth; and when they and their clothes are eaten, they feel nothing.</p> 
+ <p><a name="an_6:21">6:21</a> Their faces are blacked by the smoke which comes out of the temple.</p> 
+ <p><a name="an_6:22">6:22</a> Upon their bodies and heads sit bats, swallows, and birds, and the cats also.</p> 
+ <p><a name="an_6:23">6:23</a> By this you may know that they are no gods, therefore fear them not.</p> 
+ <p><a name="an_6:24">6:24</a> Notwithstanding the gold which is around them to make them beautiful, and except that they wipe off the rust, they will not shine, because not even when they were molten did they feel it.</p> 
+ <p><a name="an_6:25">6:25</a> These things wherein there is no breath are bought for a most high price.</p> 
+ <p><a name="an_6:26">6:26</a> Having no feet, they are borne upon shoulders, and in this way they declare to men that they are worth nothing.</p> 
+ <p><a name="an_6:27">6:27</a> "'Even those who serve them are ashamed, for if they fall to the ground at any time, they cannot rise up again of themselves; neither, if one sets them upright, can they move of themselves; neither, if they are bowed down, can they make themselves straight; yet they set gifts before them as before dead men.</p> 
+ <p><a name="an_6:28">6:28</a> As for the things which are sacrificed to them, their priests sell and abuse; in the same way their wives store up part of it in salt; but to the poor and powerless they give none of it.</p> 
+ <p><a name="an_6:29">6:29</a> Menstruous women and women in childbed eat their sacrifices; by these things you may know that they are no gods; fear them not.</p> 
+ <p><a name="an_6:30">6:30</a> For how can they be called gods? Is it because women set meat before the gods of silver, gold, and wood,</p> 
+ <p><a name="an_6:31">6:31</a> and the priests sit in their temples, having their clothes torn, and their heads and beards shaven, and nothing upon their heads?</p> 
+ <p><a name="an_6:32">6:32</a> They roar and cry before their gods, as men do at the feast when one is dead.</p> 
+ <p><a name="an_6:33">6:33</a> The priests also take off their garments, and clothe their wives and children.</p> 
+ <p><a name="an_6:34">6:34</a> "'Whether one does evil or good to them, they are not able to repay it; neither can they set up a king or put him down.</p> 
+ <p><a name="an_6:35">6:35</a> In the same way, they can neither give riches nor money; though a man might make a vow to them and not keep it, they will not require it.</p> 
+ <p><a name="an_6:36">6:36</a> They can save no man from death, nor deliver the weak from the mighty.</p> 
+ <p><a name="an_6:37">6:37</a> They cannot restore a blind man to his sight, nor help any man in his distress.</p> 
+ <p><a name="an_6:38">6:38</a> They can show no mercy to the widow, nor do good to the fatherless.</p> 
+ <p><a name="an_6:39">6:39</a> Their gods of wood, which are overlaid with gold and silver, are like the stones which are hewn out of the mountain; those who worship them shall be confounded.</p> 
+ <p><a name="an_6:40">6:40</a> Why then would a man think and say that they are gods, when even the Chaldeans themselves dishonor them?</p> 
+ <p><a name="an_6:41">6:41</a> Who, if they saw someone mute and unable to speak, would bring him and entreat Bel, so that he may speak, as if he were able to understand.</p> 
+ <p><a name="an_6:42">6:42</a> Yet they cannot understand this themselves, and so leave them, for they have no knowledge.</p> 
+ <p><a name="an_6:43">6:43</a> The women also, sitting in the ways with cords around themselves, burn bran for perfume; but if any of them, drawn by someone who passes by, should lie with him, she reproaches her peer, because she was not thought as worthy as herself, nor her cord broken.</p> 
+ <p><a name="an_6:44">6:44</a> Whatsoever is done among them is false; so then, how can it be thought or said that they are gods?</p> 
+ <p><a name="an_6:45">6:45</a> "'They are made by carpenters and goldsmiths; they can be nothing other than what the workmen will have them be.</p> 
+ <p><a name="an_6:46">6:46</a> And they themselves who made them can never continue long; why then would the things which are made by them be gods?</p> 
+ <p><a name="an_6:47">6:47</a> For they left lies and reproaches for those who would succeed them.</p> 
+ <p><a name="an_6:48">6:48</a> For when any war or plague comes upon them, the priests consult among themselves, as to where they may be hidden with them.</p> 
+ <p><a name="an_6:49">6:49</a> Why then cannot men perceive that they are no gods, who can neither save themselves from war, nor from plague?</p> 
+ <p><a name="an_6:50">6:50</a> For, seeing they are only wood, overlaid with silver and gold, it shall be known hereafter that they are false;</p> 
+ <p><a name="an_6:51">6:51</a> and it shall manifestly appear to all nations and kings that they are no gods, but are the works of men's hands, and that there is no work of God in them.</p> 
+ <p><a name="an_6:52">6:52</a> Who then will not know that they are no gods?</p> 
+ <p><a name="an_6:53">6:53</a> For they can neither set up a king in the land, nor give rain to men.</p> 
+ <p><a name="an_6:54">6:54</a> They can neither judge their own case, nor redress a wrong; they are unable because they are like crows, between heaven and earth.</p> 
+ <p><a name="an_6:55">6:55</a> When it happens that fire falls upon the house of gods of wood, overlaid with gold or silver, their priests will flee away and escape; but they themselves shall be burned asunder like beams.</p> 
+ <p><a name="an_6:56">6:56</a> Moreover they cannot withstand any king or enemies; so how then can it be thought or said that they are gods?</p> 
+ <p><a name="an_6:57">6:57</a> Neither are those gods of wood, overlain with silver or gold, able to escape from thieves or robbers.</p> 
+ <p><a name="an_6:58">6:58</a> Whose gold and silver and garments wherewith they are clothed, those who are strong take it, and go away with all; neither are they able to help themselves.</p> 
+ <p><a name="an_6:59">6:59</a> "'Therefore it is better to be a king who displays his power, or else a profitable vessel in a house, which the owner shall have use of, than such false gods, or to be a door in an house, to keep such things therein, than such false gods, or a pillar of wood in a palace, than such false gods.</p> 
+ <p><a name="an_6:60">6:60</a> For sun, moon, and stars, being bright and sent to perform their duties, are obedient.</p> 
+ <p><a name="an_6:61">6:61</a> In the same way, the lightning, when it breaks forth, is easy to be seen; and in the same way the wind blows in every country.</p> 
+ <p><a name="an_6:62">6:62</a> And when God commands the clouds to go over the whole world, they do as they are directed.</p> 
+ <p><a name="an_6:63">6:63</a> And the fire, sent from above to consume hills and woods, does as it is commanded; but these are like them neither in appearance nor in power.</p> 
+ <p><a name="an_6:64">6:64</a> Therefore, it is neither to be supposed nor said that they are gods, since they are able neither to judge cases, nor to do good to men.</p> 
+ <p><a name="an_6:65">6:65</a> Knowing therefore that they are no gods, do not fear them,</p> 
+ <p><a name="an_6:66">6:66</a> for they can neither curse nor bless kings;</p> 
+ <p><a name="an_6:67">6:67</a> neither can they show signs in the heavens among the heathen, nor shine as the sun, nor give light as the moon.</p> 
+ <p><a name="an_6:68">6:68</a> The beasts are better than they, for they can get under a cover and help themselves.</p> 
+ <p><a name="an_6:69">6:69</a> It is then by no means manifest to us that they are gods, therefore do not fear them.</p> 
+ <p><a name="an_6:70">6:70</a> For as a scarecrow in a garden of cucumbers keeps nothing, so are their gods of wood, overlain with silver and gold.</p> 
+ <p><a name="an_6:71">6:71</a> And likewise their gods of wood, overlain with silver and gold, are like a white thorn in an orchard, which every bird sits upon; and also like a dead body, which is cast into the dark.</p> 
+ <p><a name="an_6:72">6:72</a> And you shall know them to be no gods by the bright purple that rots upon them, and they themselves afterward shall be eaten and shall be a reproach in the country.</p> 
+ <p><a name="an_6:73">6:73</a> Better, therefore, is the just man who has no idols, for he shall be far from reproach.'"</p> 
+ <p></p><hr>
+ <center>
+ <a href="aza.htm">Next: Prayer of Azariah</a></center>
+ </body>

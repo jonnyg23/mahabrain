@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc084.htm">Previous</a> 
+ <a href="agjc086.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 82</h4> <i>
+ </i><p>While Jesus is teaching, his disciples come and marvel because he speaks with a Samaritan. Many people from Sychar come to see Jesus. He speaks to them. With his disciples he goes to Sychar and remains for certain days.<br> <br> <b>1. </b>While Jesus yet was talking to the woman at the well, the six disciples came from Sychar with the food.<br> <b>2. </b>And when they saw him talking to a woman of Samaria, and one they thought a courtesan, they were amazed; yet no one asked him why he spoke with her.<br> <b>3. </b>The woman was so lost in thought and so intent on what the master said, that she forgot her errand to the well; she left her pitcher and ran quickly to the town.<br> <b>4. </b>She told the people all about the prophet she had met at Jacob's well; she said, He told me every thing I ever did.<br> <b>5. </b>And when the people would know more about the man, the woman said, Come out and see. And multitudes went out to Jacob's well.<br> <b>6. </b>When Jesus saw them come he said to those who followed him, You need not say, It is four months before the harvest time;<br> <b>7. </b>Behold, the harvest time is now. Lift up your eyes and look; the fields are golden with the ripened grain.<br> <b>8. </b>Lo, many sowers have gone forth to sow the seeds of life; the seed has grown; the plants have strengthened in the summer sun; the grain has ripened, and the master calls for men to reap.<br> <b>9. </b>And you shall go out in the fields and reap what other men have sown; but when the reckoning day shall come the sowers and the reapers all together will rejoice.<br> <b>10. </b>And Philip said to Jesus, Stay now your work a time and sit beneath this olive tree and eat a portion of this food; you must be faint for you have eaten naught since early day.<br> <b>11. </b>But Jesus said, I am not faint, for I have food to eat you know not of.<br> <b>12. </b>Then the disciples said among themselves, Who could have brought him aught to eat?<br> <b>13. </b>They did not know that he had power to turn the very ethers into bread.<br> <b>14. </b>And Jesus said, The master of the harvest never sends his reapers forth and feeds them not.<br> <b>15. </b>My Father who has sent me forth into the harvest field of human life will never suffer me to want; and when he calls for you to serve, lo, he will give you food, will clothe and shelter you.<br> <b>16. </b>Then turning to the people of Samaria, he said, Think not it strange that I, a Jew, should speak to you, for I am one with you.<br> <b>17. </b>The universal Christ who was and is, and evermore shall be, is manifest in me; but Christ belongs to every man.<br> <b>18. </b>God scatters forth his blessings with a lavish hand, and he is not more kind to one than to another one of all the creatures of his hand.<br> <b>19. </b>I just came up from Judah's hills, and God's same sun was shining and his flowers were blooming, and in the night his stars were just as bright as they are here.<br> <b>20. </b>God cannot cast a child away; the Jew, the Greek and the Samaritan are equal in his sight.<br> <b>21. </b>And why should men and women fret and quarrel, like children in their plays?<br> <b>22. </b>The lines that separate the sons of men are made of straw, and just a single breath of love would blow them all away.<br> <b>23. </b>The people were amazed at what the stranger said, and many said, The Christ that was to come has surely come.<br> <b>24. </b>And Jesus went with them into the town, and tarried certain days.</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc086.htm">Next: Chapter 83</a></center>
+ </div>
+ </center></body>

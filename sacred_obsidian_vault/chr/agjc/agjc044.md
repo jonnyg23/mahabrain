@@ -1,0 +1,22 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="agjc043.htm">Previous</a> 
+ <a href="agjc045.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B002RHONOS/internetsacredte">Buy this Book on Kindle</a>
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Aquarian Gospel of Jesus Christ</i>, by Levi H. Dowling, [1920], at sacred-texts.com</font></p><hr> 
+ <p></p> <h4>Chapter 41</h4> <i>
+ </i><p>Jesus stands by a healing fountain. Reveals the fact that faith is the potent factor in healing and many are healed by faith. A little child teaches a great lesson of faith.<br> <br> <b>1. </b>A flowing spring that people called the Healing Fount, was near Persepolis.<br> <b>2. </b>And all the people thought that at a certain time of the year their deity came down and gave a virtue to the waters of the fount, and that the sick who then would plunge into the fount and wash would be made whole.<br> <b>3. </b>About the fount a multitude of people were in waiting for the Holy One to come and potentise the waters of the fount.<br> <b>4. </b>The blind, the lame, the deaf, the dumb, and those obsessed were there.<br> <b>5. </b>And Jesus, standing in the midst of them, exclaimed, Behold the spring of life! These waters that will fail are honoured as the special blessing of your God.<br> <b>6. </b>From whence do healing virtues come? Why is your God so partial with his gifts? Why does he bless this spring to-day, and then to-morrow take his blessings all away?<br> <b>7. </b>A deity of power could fill these waters full of healing virtue every day.<br> <b>8. </b>Hear me, you sick, disconsolate: The virtue of this fount is not a special gift of God.<br> <b>9. </b>Faith is the healing power of every drop of all the waters of this spring.<br> <b>10. </b>He who believes with all his heart that he will be made whole by washing in this fount will be made whole when he has washed; and he may wash at any time.<br> <b>11. </b>Let every one who has this faith in God and in himself plunge in these waters now and wash.<br> <b>12. </b>And many of the people plunged into the crystal fount; and they were healed.<br> <b>13. </b>And then there was a rush, for all the people were inspired with faith, and each one strove to be among the first to wash, lest all the virtue be absorbed.<br> <b>14. </b>And Jesus saw a little child, weak, faint and helpless, sitting all alone beyond the surging crowd; and there was none to help her to the fount.<br> <b>15. </b>And Jesus said, My little one, why do you sit and wait? Why not arise and hasten to the fount and wash, and be made well?<br> <b>16. </b>The child replied, I need not haste; the blessings of my Father in the sky are measured not in tiny cups; they never fail; their virtues are the same for evermore.<br> <b>17. </b>When these whose faith is weak must haste to wash for fear their faith will fail, have all been cured, these waters will be just as powerful for me.<br> <b>18. </b>Then I can go and stay a long, long time within the blessed waters of the spring.<br> <b>19. </b>And Jesus said, Behold a master soul! She came to earth to teach to men the power of faith.<br> <b>20. </b>And then he lifted up the child and said, Why wait for anything? The very air we breathe is filled with balm of life. Breathe in this balm of life in faith and be made whole.<br> <b>21. </b>The child breathed in the balm of life in faith, and she was well.<br> <b>22. </b>The people marvelled much at what they heard and saw; they said, This man must surely be the god of health made flesh.<br> <b>23. </b>And Jesus said, The fount of life is not a little pool; it is as wide as are the spaces of the heavens.<br> <b>24. </b>The waters of the fount are love; the potency is faith, and he who plunges deep into the living springs, in living faith, may wash away his guilt and be made whole, and freed from sin.</p> 
+ <p><a></a></p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="agjc045.htm">Next: Chapter 42</a></center>
+ </div>
+ </center></body>

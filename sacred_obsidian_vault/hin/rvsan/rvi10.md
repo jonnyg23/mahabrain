@@ -1,0 +1,220 @@
+<body>
+ <center>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Hinduism</a> 
+ <a href="index.htm">Index</a> 
+ 
+ <br>
+ <a href="../rigveda/rvi10.htm">English</a> 
+ 
+ <br>
+ </center>
+ <hr>
+ <h1 align="CENTER">The Rig Veda</h1>
+ <h3 align="CENTER">In Sanskrit</h3>
+ <h4 align="CENTER">Book 10</h4>
+ <hr>
+ <p>
+ <b>IMPORTANT NOTE</b>:
+ To view the Sanskrit and Romanization of the Rig Veda,
+ you need to set up your browser to view Unicode content.
+ If you don't do this,
+ you will see lots of boxes or question marks on these pages.
+ This is not a problem with the site, it is a problem with your browser.
+ For step by step instructions on how to set up your browser to view these
+ pages properly,
+ read the <a href="../../unicode.htm">Unicode page</a>.
+ </p>
+ <hr>
+ <a href="rv10001.htm">Hymn 1</a><br>
+ <a href="rv10002.htm">Hymn 2</a><br>
+ <a href="rv10003.htm">Hymn 3</a><br>
+ <a href="rv10004.htm">Hymn 4</a><br>
+ <a href="rv10005.htm">Hymn 5</a><br>
+ <a href="rv10006.htm">Hymn 6</a><br>
+ <a href="rv10007.htm">Hymn 7</a><br>
+ <a href="rv10008.htm">Hymn 8</a><br>
+ <a href="rv10009.htm">Hymn 9</a><br>
+ <a href="rv10010.htm">Hymn 10</a><br>
+ <a href="rv10011.htm">Hymn 11</a><br>
+ <a href="rv10012.htm">Hymn 12</a><br>
+ <a href="rv10013.htm">Hymn 13</a><br>
+ <a href="rv10014.htm">Hymn 14</a><br>
+ <a href="rv10015.htm">Hymn 15</a><br>
+ <a href="rv10016.htm">Hymn 16</a><br>
+ <a href="rv10017.htm">Hymn 17</a><br>
+ <a href="rv10018.htm">Hymn 18</a><br>
+ <a href="rv10019.htm">Hymn 19</a><br>
+ <a href="rv10020.htm">Hymn 20</a><br>
+ <a href="rv10021.htm">Hymn 21</a><br>
+ <a href="rv10022.htm">Hymn 22</a><br>
+ <a href="rv10023.htm">Hymn 23</a><br>
+ <a href="rv10024.htm">Hymn 24</a><br>
+ <a href="rv10025.htm">Hymn 25</a><br>
+ <a href="rv10026.htm">Hymn 26</a><br>
+ <a href="rv10027.htm">Hymn 27</a><br>
+ <a href="rv10028.htm">Hymn 28</a><br>
+ <a href="rv10029.htm">Hymn 29</a><br>
+ <a href="rv10030.htm">Hymn 30</a><br>
+ <a href="rv10031.htm">Hymn 31</a><br>
+ <a href="rv10032.htm">Hymn 32</a><br>
+ <a href="rv10033.htm">Hymn 33</a><br>
+ <a href="rv10034.htm">Hymn 34</a><br>
+ <a href="rv10035.htm">Hymn 35</a><br>
+ <a href="rv10036.htm">Hymn 36</a><br>
+ <a href="rv10037.htm">Hymn 37</a><br>
+ <a href="rv10038.htm">Hymn 38</a><br>
+ <a href="rv10039.htm">Hymn 39</a><br>
+ <a href="rv10040.htm">Hymn 40</a><br>
+ <a href="rv10041.htm">Hymn 41</a><br>
+ <a href="rv10042.htm">Hymn 42</a><br>
+ <a href="rv10043.htm">Hymn 43</a><br>
+ <a href="rv10044.htm">Hymn 44</a><br>
+ <a href="rv10045.htm">Hymn 45</a><br>
+ <a href="rv10046.htm">Hymn 46</a><br>
+ <a href="rv10047.htm">Hymn 47</a><br>
+ <a href="rv10048.htm">Hymn 48</a><br>
+ <a href="rv10049.htm">Hymn 49</a><br>
+ <a href="rv10050.htm">Hymn 50</a><br>
+ <a href="rv10051.htm">Hymn 51</a><br>
+ <a href="rv10052.htm">Hymn 52</a><br>
+ <a href="rv10053.htm">Hymn 53</a><br>
+ <a href="rv10054.htm">Hymn 54</a><br>
+ <a href="rv10055.htm">Hymn 55</a><br>
+ <a href="rv10056.htm">Hymn 56</a><br>
+ <a href="rv10057.htm">Hymn 57</a><br>
+ <a href="rv10058.htm">Hymn 58</a><br>
+ <a href="rv10059.htm">Hymn 59</a><br>
+ <a href="rv10060.htm">Hymn 60</a><br>
+ <a href="rv10061.htm">Hymn 61</a><br>
+ <a href="rv10062.htm">Hymn 62</a><br>
+ <a href="rv10063.htm">Hymn 63</a><br>
+ <a href="rv10064.htm">Hymn 64</a><br>
+ <a href="rv10065.htm">Hymn 65</a><br>
+ <a href="rv10066.htm">Hymn 66</a><br>
+ <a href="rv10067.htm">Hymn 67</a><br>
+ <a href="rv10068.htm">Hymn 68</a><br>
+ <a href="rv10069.htm">Hymn 69</a><br>
+ <a href="rv10070.htm">Hymn 70</a><br>
+ <a href="rv10071.htm">Hymn 71</a><br>
+ <a href="rv10072.htm">Hymn 72</a><br>
+ <a href="rv10073.htm">Hymn 73</a><br>
+ <a href="rv10074.htm">Hymn 74</a><br>
+ <a href="rv10075.htm">Hymn 75</a><br>
+ <a href="rv10076.htm">Hymn 76</a><br>
+ <a href="rv10077.htm">Hymn 77</a><br>
+ <a href="rv10078.htm">Hymn 78</a><br>
+ <a href="rv10079.htm">Hymn 79</a><br>
+ <a href="rv10080.htm">Hymn 80</a><br>
+ <a href="rv10081.htm">Hymn 81</a><br>
+ <a href="rv10082.htm">Hymn 82</a><br>
+ <a href="rv10083.htm">Hymn 83</a><br>
+ <a href="rv10084.htm">Hymn 84</a><br>
+ <a href="rv10085.htm">Hymn 85</a><br>
+ <a href="rv10086.htm">Hymn 86</a><br>
+ <a href="rv10087.htm">Hymn 87</a><br>
+ <a href="rv10088.htm">Hymn 88</a><br>
+ <a href="rv10089.htm">Hymn 89</a><br>
+ <a href="rv10090.htm">Hymn 90</a><br>
+ <a href="rv10091.htm">Hymn 91</a><br>
+ <a href="rv10092.htm">Hymn 92</a><br>
+ <a href="rv10093.htm">Hymn 93</a><br>
+ <a href="rv10094.htm">Hymn 94</a><br>
+ <a href="rv10095.htm">Hymn 95</a><br>
+ <a href="rv10096.htm">Hymn 96</a><br>
+ <a href="rv10097.htm">Hymn 97</a><br>
+ <a href="rv10098.htm">Hymn 98</a><br>
+ <a href="rv10099.htm">Hymn 99</a><br>
+ <a href="rv10100.htm">Hymn 100</a><br>
+ <a href="rv10101.htm">Hymn 101</a><br>
+ <a href="rv10102.htm">Hymn 102</a><br>
+ <a href="rv10103.htm">Hymn 103</a><br>
+ <a href="rv10104.htm">Hymn 104</a><br>
+ <a href="rv10105.htm">Hymn 105</a><br>
+ <a href="rv10106.htm">Hymn 106</a><br>
+ <a href="rv10107.htm">Hymn 107</a><br>
+ <a href="rv10108.htm">Hymn 108</a><br>
+ <a href="rv10109.htm">Hymn 109</a><br>
+ <a href="rv10110.htm">Hymn 110</a><br>
+ <a href="rv10111.htm">Hymn 111</a><br>
+ <a href="rv10112.htm">Hymn 112</a><br>
+ <a href="rv10113.htm">Hymn 113</a><br>
+ <a href="rv10114.htm">Hymn 114</a><br>
+ <a href="rv10115.htm">Hymn 115</a><br>
+ <a href="rv10116.htm">Hymn 116</a><br>
+ <a href="rv10117.htm">Hymn 117</a><br>
+ <a href="rv10118.htm">Hymn 118</a><br>
+ <a href="rv10119.htm">Hymn 119</a><br>
+ <a href="rv10120.htm">Hymn 120</a><br>
+ <a href="rv10121.htm">Hymn 121</a><br>
+ <a href="rv10122.htm">Hymn 122</a><br>
+ <a href="rv10123.htm">Hymn 123</a><br>
+ <a href="rv10124.htm">Hymn 124</a><br>
+ <a href="rv10125.htm">Hymn 125</a><br>
+ <a href="rv10126.htm">Hymn 126</a><br>
+ <a href="rv10127.htm">Hymn 127</a><br>
+ <a href="rv10128.htm">Hymn 128</a><br>
+ <a href="rv10129.htm">Hymn 129</a><br>
+ <a href="rv10130.htm">Hymn 130</a><br>
+ <a href="rv10131.htm">Hymn 131</a><br>
+ <a href="rv10132.htm">Hymn 132</a><br>
+ <a href="rv10133.htm">Hymn 133</a><br>
+ <a href="rv10134.htm">Hymn 134</a><br>
+ <a href="rv10135.htm">Hymn 135</a><br>
+ <a href="rv10136.htm">Hymn 136</a><br>
+ <a href="rv10137.htm">Hymn 137</a><br>
+ <a href="rv10138.htm">Hymn 138</a><br>
+ <a href="rv10139.htm">Hymn 139</a><br>
+ <a href="rv10140.htm">Hymn 140</a><br>
+ <a href="rv10141.htm">Hymn 141</a><br>
+ <a href="rv10142.htm">Hymn 142</a><br>
+ <a href="rv10143.htm">Hymn 143</a><br>
+ <a href="rv10144.htm">Hymn 144</a><br>
+ <a href="rv10145.htm">Hymn 145</a><br>
+ <a href="rv10146.htm">Hymn 146</a><br>
+ <a href="rv10147.htm">Hymn 147</a><br>
+ <a href="rv10148.htm">Hymn 148</a><br>
+ <a href="rv10149.htm">Hymn 149</a><br>
+ <a href="rv10150.htm">Hymn 150</a><br>
+ <a href="rv10151.htm">Hymn 151</a><br>
+ <a href="rv10152.htm">Hymn 152</a><br>
+ <a href="rv10153.htm">Hymn 153</a><br>
+ <a href="rv10154.htm">Hymn 154</a><br>
+ <a href="rv10155.htm">Hymn 155</a><br>
+ <a href="rv10156.htm">Hymn 156</a><br>
+ <a href="rv10157.htm">Hymn 157</a><br>
+ <a href="rv10158.htm">Hymn 158</a><br>
+ <a href="rv10159.htm">Hymn 159</a><br>
+ <a href="rv10160.htm">Hymn 160</a><br>
+ <a href="rv10161.htm">Hymn 161</a><br>
+ <a href="rv10162.htm">Hymn 162</a><br>
+ <a href="rv10163.htm">Hymn 163</a><br>
+ <a href="rv10164.htm">Hymn 164</a><br>
+ <a href="rv10165.htm">Hymn 165</a><br>
+ <a href="rv10166.htm">Hymn 166</a><br>
+ <a href="rv10167.htm">Hymn 167</a><br>
+ <a href="rv10168.htm">Hymn 168</a><br>
+ <a href="rv10169.htm">Hymn 169</a><br>
+ <a href="rv10170.htm">Hymn 170</a><br>
+ <a href="rv10171.htm">Hymn 171</a><br>
+ <a href="rv10172.htm">Hymn 172</a><br>
+ <a href="rv10173.htm">Hymn 173</a><br>
+ <a href="rv10174.htm">Hymn 174</a><br>
+ <a href="rv10175.htm">Hymn 175</a><br>
+ <a href="rv10176.htm">Hymn 176</a><br>
+ <a href="rv10177.htm">Hymn 177</a><br>
+ <a href="rv10178.htm">Hymn 178</a><br>
+ <a href="rv10179.htm">Hymn 179</a><br>
+ <a href="rv10180.htm">Hymn 180</a><br>
+ <a href="rv10181.htm">Hymn 181</a><br>
+ <a href="rv10182.htm">Hymn 182</a><br>
+ <a href="rv10183.htm">Hymn 183</a><br>
+ <a href="rv10184.htm">Hymn 184</a><br>
+ <a href="rv10185.htm">Hymn 185</a><br>
+ <a href="rv10186.htm">Hymn 186</a><br>
+ <a href="rv10187.htm">Hymn 187</a><br>
+ <a href="rv10188.htm">Hymn 188</a><br>
+ <a href="rv10189.htm">Hymn 189</a><br>
+ <a href="rv10190.htm">Hymn 190</a><br>
+ <a href="rv10191.htm">Hymn 191</a><br>
+ </body>

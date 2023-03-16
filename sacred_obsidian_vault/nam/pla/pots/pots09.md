@@ -1,0 +1,49 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Native American</a> 
+ <a href="../index.htm">Plains</a> 
+ <a href="index.htm">Index</a> 
+ <a href="pots08.htm">Previous</a> 
+ <a href="pots10.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/0803270089/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><i>The Punishment of the Stingy and Other Indian Stories</i>, by George Bird Grinnell, [1901], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_63"><font size="1" color="GREEN">p. 63</font></a></p>  <h1 align="center">The First Corn</h1>  
+ <p><a name="page_64"><font size="1" color="GREEN">p. 64</font></a> <a name="page_65"><font size="1" color="GREEN">p. 65</font></a></p>  <h3 align="center">The First Corn</h3>  
+ <p>A LONG time ago there lived in the Pawnee village a young man who was a great gambler. Every day he played at sticks, and he was almost always unlucky. Sometimes he would lose everything that he had, and would even lose things belonging to his father. His father had often scolded him about gambling, and had told him that he ought to stop it. There were two things that he never staked; these two things were his shield and his lance.</p>  
+ <p>One day he played sticks for a long time, and when he got through he had lost everything that he had except these two things. When he went home at night to his father's lodge he told his relations what he had done, and his father said to him: "My son, for a long time you have been doing this, and I have many times spoken</p>  
+ <p><a name="page_66"><font size="1" color="GREEN">p. 66</font></a></p>  
+ <p>to you about it. Now I have done. I cannot have you here any longer. You cannot live here in my lodge or in this village. You must go away."</p>  
+ <p>The young man thought about it for a little while, and then he said: "Well, I will go. It does not make much difference where I am." So he took his shield and his spear and went out of the lodge and started to go away from the village. When he got outside of the village and had gone some distance, he heard behind him a loud rushing sound like a strong windthe sound kept getting nearer and louderand all at once it was above him, and then the sound stopped, and something spoke to him and said: "Well, I am here. I have come to find you. I have been sent, and am here on purpose to get you and take you with me." The voice that spoke to him was the Wind.</p>  
+ <p>The Wind took the young man up and carried him away towards the west. They travelled many days, and passed over broad prairies and then across high mountains and then over high, wide plains and over other mountains until they came to the end of the world, where</p>  
+ <p><a name="page_67"><font size="1" color="GREEN">p. 67</font></a></p>  
+ <p>the sky bends down and touches the ground. The last thing the young man saw was the gate through the edge of the sky. A great buffalo bull stands in this gateway and blocks it up. He had to move to one side to let the Wind and the young man pass through.</p>  
+ <p>Every year one hair drops from the hide of this bull. When all have fallen the end of the world will come.</p>  
+ <p>After they had passed through this gate they went on, and it seemed as if they were passing over a big water. There was nothing to be seen except the sky and the water. At last they came to a land. Here were many peoplegreat crowds of them. The Wind told the young man, "These are all waiters on the Father." They went on, and at last came to the Father's lodge and went in. When they had sat down the Father spoke to the young man and said to him: "My son, I have known you for a long time and have watched you. I wanted to see you, and that is why I gave you bad luck at the sticks, and why I sent my Wind to bring you here. Your people are very hungry now because they can find no buffalo, but I am going to give you something on which you can</p>  
+ <p><a name="page_68"><font size="1" color="GREEN">p. 68</font></a></p>  
+ <p>live, even when the buffalo fail." Then he gave him three little sacks. The first contained squash seed; the second beans, red and white, and the third corn, white, red, blue, and yellow.</p>  
+ <p>The Father said: "Tie these sacks to your shield, and do not lose them. When you get back to your people give each one some of the seeds and tell him to put them in the ground; then they will make more. These things are good to eat, but the first year do not let the people eat them; let them put the yield away, and the next year again put it in the ground. After that they can eat a part of what grows, but they must always save some for seed. So the people will always have something to eat with their buffalo meat, and something to depend on if the buffalo fail." The Father gave him also a buffalo robe, and said to him: "When you go back, the next day after you have got there, call all the people together in your lodge, and give them what is in this robe, and tell them all these things. Now you can go back to your people."</p>  
+ <p>The Wind took the young man back. They travelled a long time, and at last they came to</p>  
+ <p><a name="page_69"><font size="1" color="GREEN">p. 69</font></a></p>  
+ <p>the Pawnee village. The Wind put the young man down, and he went into his father's lodge and said, "Father, I am here"; but his father did not believe him, and said, "It is not you." He had been gone so long that they had thought him dead. Then he said to his mother, "Mother, I am here," and his mother knew him and was glad that he had returned.</p>  
+ <p>At this time the people had no buffalo. They had scouted far and near and could find none anywhere, and they were all very hungry. The little children cried with hunger. The next day after he got back, the young man sent out an old man to go through the camp and call all the people to come to his father's lodge. When they were there, he opened his robe and spread it out, and it was covered with pieces of fat buffalo meat piled high. The young man gave to each person all he could carry, but while he was handing out the pieces, his father was trying to pull off the robe the hindquarters of the buffalo and hide them. He was afraid that the young man might give away all the meat, and he wanted to save this for their own lodge. But the young man said: "Father,</p>  
+ <p><a name="page_70"><font size="1" color="GREEN">p. 70</font></a></p>  
+ <p>do not take this away. Do not touch anything. There is enough."</p>  
+ <p>After he had given them the meat he showed them the sacks of seed and told them what they were for, and explained to them that they must not eat any the first year, but that they must always save some to plant, and the people listened. Then he said to them: "I hear that you have no buffalo. Come out to-morrow and I will show you where to go for buffalo." The people wondered where this could be, for they had travelled far in all directions looking for buffalo. The next day they went out as he had told them, and the young man sent two boys to the top of a high hill close to camp, and told them to let him know what they saw from it. When the boys got to the top of the hill, they saw down below them in the hollow a big band of buffalo.</p>  
+ <p>When the people learned that the buffalo were there, they all took their arrows and ran out and chased the buffalo and made a big killing, so that there was plenty in the camp and they made much dried meat. Four days after this he again sent out the boys, and they found buffalo. Now that they had plenty of</p>  
+ <p><a name="page_71"><font size="1" color="GREEN">p. 71</font></a></p>  
+ <p>meat they stayed in one place, and when spring came the young man put the seed in the ground. When the people first saw these strange plants growing they wondered at them, for they were new and different from anything that they had ever seen growing on the prairie. They liked the color of the young stalks, and the way they tasselled out, and the way the ears formed. They found that besides being pretty to look at they were good to eat, for when the young man had gathered the crop he gave the people a little to taste, so that they might know that the words that he had spoken were true. The rest he kept for seed. Next season he gave all the people seed to plant, and after that they always had these things.</p>  
+ <p>Later, this young man became one of the head men and taught the people many things. He told them that always when they killed buffalo they must bring the fattest and offer them to the Father. He taught them about the sacred bundles, and told them that they must put an ear of corn on the bundles and must keep a piece of fat in the bundles along with the corn, and that both must be kept out of sight. In the fall they should take the ear</p>  
+ <p><a name="page_72"><font size="1" color="GREEN">p. 72</font></a></p>  
+ <p>of corn out of the bundle and rub the piece of fat over it. <a name="fr_1"></a><a href="#fn_1"><font size="1">*</font></a> Thus they would have good crops and plenty of food.</p>  
+ <p>All these things the people did, and it was a help to them in their living.</p>  
+ <p>
+ </p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_1"></a><a href="pots09.htm#fr_1">72:*</a> Cf. <i>The Story of the Indian</i>, p. 194, and <i>The Indians of To-day</i>, p. 43.</p><p></p><hr>
+ <center>
+ <a href="pots10.htm">Next: The Star Boy</a></center>
+ </body>

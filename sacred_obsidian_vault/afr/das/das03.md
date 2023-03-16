@@ -1,0 +1,31 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Africa</a> 
+ <a href="index.htm">Index</a> 
+ <a href="das02.htm">Previous</a> 
+ <a href="das04.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Drums and Shadows</i>, by Georgia Writer's Project, [1940], at sacred-texts.com</font></p><hr> 
+ <p><a name="page_xv"><font size="1" color="green">p. xv</font></a></p> <h1 align="CENTER">FOREWORD</h1> 
+ <p>The coastal region of Georgia and South Carolina is a fertile field for the study of old cultural heritages. Artists, poets, and novelists are not the only ones who have felt the, allure of this region with its old plantations, its sleepy towns, its cypress swamps, its moss-hung trees, its ox carts, and its Negro peasantry. The works of C. C. Jones, Jr., John Bennett, Marcellus Whaley, Ambrose Gonzales, Reed Smith, Elsie C. Parsons, Ballanta-Taylor, T. J. Woofter, Jr., Guion G. Johnson, Guy B. Johnson, Robert Gordon, Lorenzo Turner, and others testify to the continuing interest of scholars in the history, folklore, folk music, and dialect of the Negro people of this region. These Negroes, more perhaps than any others in the United States, have lived in a physical and cultural isolation which is conducive to the survival of many old customs and thoughtways, both African and European. The present work represents an effort to go a bit deeper than any other work has done into certain aspects of the folk culture of these people in the coastal area. it is particularly welcome at this time, for it not only covers an area which has not received as much attention as have other areas, notably those around Charleston and Beaufort, but it is oriented toward the problem of African heritages in this country, a problem which is coming to be more and more important to the cultural anthropologist.</p> 
+ <p>Readers of DRUMS AND SHADOWS will encounter much that is familiar, for many of the customs and beliefs found among the Georgia coastal Negroes are not peculiar to them.</p> 
+ <p><a name="page_xvi"><font size="1" color="green">p. xvi</font></a></p> 
+ <p><span class="contnote"><font size="-2" color="GREEN">[paragraph continues]</font></span> Indeed, many of these traits, such as the belief in ghosts, witches, and conjure, are either known or practiced by thousands of white and Negro people in other parts of the United States; while the dogmas and methods of Father Divine and Bishop Grace seem to flourish best among the proletariat of Harlem, Chicago, Detroit, Washington, Richmond, and other urban centers. Nevertheless, one finds much in these pages which is new, and one senses the great virility of old heritages in the daily lives of the coastal Negroes.</p> 
+ <p>DRUMS AND SHADOWS makes no pretense of offering a complete picture of the life and culture of these people, but limits its scope of inquiry to certain definite types. In undertaking the work, Miss Granger, the supervisor, also wisely refrained from attempting to include an investigation of subjects like folk music and dialect, which require special training and technical analysis. The visits, interviews, and observations were made by the workers on the Georgia Writers' Project. The investigators were enthusiastic and persistent, and, in spite of the fact that they had had no formal training in ethnological methods, they have made a real contribution to knowledge. They have recorded what is probably the most thorough search for African heritages among Negroes in a small area that has ever been attempted in this country up to the present time.</p> 
+ <p>This question of the nature and importance of African heritage in America bids fair to develop into something of a controversy. At one extreme are scholars like Robert E. Park and E. B. Reuter who would not even consider the matter debatable since they virtually deny the existence of <i>any</i> significant Africanisms in the United States. Toward the other extreme is Melville J. Herskovits, who believes that African heritages are very significant, that they have contributed much to the culture of white America, and that the study of these heritages may point the way to racial understanding and the alleviation of friction between the races in the United States. My own position lies somewhere between these two, since I believe that there are a few important African survivals in the United States, but that the degree of significance of these African heritages is questionable in view of the overwhelming tendency of the culture of the white</p> 
+ <p><a name="page_xvii"><font size="1" color="green">p. xvii</font></a></p> 
+ <p>man to displace the Negro's African culture, and that their influence on the everyday problem of race relations is relatively inconsequential.</p> 
+ <p>However, regardless of differences of opinion as to the nature and importance of African heritages in our civilization, almost everyone would agree that the question is interesting and worthy of study. Such study may not only satisfy a wholesome curiosity but may throw light on the scientific problem of the processes which go on when two different cultures come into contact. In dealing with the material collected for this book, Miss Granger makes no decision as to the African sources of particular traits. She has, however, included a valuable appendix on West African culture patterns and has cited therein numerous possible parallels between these patterns and the culture of Georgia coastal Negroes.</p> 
+ <p>DRUMS AND SHADOWS will interest the scholar as well as the general reader, for it has combed over a strategic area, has discovered clues, has raised problems, and thus made easier the way of any cultural anthropologist who might want to follow and attempt a definitive scientific study of the question of African heritages and influences in American civilization.</p> 
+ <p align="RIGHT">GUY B. JOHNSON<br> University of North Carolina</p> 
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="das04.htm">Next: Notes to the Reader</a></center>
+ </div>
+ </center></body>

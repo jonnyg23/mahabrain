@@ -1,0 +1,21 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Christianity</a> 
+ <a href="index.htm">Index</a> 
+ <a href="cou03.htm">Previous</a> 
+ <a href="cou05.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B00295S2X6/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Cloud of Unknowing</i>, ed. by Evelyn Underhill, [1922], at sacred-texts.com</font></p><hr>  
+ <p><a name="an_v"></a> </p>  
+ <p><a name="an_v-p1"></a><a name="page_45"><font size="1" color="green">p. 45</font></a> <a name="an_v-Page_45"></a></p>  <h3 align="center"><a name="an_v-p1.1"></a>Here Beginneth the Prologue</h3>  
+ <p><a name="an_v-p2"></a> </p>  
+ <p><a name="an_v-p3"></a>IN the name of the Father and of the Son and of the Holy Ghost! I charge thee and I beseech thee, with as much power and virtue as the bond of charity is sufficient to suffer, whatsoever thou be that this book shalt have in possession, either by property, either by keeping, by bearing as messenger, or else by borrowing, that in as much as in thee is by will and advisement, neither thou read it, nor write it, nor speak it, nor yet suffer it be read, written, or spoken, of any or to any but if it be of such one, or to such one, that hath by thy supposing in a true will and by an whole intent purposed him to be a perfect follower of Christ not only in active living, but in the <a name="an_v-p3.1"></a><a name="page_46"><font size="1" color="green">p. 46</font></a> <a name="an_v-Page_46"></a> sovereignest point of contemplative living the which is possible by grace for to be come to in this present life of a perfect soul yet abiding in this deadly body; and thereto that doth that in him is, and by thy supposing hath done long time before, for to able him to contemplative living by the virtuous means of active living. For else it accordeth nothing to him. And over this I charge thee and I beseech thee by the authority of charity, that if any such shall read it, write it, or speak it, or else hear it be read or spoken, that thou charge him as I do thee, for to take him time to read it, speak it, write it, or hear it, all over. For peradventure there is some matter therein in the beginning or in the middle, the which is hanging, and not fully declared where it standeth: and if it be not there, it is soon after, or else in the end. Wherefore if a man saw one matter and not another, peradventure he might lightly be led into error; and therefore in eschewing of <a name="an_v-p3.2"></a><a name="page_47"><font size="1" color="green">p. 47</font></a> <a name="an_v-Page_47"></a> this error, both in thyself and in all other, I pray thee for charity do as I say thee.</p>  
+ <p><a name="an_v-p4"></a>Fleshly janglers, open praisers and blamers of themselves or of any other, tellers of trifles, ronners and tattlers of tales, and all manner of pinchers, cared I never that they saw this book. For mine intent was never to write such thing unto them, and therefore I would that they meddle not therewith; neither they, nor any of these curious, lettered, or unlearned men. Yea, although that they be full good men of active living, yet this matter accordeth nothing to them. But if it be to those men, the which although they stand in activity by outward form of living, nevertheless yet by inward stirring after the privy spirit of God, whose dooms be hid, they be full graciously disposed, not continually as it is proper to very contemplatives, but now and then to be perceivers in the highest point of this contemplative act; if such men might see it, they <a name="an_v-p4.1"></a><a name="page_48"><font size="1" color="green">p. 48</font></a> <a name="an_v-Page_48"></a> should by the grace of God be greatly comforted thereby.</p>  
+ <p><a name="an_v-p5"></a>This book is distinguished in seventy chapters and five. Of the which chapters, the last chapter of all teacheth some certain tokens by the which a soul may verily prove whether he be called of God to be a worker in this work or none.</p>  
+ <p></p><hr>
+ <center>
+ <a href="cou05.htm">Next: Table of the Chapters</a></center>
+ </body>

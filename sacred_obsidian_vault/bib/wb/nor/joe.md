@@ -1,0 +1,89 @@
+<body>
+ <center>
+ <a href="../../../cdshop/index.htm"><img src="../../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../../index.htm">Sacred Texts</a> 
+ <a href="../../index.htm">Bible</a> 
+ <a href="../index.htm">World Bible</a> 
+ <a href="index.htm">Index</a> 
+ <a href="hos.htm">Previous</a> 
+ <a href="amo.htm">Next</a> 
+ </center>
+ <hr>
+  <h3 align="center">Norwegian Bible: Joel</h3> 
+ <p><a name="an_1:1">1:1</a> Herrens ord som kom til Joel, Petuels sønn: </p> 
+ <p><a name="an_1:2">1:2</a> Hør dette, I gamle! Gi akt, alle som bor i landet! Er sådant skjedd i eders dager eller i eders fedres dager? </p> 
+ <p><a name="an_1:3">1:3</a> I skal fortelle om det til eders barn, og eders barn til sine barn, og deres barn til en kommende slekt. </p> 
+ <p><a name="an_1:4">1:4</a> Hvad gnageren* har levnet, har vrimleren* ett, og hvad vrimleren har levnet, har slikkeren* ett, og hvad slikkeren har levnet, har skaveren* ett. /  </p> 
+ <p><a name="an_1:5">1:5</a> Våkn op, I drukne, og gråt, og jamre, alle vindrikkere, fordi mosten er revet bort fra eders munn. </p> 
+ <p><a name="an_1:6">1:6</a> For et folk har draget op over mitt land sterkt og talløst; dets tenner er som en løves tenner, og det har jeksler som en løvinne. </p> 
+ <p><a name="an_1:7">1:7</a> Det har rent ødelagt mine vintrær og knekket mine fikentrær; det har gjort dem aldeles bare og kastet dem bort; deres grener er blitt hvite. </p> 
+ <p><a name="an_1:8">1:8</a> Klag som en jomfru som bærer sørgedrakt for sin ungdoms brudgom! </p> 
+ <p><a name="an_1:9">1:9</a> Matoffer og drikkoffer er revet bort fra Herrens hus; prestene, Herrens tjenere, sørger. </p> 
+ <p><a name="an_1:10">1:10</a> Marken er ødelagt, jorden sørger; for kornet er ødelagt, mosten er tørket bort, oljen er svunnet inn. </p> 
+ <p><a name="an_1:11">1:11</a> Akerdyrkerne er skuffet, vingårdsmennene jamrer sig; for hveten og bygget, markens grøde, er gått tapt. </p> 
+ <p><a name="an_1:12">1:12</a> Vintreet er tørket bort, og fikentreet er visnet; granatepletreet og palmen og epletreet, alle markens trær er tørket bort; ja, all fryd er svunnet bort fra menneskenes barn. </p> 
+ <p><a name="an_1:13">1:13</a> Klæ eder i sørgedrakt og klag, I prester! Jamre eder, I som gjør tjeneste ved alteret! Gå inn og sitt hele natten i sørgedrakt, I min Guds tjenere! For eders Guds hus må savne matoffer og drikkoffer. </p> 
+ <p><a name="an_1:14">1:14</a> Tillys en hellig faste, utrop en festforsamling, samle de eldste, ja alle som bor i landet, til Herrens, eders Guds hus og rop til Herren! </p> 
+ <p><a name="an_1:15">1:15</a> Ve oss, for en dag! For Herrens dag er nær og kommer som en ødeleggelse fra den Allmektige. </p> 
+ <p><a name="an_1:16">1:16</a> Er ikke maten blitt borte for våre øine, glede og fryd fra vår Guds hus? </p> 
+ <p><a name="an_1:17">1:17</a> Sædekornene er tørket inn under mulden som dekker dem; forrådshusene er ødelagt, ladene nedbrutt, for kornet er fordervet. </p> 
+ <p><a name="an_1:18">1:18</a> Hvor buskapen stønner! Oksehjordene farer redde omkring, for det finnes intet beite for dem; også fårehjordene må lide. </p> 
+ <p><a name="an_1:19">1:19</a> Til dig, Herre, roper jeg; for ild har fortært ørkenens beitemarker, og luer har forbrent alle markens trær. </p> 
+ <p><a name="an_1:20">1:20</a> Endog markens dyr skriker op til dig; for bekkene er uttørket, og ild har fortært ørkenens beitemarker. </p> 
+ <p><a name="an_2:1">2:1</a> Støt i basun på Sion og blås alarm på mitt hellige berg, alle som bor i landet, beve! For Herrens dag kommer - den er nær, </p> 
+ <p><a name="an_2:2">2:2</a> en dag med mørke og mulm, en dag med skyer og skodde, utbredt over fjellene som morgenrøde - et stort og sterkt folk, som det ikke har vært make til fra fordums tid og heller ikke siden kommer make til gjennem årene, fra slekt til slekt. </p> 
+ <p><a name="an_2:3">2:3</a> Foran det fortærer ild, og efter det brenner lue; som Edens have er landet foran det, og efter det er det en øde ørken, og det er intet som slipper unda det. </p> 
+ <p><a name="an_2:4">2:4</a> Som hester er det å se til, og som ryttere løper de avsted. </p> 
+ <p><a name="an_2:5">2:5</a> Det lyder som larm av vogner når de hopper over fjelltoppene, det lyder som når ildsluen fortærer halm, de er som et sterkt folk, rustet til krig. </p> 
+ <p><a name="an_2:6">2:6</a> Folkeslag skjelver for det; alle ansikter blir blussende røde*. /  </p> 
+ <p><a name="an_2:7">2:7</a> Som helter løper de avsted, som krigsmenn stiger de op på murene; de drar frem hver sin vei og bøier ikke av fra sine stier. </p> 
+ <p><a name="an_2:8">2:8</a> De trenger ikke hverandre til side; de går frem hver på sin egen vei; mellem kastespyd styrter de frem og stanser ikke i sitt løp. </p> 
+ <p><a name="an_2:9">2:9</a> I byen vanker de om, på muren løper de, i husene stiger de op, gjennem vinduene går de inn som tyver. </p> 
+ <p><a name="an_2:10">2:10</a> Foran dem skjelver jorden og ryster himmelen; sol og måne sortner, og stjernene holder op å lyse. </p> 
+ <p><a name="an_2:11">2:11</a> Og Herren lar sin røst høre foran sin fylking, for hans hær er såre stor, og sterk er den som fullbyrder hans ord; for stor er Herrens dag og såre forferdelig - hvem kan utholde den? </p> 
+ <p><a name="an_2:12">2:12</a> Men endog nu, sier Herren, vend om til mig med hele eders hjerte og med faste og gråt og klage, </p> 
+ <p><a name="an_2:13">2:13</a> og sønderriv eders hjerte og ikke eders klær, og vend om til Herren eders Gud! For han er nådig og barmhjertig, langmodig og rik på miskunnhet, og han angrer det onde. </p> 
+ <p><a name="an_2:14">2:14</a> Hvem vet? Han torde vende om og angre og la en velsignelse bli igjen efter sig, til matoffer og drikkoffer for Herren eders Gud. </p> 
+ <p><a name="an_2:15">2:15</a> Støt i basun på Sion, tillys en hellig faste, utrop en festforsamling! </p> 
+ <p><a name="an_2:16">2:16</a> Samle folket, tillys en hellig sammenkomst, kall de gamle sammen, samle de små barn, endog dem som dier morsbryst! La brudgommen gå ut av sitt rum og bruden av sitt kammer! </p> 
+ <p><a name="an_2:17">2:17</a> Mellem forhallen og alteret skal prestene, Herrens tjenere, stå gråtende og si: Spar, Herre, ditt folk, og overgi ikke din arv til vanære, så hedninger får råde over den! Hvorfor skal de si blandt folkene: Hvor er deres Gud? </p> 
+ <p><a name="an_2:18">2:18</a> Da blir Herren nidkjær for sitt land, og han sparer sitt folk. </p> 
+ <p><a name="an_2:19">2:19</a> Og Herren svarer og sier til sitt folk: Se, jeg sender eder korn og most og olje, så I blir mette; og jeg vil ikke mere overgi eder til vanære blandt hedningene. </p> 
+ <p><a name="an_2:20">2:20</a> Og fienden fra Norden vil jeg drive langt bort fra eder og jage ham avsted til et tørt og øde land, hans fortropp til havet i øst og hans baktropp til havet i vest; og det skal stige op en stank fra ham, en motbydelig lukt; for altfor store ting har han tatt sig fore. </p> 
+ <p><a name="an_2:21">2:21</a> Frykt ikke, du land! Fryd dig og vær glad! For store ting har Herren gjort. </p> 
+ <p><a name="an_2:22">2:22</a> Frykt ikke, I markens dyr! For ørkenens beitemarker grønnes, trærne bærer sin frukt, fikentreet og vintreet gir sin kraft. </p> 
+ <p><a name="an_2:23">2:23</a> Og I, Sions barn, fryd og gled eder i Herren eders Gud! For han gir eder læreren til rettferdighet; og så sender han regn ned til eder, høstregn og vårregn, først*. /  </p> 
+ <p><a name="an_2:24">2:24</a> Treskeplassene blir fulle av korn, og persekarene flyter over av most og olje. </p> 
+ <p><a name="an_2:25">2:25</a> Og jeg godtgjør eder de år da vrimleren åt op alt, og slikkeren og skaveren og gnageren, min store hær, som jeg sendte mot eder. </p> 
+ <p><a name="an_2:26">2:26</a> Og I skal ete og bli mette og prise Herrens, eders Guds navn, han som har stelt så underfullt med eder, og mitt folk skal aldri i evighet bli til skamme. </p> 
+ <p><a name="an_2:27">2:27</a> Og I skal kjenne at jeg bor midt i Israel, og at jeg er Herren eders Gud, og ingen annen; og mitt folk skal aldri i evighet bli til skamme. </p> 
+ <p><a name="an_3:1">3:1</a> Og derefter skal det skje at jeg vil utgyde min Ånd over alt kjød, og eders sønner og eders døtre skal tale profetiske ord; eders oldinger skal ha drømmer, eders unge menn skal se syner; </p> 
+ <p><a name="an_3:2">3:2</a> ja, endog over trælene og over trælkvinnene vil jeg i de dager utgyde min Ånd. </p> 
+ <p><a name="an_3:3">3:3</a> Og jeg vil gjøre underfulle tegn på himmelen og på jorden: blod og ild og røkstøtter. </p> 
+ <p><a name="an_3:4">3:4</a> Solen skal omskiftes til mørke, og månen til blod, før Herrens dag kommer, den store og forferdelige. </p> 
+ <p><a name="an_3:5">3:5</a> Og det skal skje: Hver den som påkaller Herrens navn, skal bli frelst; for på Sions berg og i Jerusalem skal det være en flokk av undkomne, således som Herren har sagt, og blandt de undslopne skal de være som Herren kaller. </p> 
+ <p><a name="an_3:6">3:6</a> For se, i de dager og på den tid, når jeg gjør ende på Judas og Jerusalems fangenskap, </p> 
+ <p><a name="an_3:7">3:7</a> da vil jeg samle alle hedningefolk og føre dem ned i Josafats* dal, og jeg vil der gå i rette med dem for mitt folks og min arvs, Israels skyld, fordi de spredte dem blandt hedningene og delte mitt land; /  </p> 
+ <p><a name="an_3:8">3:8</a> om mitt folk kastet de lodd, de gav en gutt for en skjøge, de solgte en pike for vin, og den drakk de op. </p> 
+ <p><a name="an_3:9">3:9</a> Og I, Tyrus og Sidon og alle Filisterlands bygder! Hvad vil mig? Er det noget I vil gjengjelde mig, eller vil I gjøre mig noget? Snart, i en hast, skal jeg la eders gjerning falle tilbake på eders eget hode, </p> 
+ <p><a name="an_3:10">3:10</a> I som tok mitt sølv og gull og førte mine dyreste skatter bort til eders templer, </p> 
+ <p><a name="an_3:11">3:11</a> og Judas barn og Jerusalems barn solgte I til Javans barn for å få dem langt bort fra sitt land. </p> 
+ <p><a name="an_3:12">3:12</a> Se, jeg kaller dem fra det sted som I har solgt dem til, og lar eders gjerning falle tilbake på eders eget hode. </p> 
+ <p><a name="an_3:13">3:13</a> Og jeg vil selge eders sønner og døtre til Judas barn, og de skal selge dem til sabeerne, et folk som bor langt borte; for Herren har talt. </p> 
+ <p><a name="an_3:14">3:14</a> Rop dette ut blandt hedningefolkene, rust eder til en hellig krig, kall på heltene, la alle krigsmenn stige frem og dra ut! </p> 
+ <p><a name="an_3:15">3:15</a> Smi eders hakker om til sverd og eders vingårdskniver til spyd! Den veke si: Jeg er en helt! </p> 
+ <p><a name="an_3:16">3:16</a> Skynd eder og kom, alle I hedningefolk fra alle kanter, og samle eder sammen! Dit la du, Herre, dine helter* stige ned! /  </p> 
+ <p><a name="an_3:17">3:17</a> Hedningefolkene skal våkne op og dra til Josafats dal; for der vil jeg sitte og dømme alle hedningefolk fra alle kanter. </p> 
+ <p><a name="an_3:18">3:18</a> Send sigden ut, for høsten er moden! Kom og tred vinpersen, for den er full, persekarene flyter over, deres ondskap er stor! </p> 
+ <p><a name="an_3:19">3:19</a> Skare på skare samler sig i avgjørelsens dal. For nær er Herrens dag i avgjørelsens dal. </p> 
+ <p><a name="an_3:20">3:20</a> Sol og måne sortner, og stjernene holder op å lyse. </p> 
+ <p><a name="an_3:21">3:21</a> Og Herren skal brøle* fra Sion og la sin røst høre fra Jerusalem, og himmel og jord skal skjelve; men Herren er en tilflukt for sitt folk og et vern for Israels barn. /  </p> 
+ <p><a name="an_3:22">3:22</a> Og I skal kjenne at jeg er Herren eders Gud, som bor på Sion, mitt hellige berg; og Jerusalem skal være et hellig sted, og fremmede skal ikke mere trenge inn der. </p> 
+ <p><a name="an_3:23">3:23</a> Og det skal skje på den dag at fjellene skal dryppe av most, og haugene flyte over av melk, og alle bekker i Juda strømme med vann; og det skal utgå en kilde fra Herrens hus og vanne Sittims dal. </p> 
+ <p><a name="an_3:24">3:24</a> Egypten skal bli til en ødemark og Edom til en øde ørken for deres vold mot Judas barn, fordi de har utøst uskyldig blod i sitt land. </p> 
+ <p><a name="an_3:25">3:25</a> Men Juda skal bli til evig tid, og Jerusalem fra slekt til slekt. </p> 
+ <p><a name="an_3:26">3:26</a> Og jeg vil hevne deres blod, det som jeg ikke før har hevnet. Og Herren bor på Sion. </p> 
+ <p></p><hr>
+ <center>
+ <a href="amo.htm">Next: Amos</a></center>
+ </body>

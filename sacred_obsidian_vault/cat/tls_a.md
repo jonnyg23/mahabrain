@@ -1,0 +1,134 @@
+<body>
+ <center>
+ <div class="filenav">
+ <a href="../cdshop/index.htm"><img src="../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../index.htm">Sacred Texts</a> 
+ <a href="index.htm">Index</a> 
+ <br><a href="tlsidx.htm">Title List Index</a><br>
+  
+ <a href="sk_z.htm">Previous</a> 
+ <a href="tls_b.htm">Next</a> 
+ 
+ </div>
+ <hr>
+ 
+ <h1 align="CENTER">Title List: A</h1>
+ <a href="../bhi/abdulbaha/abl.txt">Abdu'l-Baha in London</a> 'Abdu'l-Baha<br>
+ <a href="../lcr/abs/index.htm">Abominable Snowmen: Legend Come to Life</a> Ivan T. Sanderson [1961, 1847-50]<br>
+ <a href="../aus/awa/index.htm">The Aborigines of Western Australia</a> Albert F. Calvert [1894]<br>
+ <a href="../wmn/abib/index.htm">Abortion in the Bible</a> J.B. Hare [2008, 1847-50]<br>
+ <a href="../mor/aoftp/aboutaop.htm">About The Angel of the Prairies</a> [1847-50]<br>
+ <a href="../aor/darrow/bibabs.htm">Absurdities of the Bible</a> Clarence Darrow<br>
+ <a href="../eso/enoch/abyss.txt">THE ABYSS EXPERIENCE -- Generating the Abyss Experience</a> Benjamin Rowe [1847-50]<br>
+ <a href="../nam/ca/aat/index.htm">Achomawi and Atsugewi Tales and Achomawi Myths</a> Roland B. Dixon [1908, 1909, 1847-50]<br>
+ <a href="../chr/calvin/cc36/index.htm">36. Acts, Part I</a> John Calvin,  John King [1847-50]<br>
+ <a href="../chr/calvin/cc37/index.htm">37. Acts, Part II</a> John Calvin,  John King [1847-50]<br>
+ <a href="../bud/taf/index.htm">Açvaghosha's Discourse on the Awakening of Faith in the Mahâyâna</a> Teitaro Suzuki [1900]<br>
+ <a href="../isl/adg/index.htm">2500 Adages of Imam Ali</a> [1847-50]<br>
+ <a href="../ane/adapa.htm">Adapa and the food of Life</a> R. W. Rogers [1912]<br>
+ <a href="../chr/luther/atn.htm">Address to the Nobility</a> R.S. Grignon,  Martin Luther [1847-50]<br>
+ <a href="../chr/asm/index.htm">The Adornment of the Spiritual Marriage</a> Jan van Ruysbroeck,  C. A. Wynschenk Dom,  Evelyn Underhill [1916]<br>
+ <a href="../bhi/shogi/adj.txt">The Advent of Divine Justice</a> Shoghi Effendi<br>
+ <a href="../cla/homer/aoo/index.htm">The Adventures of Odysseus and the Tale of Troy</a> Padraic Colum,  Homer [1918, 1847-50]<br>
+ <a href="../eso/enoch/advorpt.txt">ADVORPT -- 90th region in the progression of the Aethyrs</a> Anon. [1847-50]<br>
+ <a href="../cla/virgil/aen/index.htm">The Aeneid of Virgil</a> John Dryden,  Virgil [1697, 1847-50]<br>
+ <a href="../eso/enoch/aeonpers.txt">THE AEONIC PERSPECTIVE -- Temples, INRI/IRNI and the Set/Horus Duality</a> Benjamin Rowe [1847-50]<br>
+ <a href="../cla/homer/aethiop.htm">Aethiopis (Fragments)</a> Homer,  Hugh G. Evelyn-White [1847-50]<br>
+ <a href="../bib/wb/afr/index.htm">Afrikaans Bible</a> [1953]<br>
+ <a href="../cla/aesch/agamem.htm">Agamemnon</a> Edmund Doidge Anderson Morshead,  Aeschylus [1881, 1847-50]<br>
+ <a href="../aor/paine/aor/index.htm">Age of Reason</a> Thomas Paine [1794]<br>
+ <a href="../shi/aft/index.htm">Aino Folk-Tales</a> Basil Hall Chamberlain [1888, 1847-50]<br>
+ <a href="../cla/soph/ajax.htm">Ajax</a> R. C. Trevelyan,  Sophocles [1919, 1847-50]<br>
+ <a href="../isl/sal/index.htm">The Alawite Boook</a> Ali bin Abi-Talib [1847-50]<br>
+ <a href="../bib/wb/alb/index.htm">Albanian Bible</a><br>
+ <a href="../cla/eurip/alcestis.htm">Alcestis</a> Richard Aldington,  Euripides [1847-50]<br>
+ <a href="../alc/tschoudy.htm">Alchemical Catechism</a> A.E. Waite<br>
+ <a href="../alc/mass.htm">An Alchemical Mass</a><br>
+ <a href="../isl/tah/index.htm">The Alchemy of Happiness</a> Al-Ghazzali,  Claud Field [1909, 1847-50]<br>
+ <a href="../alc/arr/index.htm">Alchemy Rediscovered and Restored</a> A. Cockren [1941]<br>
+ <a href="../chr/sil/alex/index.htm">Alexandrines: translated from the "Cherubinischer Wandersmann"</a> Julia Bilger,  Angelus Silesius [1944]<br>
+ <a href="../nam/ne/al/index.htm">The Algonquin Legends of New England</a> Charles G. Leland [1898, 1847-50]<br>
+ <a href="../sks/aww/aww.htm">All's Well That Ends Well</a> William Shakespeare [1847-50]<br>
+ <a href="../atl/ant/index.htm">Altantida (L'Antlantide)</a> Pierre Benoit,  Mary C. Tongue,  Mary Ross [1920]<br>
+ <a href="../wmn/ama/index.htm">The Amazons</a> Guy Cadogan Rothery [1910, 1847-50]<br>
+ <a href="../nam/ait/index.htm">American Indian Fairy Tales</a> Margaret Compton [1907, 1847-50]<br>
+ <a href="../bib/asv/index.htm">American Standard Version</a> [1901]<br>
+ <a href="../bib/wb/amh/index.htm">Amharic Bible (NT)</a><br>
+ <a href="../bud/ami/index.htm">Amitabha</a> Paul Carus [1906]<br>
+ <a href="../sex/ar/index.htm">The Ananga Ranga</a> Richard Burton [1885, 1847-50]<br>
+ <a href="../eso/chaos/anathema.txt">Anathema of Zos: Automatic Writing</a> Austin Osman Spare [1847-50]<br>
+ <a href="../eso/ros/ami.txt">Ancient and Modern Initiation</a> Max Heindel [1847-50]<br>
+ <a href="../cla/aar/index.htm">Ancient Art and Ritual</a> Jane Harrison [1913, 1847-50]<br>
+ <a href="../egy/ael/index.htm">Ancient Egyptian Legends</a> Margaret Alice Murray [1920, 1847-50]<br>
+ <a href="../cla/af/index.htm">Ancient Fragments</a> I. P. Cory [1832, 1847-50]<br>
+ <a href="../neu/celt/aigw/index.htm">The Ancient Irish Goddess of War</a> WM Hennessey [1870]<br>
+ <a href="../jud/ajp/index.htm">Ancient Jewish Proverbs</a> Abraham Cohen [1911, 1847-50]<br>
+ <a href="../neu/celt/ali/index.htm">Ancient Legends, Mystic Charms, and Superstitions of Ireland</a> Francesca Speranza Wilde [1887]<br>
+ <a href="../shi/atfj/index.htm">Ancient Tales and Folk-lore of Japan</a> Richard Gordon Smith [1918, 1847-50]<br>
+ <a href="../cla/app/index.htm">Ancilla to the Pre-Socratic Philosophers</a> Kathleen Freeman [1948, 1847-50]<br>
+ <a href="../cla/eurip/androm.htm">Andromache</a> E. P. Coleridge,  Euripides [1910, 1847-50]<br>
+ <a href="../mor/aoftp/aoftp.htm">The Angel of the Prairies, A Dream of the Future</a> Parley Parker Pratt [1880, 1847-50]<br>
+ <a href="../sha/anim/index.htm">Animism</a> G.W. Gilmore [1919, 1847-50]<br>
+ <a href="../chr/ecf/001/index.htm">Ante-Nicene Fathers, Vol I</a> Justin Martyr,  Irenaeaus [1847-50]<br>
+ <a href="../chr/ecf/002/index.htm">Ante-Nicene Fathers, Vol. II</a> Hermas,  Tatian,  Athenagoras,  Theophilus,  Clement of Alexandria [1847-50]<br>
+ <a href="../chr/ecf/003/index.htm">Ante-Nicene Fathers, Vol. III</a> Tertullian [1847-50]<br>
+ <a href="../chr/ecf/004/index.htm">Ante-Nicene Fathers, Vol. IV</a> Tertullian,  Origen [1847-50]<br>
+ <a href="../chr/ecf/009/index.htm">Ante-Nicene Fathers, Vol. IX</a> Clement,  Origen [1847-50]<br>
+ <a href="../chr/ecf/005/index.htm">Ante-Nicene Fathers, Vol. V</a> Hippolytus,  Cyprian,  Caius,  Novatian [1847-50]<br>
+ <a href="../chr/ecf/006/index.htm">Ante-Nicene Fathers, Vol. VI</a> Gregory Thaumaturgus,  Dionysius the Great,  Julius Africanus,  Anatolius,  Methodius,  Arnobius [1847-50]<br>
+ <a href="../chr/ecf/007/index.htm">Ante-Nicene Fathers, Vol. VII</a> Lactantius,  Venantius,  Asterius,  Victorinus,  Dionysius [1847-50]<br>
+ <a href="../chr/ecf/008/index.htm">Ante-Nicene Fathers, Vol. VIII</a> [1847-50]<br>
+ <a href="../cla/soph/antigone.htm">Antigone</a> R. C. Jebb,  Sophocles [1902, 1847-50]<br>
+ <a href="../sks/aac/aac.htm">Antony and Cleopatra</a> William Shakespeare [1847-50]<br>
+ <a href="../cla/aph/index.htm">Aphrodite (Ancient Manners)</a> Pierre Louÿs,  Willis L. Parker,  Frank J. Buttera [1932, 1847-50]<br>
+ <a href="../swd/ae/index.htm">Apocalypse Explained</a> Emanuel Swedenborg,  John Whitehead [1757-9, 1911, 1847-50]<br>
+ <a href="../swd/ar/index.htm">Apocalypse Revealed</a> Emanuel Swedenborg,  John Whitehead [1766, 1912, 1847-50]<br>
+ <a href="../chr/apo/index.htm">Apocrypha and Pseudepigrapha</a><br>
+ <a href="../chr/aa/index.htm">Apocrypha Arabica</a> Margaret Dunlop Gibson [1901]<br>
+ <a href="../cla/aot/aot/index.htm">Apollonius of Tyana</a> George Robert Stowe Mead [1901, 1847-50]<br>
+ <a href="../cla/plato/apology.htm">Apology (the Death of Socrates)</a> Benjamin Jowett,  Plato [1871, 1847-50]<br>
+ <a href="../chr/apocreed.htm">The Apostles' Creed</a><br>
+ <a href="../nam/inca/oll/index.htm">Apu Ollantay</a> Clements Markham [1910, 1847-50]<br>
+ <a href="../chr/agjc/index.htm">The Aquarian Gospel of Jesus the Christ</a> Levi H. Dowling [1920]<br>
+ <a href="../neu/burt1k1/index.htm">The 1001 Arabian Nights</a> Richard Burton [1850, 1847-50]<br>
+ <a href="../neu/lang1k1/index.htm">The Arabian Nights' Entertainments</a> Andrew Lang,  H. J. Ford [1898, 1847-50]<br>
+ <a href="../isl/arp/index.htm">Arabian Poetry</a> W. A. Clouston [1881, 1847-50]<br>
+ <a href="../isl/arw/index.htm">Arabian Wisdom</a> John Wortabet [1913, 1847-50]<br>
+ <a href="../bib/wb/arb/index.htm">Arabic Bible</a> Eli Smith,  Cornelius Van Allen Van Dyck [1865]<br>
+ <a href="../isl/ath/index.htm">Arabic Thought and Its Place in History</a> De Lacy O'Leary [1922, 1847-50]<br>
+ <a href="../pag/aradia/index.htm">Aradia, Gospel of the Witches</a> Charles G. Leland [1899, 1847-50]<br>
+ <a href="../bib/wb/ara/index.htm">Aramaic Bible (NT)</a><br>
+ <a href="../neu/celt/tai/index.htm">The Aran Islands</a> John M. Synge [1907]<br>
+ <a href="../swd/ac/index.htm">Arcana Coelestia</a> Emanuel Swedenborg,  John F. Potts [1749-56, 1905-10, 1847-50]<br>
+ <a href="../earth/amm/index.htm">Architecture, Mysticism and Myth</a> W.R. Lethaby [1892, 1847-50]<br>
+ <a href="../cla/argo/index.htm">The Argonautica</a> R.C. Seaton,  Apollonius Rhodius [1912, 1847-50]<br>
+ <a href="../asia/alp/index.htm">Armenian Legends and Poems</a> Zabelle C. Boyajian [1916]<br>
+ <a href="../bhi/shogi/aro.txt">Arohanui: Letters to New Zealand</a> Shoghi Effendi<br>
+ <a href="../tao/aow/index.htm">The Art of War</a> Sun Tzu,  Lionel Giles [1910, 1847-50]<br>
+ <a href="../eso/aww/index.htm">The Art of Worldly Wisdom</a> Balthasar Gracian,  Joseph Jacobs [1892, 1847-50]<br>
+ <a href="../neu/arthur/index.htm">An Arthurian Miscellany</a> [1847-50]<br>
+ <a href="../jud/aof.htm">Articles of Faith from the Jewish Encyclopedia</a> [1847-50]<br>
+ <a href="../mor/morartf.txt">The Articles of Faith of the Church of Jesus Christ of Latter-Day Saints</a> [1847-50]<br>
+ <a href="../sks/ayl/ayl.htm">As You Like It</a> William Shakespeare [1847-50]<br>
+ <a href="../eso/ros/ad.txt">Astro-Diagnosis, A Guide To Healing</a> Max Heindel,  Augusta Foss Heindel [1847-50]<br>
+ <a href="../astro/argr/index.htm">Astrology and Religion Among the Greeks and Romans</a> Franz Cumont [1912]<br>
+ <a href="../afr/mind/index.htm">At the Back of the Black Man's Mind</a> R. E. Dennett [1906]<br>
+ <a href="../earth/atec/index.htm">At the Earth's Core</a> Edgar Rice Burroughs [1914, 1847-50]<br>
+ <a href="../chr/athacree.htm">The Athanasian Creed</a><br>
+ <a href="../swd/ath/index.htm">Athanasian Creed</a> Emanuel Swedenborg,  Samuel H. Worcester [1759, 1885, 1847-50]<br>
+ <a href="../hin/sbe42/index.htm">The Atharva-Veda</a> Maurice Bloomfield [1897, 1847-50]<br>
+ <a href="../atl/ataw/index.htm">Atlantis, the Antediluvian World</a> Ignatius Donnelly [1882]<br>
+ <a href="../nth/unity/atom/index.htm">Atom-Smashing Power of Mind</a> Charles Fillmore [1949, 1847-50]<br>
+ <a href="../alc/paracel3.htm">The Aurora of the Philosophers</a> Paracelsus,  A.E. Waite<br>
+ <a href="../eso/chaos/sparezia.txt">Austin Osman Spare and the Zos Kia Cultus</a> [1847-50]<br>
+ <a href="../aus/alt/index.htm">Australian Legendary Tales</a> K. Langloh Parker,  Andrew Lang [1897]<br>
+ <a href="../aus/peck/index.htm">Australian Legends</a> C.W  Peck [1925]<br>
+ <a href="../cla/aoto/index.htm">The Authoress of the Odyssey</a> Samuel Butler [1922, 1847-50]<br>
+ <a href="../nam/sw/ain/index.htm">Aw-aw-tam Indian Nights (Myths and Legends of the Pima)</a> J. William Lloyd [1911, 1847-50]<br>
+ <a href="../bud/aof/index.htm">The Awakening of Faith of Ashvagosha</a> Timothy Richard [1907]<br>
+ <p></p><div class="filenav">
+ <hr>
+ <center>
+ <a href="tls_b.htm">Next: Title List: B</a></center>
+ </div>
+ </center></body>

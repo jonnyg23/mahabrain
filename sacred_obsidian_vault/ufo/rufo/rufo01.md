@@ -1,0 +1,29 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">UFOs</a> 
+ <a href="index.htm">Index</a> 
+ <a href="rufo00.htm">Previous</a> 
+ <a href="rufo02.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/1605970301/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>The Report on Unidentified Flying Objects</i>, by Edward J. Ruppelt, [1956], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_iii"><font size="1" color="GREEN">p. iii</font></a></p>  <h3 align="center">Foreword</h3>  
+ <p>This is a book about unidentified flying objectsUFO's"flying saucers." It is actually more than a book; it is a report because it is the first time that anyone, either military or civilian, has brought together in one document all the facts about this fascinating subject. With the exception of the style, this report is written exactly the way I would have written it had I been officially asked to do so while I was chief of the Air Force's project for investigating UFO reportsProject Blue Book.</p>  
+ <p>In many instances I have left out the names of the people who reported seeing UFO's, or the names of certain people who were associated with the project, just as I would have done in an official report. For the same reason I have changed the locale in which some of the UFO sightings occurred. This is especially true in <span style="font-variant:small-caps;">chapter fifteen</span>, the story of how some of our atomic scientists detected radiation whenever UFO's were reported near their "UFO-detection stations." This policy of not identifying the "source," to borrow a term from military intelligence, is insisted on by the Air Force so that the people who have co-operated with them will not get any unwanted publicity. Names are considered to be "classified information."</p>  
+ <p>But the greatest care has been taken to make sure that the omission of names and changes in locale has in no way altered the basic facts because this report is based on the factsall of the factsnothing of significance has been left out.</p>  
+ <p>It was only after considerable deliberation that I put this report together, because it had to be told accurately, with no holds barred. I finally decided to do it for two reasons. First, there is world-wide interest in flying saucers; people want to know the facts. But more often than not these facts have been obscured by secrecy and confusion, a situation that has led to wild speculation on one end of the scale and an almost dangerously blasé</p>  
+ <p><a name="page_iv"><font size="1" color="GREEN">p. iv</font></a></p>  
+ <p>attitude on the other. It is only when all of the facts are laid out that a correct evaluation can be made.</p>  
+ <p>Second, after spending two years investigating and analyzing UFO reports, after talking to the people who have seen UFO'sindustrialists, pilots, engineers, generals, and just the plain man-on-the-street, and after discussing the subject with many very capable scientists, I felt that I was in a position to be able to put together the complete account of the Air Force's struggle with the flying saucer.</p>  
+ <p>The report has been difficult to write because it involves something that doesn't officially exist. It is well known that ever since the first flying saucer was reported in June 1947 the Air Force has officially said that there is no proof that such a thing as an interplanetary spaceship exists. But what is not well known is that this conclusion is far from being unanimous among the military and their scientific advisers because of the one word, proof; so the UFO investigations continue.</p>  
+ <p>The hassle over the word "proof" boils down to one question: What constitutes proof? Does a UFO have to land at the River Entrance to the Pentagon, near the Joint Chiefs of Staff offices? Or is it proof when a ground radar station detects a UFO, sends a jet to intercept it, the jet pilot sees it, and locks on with his radar, only to have the UFO streak away at a phenomenal speed? Is it proof when a jet pilot fires at a UFO and sticks to his story even under the threat of court-martial? Does this constitute proof?</p>  
+ <p>The at times hotly debated answer to this question may be the answer to the question, "Do the UFO's really exist?"</p>  
+ <p>I'll give you the factsall of the factsyou decide.</p>  
+ <p><i>July 1955</i></p>  
+ <p align="right"><span style="font-variant:small-caps;">E. J. Ruppelt</span></p>  
+ <p></p><hr>
+ <center>
+ <a href="rufo02.htm">Next: Contents</a></center>
+ </body>

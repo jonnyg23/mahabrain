@@ -1,0 +1,49 @@
+<body>
+ <center>
+ <a href="../../cdshop/index.htm"><img src="../../cdshop/cdinfo.jpg" border="0"></a><br>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Pacific</a> 
+ <a href="index.htm">Index</a> 
+ <a href="ulh18.htm">Previous</a> 
+ <a href="ulh20.htm">Next</a> 
+ <hr><a href="https://www.amazon.com/exec/obidos/ASIN/B0024FAH3E/internetsacredte">Buy this Book at Amazon.com</a></center>
+ <hr>
+ <p align="CENTER"><font size="-1" color="GREEN"><a href="index.htm"><img src="img/tease.jpg"></a><br><i>Unwritten Literature of Hawaii</i>, by Nathaniel B. Emerson, [1909], at sacred-texts.com</font></p><hr>  
+ <p><a name="page_116"><font size="1" color="green">p. 116</font></a></p>  <h1 align="center">XV.--THE HULA KA-LAAU</h1>  
+ <p>The hula <i>ka-laau</i> (<i>ka</i>, to strike; <i>laau</i>, wood) was named from the instruments of wood used in producing the accompaniment, a sort of xylophone, in which one piece of resonant wood was struck against another. Both divisions of the performers, the hoopaa and the olapa, took part and each division was provided with the instruments. The cantillation was done sometimes by one division alone, sometimes by both divisions in unison, or one division would answer the other, a responsive chanting that was termed <i>haawe aku, haawe mai</i>--"to give, to return."</p>  
+ <p>Ellis gives a quotable description of this hula, which he calls the "hura ka raau:"</p>  
+ <p><small>Five musicians advanced first, each with a staff in his left hand, five or six feet long, about three or four inches in diameter at one end, and tapering off to a point at the other. In his right hand he held a small stick of hard wood, six or nine inches long, with which he commenced his music by striking the small stick on the larger one, beating time all the while with his right foot on a stone placed on the ground beside him for that purpose. Six women, fantastically dressed in yellow tapas, crowned with garlands of flowers, having also wreaths of native manufacture, of the sweet-scented flowers of the <i>gardenia</i>, on their necks, and branches of the fragrant <i>mairi</i> (another native plant.) bound round their ankles, now made their way by couples through the crowd, and, arriving at the area, on one side of which the musicians stood, began their dance. Their movements were slow, and, though not always graceful, exhibited nothing offensive to modest propriety. Both musicians and dancers alternately chanted songs in honor of former gods and chiefs of the islands, apparently much to the gratification of the spectators. (Polynesian Researches, by William Ellis, IV, 78-79, London, 1836.)</small></p>  
+ <p>The mele here first presented is said to be an ancient mele that has been modified and adapted to the glorification of that astute politician, genial companion, and pleasure-loving king, Kalakaua.</p>  
+ <p>It was not an uncommon thing for one chief to appropriate the <i>mele inoa</i> of another chief. By substituting one name for another, by changing a genealogy, or some such trifle, the skin of the lion, so to speak, could be made to cover with more or less grace and to serve as an apparel of masquerade for the ass, and without interruption so long as there was no lion, or lion's whelp, to do the unmasking.</p>  
+ <p>The poets who composed the mele for a king have been spoken of as "the king's washtubs." Mele inoa were not crown-jewels to be</p>  
+ <p><a name="page_117"><font size="1" color="green">p. 117</font></a></p>  
+ <p>passed from one incumbent of the throne to another. The practice of appropriating the mele inoa composed in honor of another king and of another line was one that grew up with the decadence of honor in times of degeneracy.</p>  
+ <p align="center"><i>Mele</i></p>  
+ <p></p><div style="margin-left: 32px">O Kalakaua, he inoa,<br> O ka pua mae ole i ka la;<br> Ke pua mai la i ka mauna,<br> I ke kuahiwi o Mauna-kea;<br> 5 Ke a la i Ki-lau-e-a,<br> Malamalama i Wahine-kapu,<br> I ka luna o Uwe-kahuna,<br> I ka pali kapu o Ka-au-e-a.<br> E a mai ke alii kia-manu;<br> 10 Ua Wahí i ka hula o ka mamo,<br> Ka pua nani o Hawaii;<br> O Ka-la-kaua, he inoa!</div>  
+ <p align="center">[Translation]</p>  
+ <p align="center"><i>Song</i></p>  
+ <p></p><div style="margin-left: 32px">Ka-la-kaua, a great name,<br> A flower not wilted by the sun;<br> It blooms on the mountains,<br> In the forests of Manna-ken;<br> 5 It burns in Ki-lau-e-a,<br> Illumines the cliff Wahine-kapu,<br> The heights of Uwe-kahuna,<br> The sacred pali of Ka-au-e-a.<br> Shine forth, king of bird-hunters,<br> 10 Resplendent in plumage of maim,<br> Bright flower of Hawaii:<br> Ka-la-kaua, the illustrious!</div>  
+ <p>The proper names <i>Wahine-kapu</i>, <i>Uwe-kahuna</i>, and <i>Ka-au-e-a</i> in the sixth, seventh, and eighth verses are localities, cliffs, bluffs, precipices, etc., in and about, the great caldera of Kilauea, following up the mention (in the fifth verse) of that giant among the world's active volcanoes.</p>  
+ <p>The purpose of the poem seems to be to magnify the prowess of this once famous king as a captivator of the hearts and loving attentions of the fair sex.</p>  
+ <p>
+ </p>  
+ <p></p><div style="margin-left: 32px">Kona kai opua <a name="fr_256"></a><a href="#fn_252"><font size="1">a</font></a> i kala i ka la’i;<br> Opua hinano ua i ka malie;<br> Hiolo na wai naoa a ke kehau, <a name="page_118"><font size="1" color="green">p. 118</font></a><br> Ke’ na-ú <a name="fr_257"></a><a href="#fn_253"><font size="1">a</font></a> la na kamalii,<br> 5 Ke kaohi la i ke kukuna o ka la;<br> Ku’u la koili i ke kai--<br> Pumehana wale ia aina!<br> Aloha wale ke kini o Hoolulu,<br> Aohe lua ia oe ke aloha,<br> 10 O ku’u puni, o ka me’ owá.</div>  
+ <p align="center">[Translation]</p>  
+ <p align="center"><i>Song</i></p>  
+ <p></p><div style="margin-left: 32px">The cloud-piles o’er Kona's sea whet my joy,<br> Clouds that drop rain in fair weather.<br> The clustered dew-pearls shake to the ground;<br> The boys drone out the na-ú to the West,<br> 5 Eager for Sol to sink to his rest.<br> This my day for a plunge in the sea--<br> The Sun will be warming other shores--<br> Happy the tribes of that land of calm!<br> Fathomless, deep is my love<br> 10 To thee, my passion, my mate.</div>  
+ <p>The author of this love-song, <i>mele ipo</i>, is said to have been Kalola, a widow of Kamehameha I, at a time when she was an old woman; the place was Lahaina, and the occasion an amour between Liholiho (Kamehameha II) and a woman of rank. The last two verses of the poem have been omitted from the present somewhat free, yet faithful translation, as they do not seem to be of interest or pertinent from our point of view, and there is internal evidence that they were added as an afterthought.</p>  
+ <p>The hulas on the various islands differed somewhat from one another. In general, it may be said that on Kauai they were presented with more spirit and in greater variety than in other parts of the group. The following account will illustrate this fact:</p>  
+ <p>About the year 1870 the late Queen Emma made the tour of the island of Kauai, and at some places the hula was performed as a recreation in her honor. The hula ka-laau was thus presented; it was marked, however, by such peculiarities as to make it hardly recognizable as being the same performance as the one elsewhere known by that name. As given on Kauai, both the olapa and the hoopaa took part, as they do on the other islands, but iii the Kauai</p>  
+ <p>
+ </p>  
+ <p><a name="page_119"><font size="1" color="green">p. 119</font></a></p>  
+ <p>performance the olapa alone handled the two sticks of the xylophone, which in other parts formed the sole instrument of musical accompaniment to this hula. Other striking novelties also were introduced. The olapa held between their toes small sticks with which they beat upon a resonant, beam of wood that lay on the floor, thus producing tones of a low pitch. Another departure from the usual style of this hula was that the hoopaa, at the same time, devoted themselves with the right hand to playing upon the pu-niu, the small drum, while with the left they developed the deep bass of the pahu. The result of this outré combination must have been truly remarkable.</p>  
+ <p>It is a matter of observation that on the island of Kauai both the special features of its spoken language and the character of its myths and legends indicate a closer relationship to the groups of the southern Pacific, to which the Hawaiian people owe their origin, than do those of the other islands of the Hawaiian group.</p>  
+ <hr>
+ <h3 align="CENTER">Footnotes</h3>
+ <p><a name="fn_252"></a><a href="ulh19.htm#fr_256">117:a</a> <i>Opua</i> means a distinct cloud-pile, an omen, a weather-sign.</p>
+ <p><a name="fn_253"></a><a href="ulh19.htm#fr_257">118:a</a> The word <i>nu-ú</i> refers to a sportive contest involving a trial of lung-power, that was practised by the youth of Kona, Hawaii, as well as of other places. They stood on the shore at sunset, and as the lower limb of the sun touched the ocean horizon each one, having filled his lungs to the utmost, began the utterance of the sound <i>na-u-a-u-u</i>, which he must, according to the rules of the game, maintain continuously until the sun had disappeared, a lapse of about two minutes' time. This must be done without taking fresh breath. Anyone inhaling more air into his lungs or intermitting the utterance of the sound was compelled by the umpire to withdraw from the contest and to sit down, while anyone who maintained the droning utterance during the prescribed time was declared victor. It was no mean trial.</p>
+ <p></p><hr>
+ <center>
+ <a href="ulh20.htm">Next: XVI.--The Hula Íli-íli</a></center>
+ </body>

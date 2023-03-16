@@ -1,0 +1,54 @@
+<body>
+ 
+ 
+ <center>
+ <a href="../../index.htm">Sacred Texts</a> 
+ <a href="../index.htm">Sagas &amp; Legends</a> 
+ <a href="index.htm">Index</a> 
+ <a href="nblng09.htm">Previous</a> 
+ <a href="nblng11.htm">Next</a> 
+ </center>
+ <hr>
+ <h1 align="CENTER">ADVENTURE VIII [1]</h1>
+ <h2 align="CENTER">How Siegfried Fared To His Men-At-Arms, the Nibelungs.</h2>
+ <p>Through the gate Siegfried hied him in his Cloak of Darkness down to the sand, where he found a skiff. Secretly the son of Siegmund embarked and drove it quickly hence, as though the wind did blow it on. None saw the steersman; the bark fared fast, impelled by Siegfried's mighty strength. They weened a seldom strong wind did drive it on. Nay, it was rowed by Siegfried, the son of Siegelind, the fair. In the time of a day and night with might and main he reached a land full hundred rests [2] away, or more. The people hight Nibelungs, where he owned the mighty hoard. The hero rowed alone to a broad isle, where the lusty knight now beached the boat and made it fast full soon. To a hill he hied him, upon which stood a castle, and sought here lodgment, as way-worn travelers do. He came first to a gateway that stood fast locked. In sooth they guarded well their honor, as men still do. The stranger now gan knock upon the door, the which was closely guarded. There within he saw a giant standing, who kept the castle and at whose side lay at all times his arms. He spake: "Who is it who doth knock so rudely on the gate?"</p>
+ <p>Then bold Siegfried changed his voice and spake: "I am a knight; do up the door, else will I enrage many a one outside to-day, who would liefer lie soft and take his ease."</p>
+ <p>When Siegfried thus spake, it irked the warder. Meanwhile the giant had donned his armor and placed his helm upon his head. Quickly the mighty man snatched up his shield and opened wide the gate. How fiercely he ran at Siegfried and asked, how he durst wake so many valiant men? Huge blows were dealt out by his hand. Then the lordly stranger gan defend him, but with an iron bar the warder shattered his shield-plates. Then was the hero in dire need. Siegfried gan fear a deal his death, when the warder struck such mighty blows. Enow his master Siegfried loved him for this cause. They strove so sore that all the castle rang and the sound was heard in Nibelung's hall. He overcame the warder and bound him, too.</p>
+ <p>The tale was noised abroad in all the Nibelungs' land. Alberich, the bold, a savage dwarf, heard the fierce struggle through the mountain. He armed him quick and ran to where he found the noble stranger, as he bound the mighty giant. Full wroth was Alberich and strong enow. On his body he bare helmet and rings of mail and in his hand a heavy scourge of gold. Swift and hard he ran to where Siegfried stood. Seven heavy knobs [3] hung down in front, with which he smote so fiercely the shield upon the bold man's arm, that it brake in parts. The stately stranger came in danger of his life. From his hand he flung the broken shield and thrust into the sheath a sword, the which was long. He would not strike his servant dead, but showed his courtly breeding as his knightly virtue bade him. He rushed at Alberich and with his powerful hands he seized the gray-haired man by the beard. So roughly he pulled his beard, that he screamed aloud. The tugging of the youthful knight hurt Alberich sore.</p>
+ <p>Loud cried the valiant dwarf: "Now spare my life. And might I be the vassal of any save one knight, to whom I swore an oath that I would own him as my lord, I'd serve you till my death." So spake the cunning [4] man.</p>
+ <p>He then bound Alberich as he had the giant afore. Full sore the strength of Siegfried hurt him. The dwarf gan ask: "How are ye named?"</p>
+ <p>"My name is Siegfried," he replied; "I deemed ye knew me well."</p>
+ <p>"Well is me of these tidings," spake Alberich, the dwarf. "Now have I noted well the knightly deeds, through which ye be by right the sovran of the land. I'll do whatso ye bid, and ye let me live."</p>
+ <p>Then spake Sir Siegfried: "Go quickly now and bring me the best of knights we have, a thousand Nibelungs, that they may see me here."</p>
+ <p>Why he wanted this, none heard him say. He loosed the bonds of Alberich and the giant. Then ran Alberich swift to where he found the knights. In fear he waked the Nibelung men. He spake:</p>
+ <p>"Up now, ye heroes, ye must go to Siegfried."</p>
+ <p>From their beds they sprang and were ready in a trice. A thousand doughty knights soon stood well clad. They hied them to where they saw Sir Siegfried stand. Then was done a fair greeting, in part by deeds. Great store of tapers were now lit up; they proffered him mulled wine. [5] He gave them thanks that they were come so soon. He spake: "Ye must away with me across the flood."</p>
+ <p>Full ready for this he found the heroes brave and good. Well thirty hundred men were come eftsoon, from whom he chose a thousand of the best. Men brought them their helmets and other arms, for he would lead them to Brunhild's land. He spake: "Ye good knights, this will I tell you, ye must wear full costly garments there at court, for many lovely dames shall gaze upon us. Therefore must ye deck yourselves with goodly weeds."</p>
+ <p>Early on a morn they started on their way. What a speedy journey Siegfried won! They took with them good steeds and lordly harness, and thus they came in knightly wise to Brunhild's land.</p>
+ <p>The fair maids stood upon the battlements. Then spake the queen:</p>
+ <p>"Knoweth any, who they be whom I see sailing yonder far out upon the sea? They have rich sails e'en whiter than the snow."</p>
+ <p>Quoth the king of the Rhineland: "They're men of mine, the which I left hard by here on the way. I had them sent for, and now they be come, my lady." All eyes were fixed upon the lordly strangers.</p>
+ <p>Then one spied Siegfried standing at his vessel's prow in lordly weeds and many other men. The queen spake: "Sir King, pray tell me, shall I receive the strangers or shall I deny them greetings?"</p>
+ <p>He spake: "Ye must go to meet them out before the palace, that they may well perceive how fain we be to see them here."</p>
+ <p>Then the queen did as the king advised her. She marked out Siegfried with her greetings from the rest. Men purveyed them lodgings and took in charge their trappings. So many strangers were now come to the land, that everywhere they jostled Brunhild's bands. Now would the valiant men fare home to Burgundy.</p>
+ <p>Then spake the queen: "My favor would I bestow on him who could deal out to the king's guests and mine my silver and gold, of which I have such store."</p>
+ <p>To this Dankwart, King Giselher's liegeman, answered: "Most noble queen," spake the brave knight, "let me but wield the keys. I trow to deal it out in fitting wise; whatso of blame I gain, let be mine own." That he was bountiful, he made appear full well.</p>
+ <p>When now Sir Hagen's brother took the keys in charge, the hero's hand did proffer many a costly gift. He who craved a mark [6] received such store that all the poor might lead a merry life. Full hundred pounds he gave, nor did he stop to count. Enow walked before the hall in rich attire, who never had worn afore such lordly dress. Full sore it rued the queen when this she heard. She spake: "Sir King, I fain would have your aid, lest your chamberlain leave naught of all my store of dress; he squandereth eke my gold. If any would forfend this, I'd be his friend for aye. He giveth such royal gifts, the knight must ween, forsooth, that I have sent for death. I would fain use it longer and trow well myself to waste that which my father left me." No queen as yet hath ever had so bounteous a chamberlain.</p>
+ <p>Then spake Hagen of Troneg: "My lady, be it told you that the king of the Rhineland hath such great store of gold and robes to give, that we have no need to carry hence aught of Brunhild's weeds."</p>
+ <p>"Nay, and ye love me," spake the queen, "let me fill twenty traveling chests with gold and silk as well, the which my hand shall give, when we are come across to Gunther's land."</p>
+ <p>Men filled her chests with precious stones, the while her chamberlains stood by. She would not trust the duty to Giselher's men. Gunther and Hagen began to laugh thereat.</p>
+ <p>Then spake the queen: "With whom shall I leave my lands? This my hand and yours must first decree."</p>
+ <p>Quoth the noble king: "Now bid draw near whom ye deem fit and we will make him steward."</p>
+ <p>The lady spied near by one of her highest kin (it was her mother's brother); to him the maiden spake: "Now let be commended to your care my castles and my lands, till that King Gunther's hand rule here."</p>
+ <p>Then twenty hundred of her men she chose, who should fare with her hence to Burgundy, together with those thousand warriors from the Nibelung land. They dressed their journey; one saw them riding forth upon the sand. Six and eighty dames they took along and thereto a hundred maids, their bodies passing fair. No longer now they tarried, for they were fain to get them hence. Ho, what great wail was made by those they left at home! In courtly wise she voided thus her land. She kissed her nearest kinsmen who were found at court. After a fair leave-taking they journeyed to the sea. To her fatherland the lady nevermore returned. Many kinds of games were seen upon the way; pastimes they had galore. A real sea breeze did help them on their voyage. Thus they fared forth from the land fully merrily. She would not let her husband court her on the way; this pleasure was deferred until their wedding-tide in the castle, their home, at Worms, to which in good time she came right joyfully with all her knights.</p>
+ <p>ENDNOTES:</p>
+ <p>[1] Adventure VIII. This whole episode, in which Siegfried fetches men to aid Gunther in case of attempted treachery on Brunhild's part, is of late origin and has no counterpart in the older versions. It is a further development of Siegfried's fight in which he slew Schilbung and Nibelung and became the ruler of the Nibelung land. The fight with Alberich is simply a repetition of the one in the former episode.</p>
+ <p>[2] "Rest" (M.H.G. "rast"), originally 'repose', then used as a measure of distance, as here.</p>
+ <p>[3] "Knobs", round pieces of metal fastened to the scourge.</p>
+ <p>[4] "Cunning" is to be taken here in the Biblical sense of 'knowing'. The M.H.G. "listig" which it here translates, denotes 'skilled' or 'learned' in various arts and is a standing epithet of dwarfs.</p>
+ <p>[5] "Mulled wine" translates M.H.G. "lutertranc", a claret mulled with herbs and spice and left to stand until clear.</p>
+ <p>[6] "Mark". See Adventure V, note 5.</p>
+ <hr>
+ <center>
+ <a href="nblng11.htm">Next: Adventure IX: How Siegfried Was Sent To Worms.</a></center>
+ </body>

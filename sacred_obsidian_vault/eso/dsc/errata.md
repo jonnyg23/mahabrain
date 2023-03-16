@@ -1,0 +1,37 @@
+<body>
+ <h1 align="CENTER">Errata</h1>
+ <p><a name="0"></a>page 25: 'Dashashumedh'-&gt;'Desaswamedh'</p><hr>
+ <p><a name="1"></a>page 31: '<i>Prakiriti</i>'-&gt;'<i>Prakriti</i>'</p><hr>
+ <p><a name="2"></a>page 61: 'BagavadGita'-&gt;'Bhagavad Gita'</p><hr>
+ <p><a name="3"></a>page 61: 'Delph'-&gt;'Delphic'</p><hr>
+ <p><a name="4"></a>page 63: 'Swedenbourg'-&gt;'Swedenborg'</p><hr>
+ <p><a name="5"></a>page 64: 'Bodlian'-&gt;'Bodleian'</p><hr>
+ <p><a name="6"></a>page 71: 'attiude'-&gt;'attitude'</p><hr>
+ <p><a name="7"></a>page 74: 'ryhthmic'-&gt;'rhythmic'</p><hr>
+ <p><a name="8"></a>page 78: 'apears'-&gt;'appears'</p><hr>
+ <p><a name="9"></a>page 85: 'Patanjili'-&gt;'Patanjali'</p><hr>
+ <p><a name="10"></a>page 89: 'Casuality'-&gt;'Causality'</p><hr>
+ <p><a name="11"></a>page 90: 'superstitition'-&gt;'superstition'</p><hr>
+ <p><a name="12"></a>page 93: 'Maeterlink's'-&gt;'Maeterlinck's'</p><hr>
+ <p><a name="13"></a>page 94: 'Khayaam's'-&gt;'Khayyam's'</p><hr>
+ <p><a name="14"></a>page 103: 'embosemed'-&gt;'embosomed'</p><hr>
+ <p><a name="15"></a>page 104: 'Patanjili'-&gt;'Patanjali'</p><hr>
+ <p><a name="16"></a>page 104: 'rythmic'-&gt;'rhythmic'</p><hr>
+ <p><a name="17"></a>page 105: 'translucense'-&gt;'translucence'</p><hr>
+ <p><a name="18"></a>page 105: 'Trakriti'-&gt;'Prakriti'</p><hr>
+ <p><a name="19"></a>page 110: 'Join'-&gt;'Jain'</p><hr>
+ <p><a name="20"></a>page 117: 'suddening'-&gt;'saddening'</p><hr>
+ <p><a name="21"></a>page 117: 'Patanjili'-&gt;'Patanjali'</p><hr>
+ <p><a name="22"></a>page 124: 'stupifies'-&gt;'stupefies'</p><hr>
+ <p><a name="23"></a>page 127: 'Applonius'-&gt;'Apollonius'</p><hr>
+ <p><a name="24"></a>page 130: 'Budha'-&gt;'Buddha'</p><hr>
+ <p><a name="25"></a>page 132: 'supro-physical'-&gt;'supra-physical'</p><hr>
+ <p><a name="26"></a>page 134: 'atomatic'-&gt;'atomic'</p><hr>
+ <p><a name="27"></a>page 135: 'malificient'-&gt;'maleficent'</p><hr>
+ <p><a name="28"></a>page 145: 'inadvertancy'-&gt;'inadvertency'</p><hr>
+ <p><a name="29"></a>page 164: 'Paramhamsa'-&gt;'Paramahamsa'</p><hr>
+ <p><a name="30"></a>page 164: 'Ramikrishna'-&gt;'Ramakrishna'</p><hr>
+ <p><a name="31"></a>page 181: 'rythm'-&gt;'rhythm'</p><hr>
+ <p><a name="32"></a>page 181: 'Carpins'-&gt;'Corpus'</p><hr>
+ <p><a name="33"></a>page 184: 'Dharmmapada'-&gt;'Dhammapada'</p><hr>
+ </body>
