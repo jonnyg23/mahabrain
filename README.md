@@ -10,6 +10,9 @@ A web scrape of [sacred-texts.com](www.sacred-texts.com) into an Obsidian Vault
 
 - Size: **~2.22 GB**
 - File Types: **.md**
+- The vault in this repo
+  ([sacred_obsidian_vault](https://github.com/jonnyg23/mahabrain/tree/main/sacred_obsidian_vault))
+  was scraped in March 2023 when the latest ISTA flash drive edition was 9.0.
 
 ## Requirements
 
